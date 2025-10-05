@@ -1,0 +1,5 @@
+The original Camp Verde Indian Reservation, also known as the Rio Verde Reserve, was established on October 3, 1871, by order of President Ulysses S. Grant. This reservation was rescinded in 1875, and the Yavapai and Apache people were forcibly removed to the San Carlos Reservation in a tragic event known as the "March of Tears".
+
+Around the turn of the 20th century, the Yavapai and Apache began returning to their ancestral lands in the Verde Valley. A new reservation area was re-established in 1909. The Camp Verde Reservation was officially established in 1914, and the Middle Verde Reservation followed in 1916. The U.S. Indian Service also purchased additional land that is now part of the Middle Verde District.
+
+Today, the Yavapai-Apache Nation is a sovereign nation comprised of five tribal communities: Camp Verde, Middle Verde, Clarkdale, Rimrock, and the Tunlii housing area.
