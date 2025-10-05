@@ -4,7 +4,39 @@ The men came back wrong.
 
 My father and uncle returned to camp when the sun sat low, but they didn't carry deer or rabbits or even stories about what they'd seen. They came back quiet, their faces hard in a way that made my stomach tighten.
 
-My mother stood from the grinding stone. "What is it?"
+I'd seen my father look like that once before. The day he came back alone, without my first mother.
+
+I was smaller then. Maybe four winters, maybe five. Too young to understand what death meant, but old enough to know something terrible had happened.
+
+She'd gone out that morning with the other women to gather agave hearts near Mormon Flat. I remembered watching her leave, the digging stick across her shoulder, her gathering basket empty and waiting to be filled. She'd touched my head as she passed. That was all. Just her hand on my hair, warm from the cooking fire.
+
+She never came back.
+
+Father found her in the afternoon. The other women came running into camp ahead of him, crying, and then father appeared carrying her. Her body was wrong. Limp. Her head rolled against his shoulder in a way that frightened me. I tried to go to her but my aunt held me back.
+
+"Soldiers," someone said. The word hissed through camp like wind through dry grass.
+
+They'd found the women gathering. The white men had shouted things in their language, words my mother didn't understand. When she couldn't answer, when she reached for her digging stick not knowing they thought it was a weapon, they shot her.
+
+She'd been gathering food. That was all.
+
+I didn't cry at first. I thought she was sleeping, thought father would lay her down and she would wake up. I kept waiting for her to move, to speak, to look at me with those eyes that had always been warm.
+
+But she didn't move. Didn't speak. Didn't look.
+
+They wrapped her in hides and took her away to the burial place. I wasn't allowed to go. Too young, they said. Stay with your aunt, they said.
+
+Father came back different. The softness gone from his face. His mouth a hard line. His hands always near his weapons. At night I heard him talking with the other men, his voice low and angry. "Bitter vengeance," my uncle called it later, when he thought I wasn't listening. "Your father has bitter vengeance for soldiers and all white people now. Because of what they did to your mother."
+
+I understood the anger even if I didn't understand death. The soldiers had taken her. Had hurt her for no reason. Had made father's face turn to stone.
+
+After many moons, my father took a new wife. A woman from another family whose husband had died the winter before. She was kind to me, gentle, and in time I learned to call her mother too. She gave my father two daughters—Nashta first, then the baby. She did the work my first mother had done: grinding meal, gathering plants, making our clothes. She cared for me when I was sick. She smiled when I climbed too high in the mesquite trees.
+
+But she wasn't the same. Couldn't be. And father never lost that hardness, that readiness for violence that had settled into him the day the soldiers killed my first mother.
+
+Now, watching him return to camp with that same terrible look on his face, I felt my stomach clench. The soldiers were close again. And father remembered, just as I did, what they had already taken from us.
+
+The woman who had become mother to me stood from the grinding stone, my baby sister on her hip. "What is it?"
 
 My father looked at her for a long moment before speaking. "Tracks. Boot tracks. Three men, maybe four. Following the river upstream from the east."
 
@@ -24,9 +56,15 @@ That night, the adults talked in voices that rose and fell like the wind. I lay 
 
 "We should move higher." That was my uncle. "Into the mountains. Make it harder for them to follow."
 
-"Winter is coming." An aunt's voice, worried. "The high country will be too cold. And we haven't finished gathering enough."
+"Winter is coming." An aunt's voice, worried. "The high country will be too cold. And we haven't finished gathering enough. We're already low on meat."
 
-"Better cold than dead."
+"How low?" My father's voice was sharp.
+
+"Two days, maybe three if we're careful. We'll need to hunt soon."
+
+"Can't hunt if we're running," someone said.
+
+"Better cold and hungry than dead."
 
 My mother's voice cut through, sharp. "Don't say that in front of the children."
 

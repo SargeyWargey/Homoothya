@@ -15,7 +15,9 @@ The cave is located on the northern wall of the Salt River Canyon near present-d
 - An elliptical undercut measuring about **65 by 25 feet**
 - Sits **1,200 feet (370 m) above the river** at the base of a **170 feet (52 m) cliff**
 
-**Terrain Access**: The cave lies on the canyon's north wall at the angle of a sharp turn to the south. Access required climbing a steep mountainside, crossing a lava bed, and descending from the gorge's rim by a trail on the face of the cliff.
+**Terrain Access**: The cave lies on the canyon's north rim at the angle of a sharp turn to the south. Above the cave is a mesa/plateau from which a trail descends down the cliff face to the cave entrance. The soldiers positioned themselves on this mesa above the rim, then descended to attack.
+
+**Sun Position (Winter)**: Being on the north rim, the cave remains in shadow for much of the winter day, especially in early morning. The south rim across the canyon catches the first sunlight at dawn, while the north rim stays shaded. This tactical disadvantage aided the soldiers' dawn approach.
 
 **Climate (December)**: Winter in central Arizona can bring cold air masses from Canada, with temperatures dropping below freezing at night. The area experiences occasional Pacific storms during winter months (November-March). [CHECK: Specific weather conditions on December 28, 1872]
 
@@ -29,17 +31,17 @@ The cave is located on the northern wall of the Salt River Canyon near present-d
 
 ## The Events Leading to the Massacre
 
-On December 22, 1872, Captain James Burns captured a young Yavapai boy named **Hoomothya** (who would later be known as Mike Burns). For six days, the boy was held captive and then forced to lead the soldiers and their scouts to the location of the cave where his people were hiding.
+On December 22, 1872, Captain James Burns captured a young Yavapai boy named **Hoomothya** (who would later be known as Mike Burns). The boy was captured on the mesa/plateau above the canyon rim while gathering firewood. For six days, the boy was held captive as the soldiers positioned themselves for the attack.
 
 ## The Attack
 
 ### Tactical Approach
-The troops began their final climb at **8:00 PM on December 27**, using stealth tactics learned from their scouts. They wore moccasins stuffed with dry grass instead of heavy cavalry boots to move silently. They reached the summit **4¼ hours later** (around 12:15 AM), and Apache scouts reported seeing fires in the canyon below about **2:00 AM on December 28**.
+The troops began their final approach at **8:00 PM on December 27**, using stealth tactics learned from their scouts. They wore moccasins stuffed with dry grass instead of heavy cavalry boots to move silently. They reached the mesa above the canyon rim **4¼ hours later** (around 12:15 AM), and Apache scouts reported seeing fires in the cave far below about **2:00 AM on December 28**. The soldiers camped on the mesa throughout the night, positioned above the cave on the north rim.
 
 ### Dawn Assault
-At dawn on December 28, the soldiers and scouts surrounded the cave. Inside, the Yavapai were celebrating a recent successful raid with dancing. When Captain Brown's men called for surrender, according to John Bourke's diary, "The only answer was a shriek of hatred and defiance" and threats from the Yavapai.
+At dawn on December 28, the soldiers and scouts descended from the mesa to positions around the cave. The north rim remained in shadow while the south rim across the canyon caught the first light, giving the soldiers cover in darkness as they positioned themselves. Inside, the Yavapai were celebrating a recent successful raid with dancing. When Captain Brown's men called for surrender, according to John Bourke's diary, "The only answer was a shriek of hatred and defiance" and threats from the Yavapai.
 
-Soldiers opened fire on the men, women, and children. Some of Brown's men aimed for the cave roof, causing bullets to ricochet off the stone ceiling into the people below. In a particularly brutal tactic, soldiers also rolled large boulders down from the cliffs above, crushing those seeking shelter at the cave entrance.
+Soldiers opened fire on the men, women, and children. Some of Brown's men aimed for the cave roof, causing bullets to ricochet off the stone ceiling into the people below. In a particularly brutal tactic, soldiers positioned on the mesa above also rolled large boulders down from the rim, crushing those seeking shelter at the cave entrance.
 
 **John Bourke's Account**: Bourke documented a particularly haunting moment in his diary: "At one point in the battle, a 4-year old boy ran to the mouth of the cave 'and stood thumb in mouth, looking in speechless wonder and indignation at the belching barrels.'"
 

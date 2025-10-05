@@ -1,211 +1,195 @@
 # Chapter 7: Prisoner
 
-They tied my hands.
+My father wouldn't look at me.
 
-Not tight enough to hurt, but tight enough that I couldn't slip free. The rope was rough against my wrists. I sat on a rock where they'd put me, surrounded by soldiers, and tried not to cry.
+We sat on the cold ground as dawn approached, surrounded by soldiers preparing for something I didn't want to imagine. My father's hands and feet were still bound. So were mine. My uncle's body lay where he'd fallen, already stiffening in the cold.
 
-The officer who'd spoken to me—the one with the gold bars on his shoulders—stood a little way off, looking through a brass tube at the cave high above. Other soldiers were gathered around him, some standing guard, others checking weapons and equipment.
+I kept trying to catch my father's eye. Kept trying to make him see that I'd had no choice, that they would have killed him, that I'd only done what any child would do to save their parent.
 
-I counted twenty men. Maybe more. All of them bigger than my father. All of them armed with rifles and pistols and knives. All of them between me and home.
+But he wouldn't look at me. Wouldn't acknowledge me. His face was stone.
 
-"Captain Burns, sir." One of the soldiers approached the officer. "What do you want us to do with the boy?"
+Maybe he wished they had killed him. Maybe that would have been better than knowing his son had betrayed his people.
+
+The soldiers moved around us with purpose, checking weapons and equipment. The officer who'd questioned me—the one with gold bars on his shoulders—stood apart, looking toward the darkness where the canyon lay. Where I'd pointed.
+
+Where my family slept.
+
+"Captain Burns, sir." One of the soldiers approached him. "We ready to move out?"
 
 So that was his name. Burns.
 
-Captain Burns lowered the brass tube and looked at me again. I tried to meet his eyes without flinching, tried to show I wasn't afraid even though I was shaking.
+The captain nodded. "Leave two men here with the prisoners. The rest come with me. We'll approach from above, get in position before first light. When the sun rises, we'll have them outlined against the cave entrance."
 
-"Keep him with us. Keep him quiet. He's our insurance."
+The words were English, but I was starting to recognize some of them. "Cave." "Ready." "Move."
 
-"Insurance for what, sir?"
+They were going. Going to the cave. Going to my people.
 
-"For if they decide to fight instead of surrender." Burns turned back to study the cave. "A child in our hands might make them think twice about resisting."
+And I'd told them where to find them.
 
-My stomach twisted. They knew about the cave. They knew my people were up there. And they were planning something.
+I made a sound, something between a sob and a moan. One of the soldiers looked at me but said nothing.
 
-I had to warn them. Had to get away, get back up there, tell my father that soldiers were coming.
+Captain Burns walked over and crouched in front of me and my father. He studied us for a moment, his face unreadable in the pre-dawn darkness.
 
-I stood up and tried to run.
+"Keep them here until it's done," he said to the two soldiers he was leaving behind. "Don't hurt them unless they try to escape. The boy especially—he's just a child. He didn't know what he was doing."
 
-I didn't make it three steps before hands grabbed me, lifted me off my feet, carried me back to the rock. A different soldier stood guard over me this time, his rifle resting in the crook of his arm, his eyes never leaving me.
+But I had known. I'd known exactly what I was doing. I'd chosen my father's life over everyone else's.
 
-"Stay put, boy," he said. Not unkind, but not friendly either. Just matter-of-fact. "You ain't going nowhere."
+And I would have to live with that choice forever.
 
-I sat. What else could I do?
+The soldiers moved out, disappearing into the darkness. Twenty men, maybe more. All headed toward the cave. All because of what I'd told them.
 
-The sun climbed higher. The morning grew warmer. The soldiers made no move toward the cave, just stayed hidden among the rocks below it, watching and waiting.
+My father finally looked at me then. His eyes were empty. Hollow. Like everything inside him had died when I'd pointed toward the canyon.
 
-For what? I didn't know. But every minute that passed was another minute my family didn't know the danger they were in.
+"I'm sorry," I whispered. "Father, I'm sorry. I didn't know what else to do."
 
-Captain Burns called some of his men together. They spoke in low voices, looking up at the cave, pointing to different parts of the cliff face and the approach. Planning. Strategizing.
+He looked away again.
 
-I caught a few English words I'd learned from traders over the years. "Steep." "Difficult." "Approach." "Dawn."
+The two guards stood a little distance off, rifles ready but not aimed at us. They talked quietly to each other, their voices low. Occasionally one would glance our way to make sure we hadn't moved.
 
-Dawn. They were waiting for dawn. Tomorrow's dawn.
+Where would we go? My father was bound. I was bound. My uncle was dead. And somewhere in the darkness, soldiers were approaching the cave where everyone I loved was sleeping.
 
-Which meant they weren't going to attack today. They were just going to wait here, keeping hidden, making sure no one in the cave knew they were here.
+The sky began to lighten. Gray first, then pearl, then gold touching the eastern horizon. Beautiful. The kind of morning my grandmother would have called blessed. The kind of morning that made you grateful to be alive.
 
-And I couldn't warn them.
+But this morning was death approaching. This morning was the end of everything.
 
-I pulled against the rope on my wrists, but it held firm. The soldier guarding me noticed and shook his head.
+I thought about my mother waking up in the cave, wondering where I was. Had she noticed I hadn't come back from the hunt? Was she worried? Or did she think I was with my father and uncle, that we'd stayed out overnight because the hunting had taken longer than expected?
 
-"Don't hurt yourself, kid. Rope's not coming off till the Captain says so."
+I thought about my sisters. Little Nashta, who I'd promised to always protect. The baby who barely knew my name. Would they be frightened when the soldiers came? Would they understand what was happening?
 
-I looked up at the cave. I could see the entrance, that dark opening in the cliff face. If I looked carefully I could see movement there—small figures crossing in front of the entrance. My people, going about their day, unaware.
+I thought about Grandmother, who'd said the stone would protect us. Who'd believed we'd be safe in the cave.
 
-Was my father looking for me? Had they noticed I hadn't come back with the firewood? Were they worried?
+She'd been wrong. And it was my fault.
 
-Or did they think I'd just gone farther than I should have, lost track of time the way children do?
+Time crawled. The guards changed position, walking around to stay warm. One of them offered me water from his canteen. I drank because I was thirsty, even though I hated myself for accepting anything from them.
 
-I hoped they were worried. I hoped they were searching. I hoped they would realize something was wrong and post more guards, prepare for attack, do something.
+My father refused the water. Refused to eat the hardtack they offered. Refused to acknowledge their existence or mine.
 
-But the cave stayed quiet. No alarm was raised. Life went on up there while I sat trapped down here with the enemy.
+The sun rose. Full light now. The guards looked toward the canyon, toward where their comrades had gone. Waiting for something. Listening for something.
 
-One of the soldiers brought me water in a canteen. I drank because I was thirsty, even though I hated accepting anything from them. The water tasted strange, metallic, nothing like water from a yucca-fiber basket.
+And then we heard it.
 
-"You got a name?" the soldier asked.
+Distant. Echoing off the canyon walls. But unmistakable.
 
-I didn't answer.
+Gunfire.
 
-"Don't talk much, do you?" He squatted down so he was at my eye level. He had a beard, brown with red in it, and kind eyes. "You're Yavapai, right? Or Tonto Apache?"
+A few shots at first. Then more. Then a sustained roar that seemed to go on and on and on.
 
-I stared at him.
+I tried to stand but my legs wouldn't hold me. I fell to my knees in the dirt, that terrible sound filling my ears, filling my chest, filling the whole world.
 
-"My name's Corporal Hayes," he said. "I got a boy about your age. Back in Ohio. He's probably playing in the snow right about now." He smiled, but it was sad. "I wonder if he remembers what I look like."
+My father made a sound I'd never heard before. Animal. Wounded. A keening that came from somewhere deep inside him.
 
-I didn't care about his son in Ohio. I didn't care about anything except getting back to my family.
+The gunfire continued. And continued. And continued.
 
-Hayes stood up and walked away. Another soldier took his place as guard.
+How long does it take to kill seventy-six people trapped in a cave with nowhere to run? How many bullets? How many minutes?
 
-The day crawled past like something wounded. The sun crossed the sky so slowly I thought it might never set. The soldiers rotated guard duty, ate their rations, checked their weapons. Captain Burns stayed near the rocks, watching the cave through his brass tube, occasionally making notes in a small book.
+Too long. Not long enough. An eternity. An instant.
 
-I tried to memorize everything. How many soldiers. What weapons they carried. Where they positioned themselves. Anything that might help my father and the other men fight them off.
+When the shooting finally stopped, the silence was worse than the sound had been.
 
-But what good would it do if I never got the chance to tell them?
+One of the guards looked sick. The other wouldn't meet my eyes.
 
-Late in the afternoon, Captain Burns came and stood in front of me. I looked up at him, this man who held my life in his hands, and tried to see what kind of person he was.
+We waited.
 
-His face was hard but not cruel. His eyes were tired. He looked like a man who'd done this before—captured people, made war, followed orders that maybe he didn't entirely believe in.
+The sun climbed higher. The morning grew warm. Birds began to sing in the rocks around us, oblivious to what had just happened, to what we'd just heard.
 
-"I'm sorry about this," he said quietly. In English, so I didn't understand the words then. But I understood the tone. It wasn't exactly kind, but it wasn't harsh either. Just... weary. "This isn't personal. It's just war."
+It was mid-morning when the soldiers started coming back.
 
-He walked away.
+They climbed up from the canyon in ones and twos, their faces grim. Some of them wouldn't look at each other. One young soldier stumbled away from the group and vomited behind a rock.
 
-Just war. As if that explained anything. As if that made it right.
+Captain Burns came last. His uniform was dusty, his face drawn. He looked like he'd aged ten years since I'd seen him before dawn.
 
-The sun finally set. The canyon filled with shadow, then darkness. The soldiers didn't light fires—didn't want to give away their position. They ate cold rations and spoke in whispers and settled in to wait through the night.
+He walked over to where we sat and looked down at my father and me for a long moment.
 
-Someone untied my hands long enough for me to eat some of the hard bread they gave me. It tasted like sand and sawdust, but I was hungry enough to choke it down. Then they tied me again and made me lie down on a blanket they spread on the ground.
+"It's done," he said quietly. In English, but I understood the tone. "Seventy-six dead. All women, children, and old men. Not a single warrior among them."
 
-"Sleep if you can, boy," one of them said. "Tomorrow's going to be a long day."
+My father stared up at him with murder in his eyes.
 
-I lay on my back and looked up at the stars. The same stars that were shining down on the cave where my family slept. The same stars I'd looked at every night of my life, stars that had always been there, constant and familiar.
+Burns turned to one of his officers. "Cut their bonds. We're taking them with us."
 
-But tonight they seemed farther away than ever. Cold and distant and indifferent to what was happening down here on the earth.
+"Sir, wouldn't it be easier to—"
 
-I thought about my mother. By now she must know I was gone. She must be frightened, searching, praying to whatever powers might listen to bring me back safe.
+"We're taking them." Burns's voice was hard. Final. "The man and the boy both. That's an order."
 
-I thought about my father, who I'd seen transformed by grief when my first mother died. What would he do if something happened to me?
+Someone cut the ropes on my wrists and ankles. I rubbed feeling back into my hands, but I felt nothing. Numb. Empty. Hollow.
 
-I thought about my sisters, who were too young to understand what war was, what soldiers were, what it meant that I'd disappeared.
+They untied my father too. For a moment I thought he might attack them, might go for their weapons and force them to kill him. But he didn't move. Just sat there, broken.
 
-I thought about Grandmother, who'd said the stone would shelter us. Who'd believed we'd be safe in the cave.
+"Get them on horses," Burns said. "We're moving out."
 
-Had she been wrong? Or were the soldiers here for some other reason? Maybe they didn't even know about the cave, and this was all some terrible coincidence.
+They lifted me onto a horse, tied me to the saddle. Did the same with my father on another horse. Someone threw my uncle's body over a third horse like cargo.
 
-But I knew that wasn't true. I'd seen Captain Burns studying the cave through his brass tube. I'd heard the soldiers planning. They knew exactly where my people were.
+The column formed up. Twenty soldiers, three prisoners—two living, one dead. And somewhere behind us in the canyon, seventy-six more dead left sealed in a stone tomb.
 
-And tomorrow at dawn, they were going to do something about it.
+My people. My family. My mother and sisters and grandmother and everyone I'd ever known.
 
-I tried to imagine what would happen. Would they attack? Try to negotiate? Demand surrender?
+All dead because I'd been too young and too frightened and too human to stay silent when they threatened my father.
 
-Whatever they did, my people would resist. My father and uncle and the other men wouldn't just give up. They'd fight to protect their families.
+As we rode away from that place, I looked back once. Saw the canyon rim glowing in the midday sun. Saw the birds circling. Saw the country I'd been born in, the land my people had lived on since the beginning.
 
-And people would die.
+All of it going on without us. Without them.
 
-Maybe my father. Maybe my mother. Maybe my sisters.
+The world didn't care that seventy-six people had died this morning. The sun still shone. The birds still sang. The rocks still stood eternal and indifferent.
 
-Maybe everyone.
+Only I cared. Only I remembered. Only I was left to carry the weight of what had happened.
 
-I rolled onto my side, curling into myself, the ropes cutting into my wrists. Silent tears ran down my face into the blanket.
+The only one living to tell.
 
-I was seven, maybe eight years old. I didn't understand politics or military campaigns or the greater forces that had led to this moment. I just knew I'd been taken from my family and there was nothing I could do to help them.
+And that burden was already crushing me.
 
-Somewhere in the darkness, one of the soldiers was softly singing. A sad song in English, something about home and sweethearts and roads too long.
+My father rode ahead of me. His back was straight, his head high. Proud even in defeat. But he still wouldn't look at me.
 
-I closed my eyes and tried to sleep. But sleep wouldn't come.
+I didn't know if he ever would again.
+
+Captain Burns rode at the front of the column, his shoulders set, his face forward. The man who'd led the massacre. The man who'd kept me prisoner while my family died. The man who'd decided to spare my father and me when he could have killed us with the others.
+
+Why? Why spare us? Why burden us with survival when death would have been kinder?
+
+I didn't know then. I wouldn't know for years. Maybe I still don't know.
+
+But as we rode north through the winter sunshine, away from the canyon and the cave and the dead, I understood one thing:
+
+Hoomothya had died back there. The boy I'd been, the child who'd played and hunted and listened to Grandmother's stories—he was as dead as everyone else in that cave.
+
+What rode on this horse was something else. Something broken and hollow and wrong.
+
+A ghost.
+
+A witness.
+
+A traitor.
+
+The only one left to tell what happened. The only one who would spend the rest of his life explaining to strangers how his people died.
+
+How I helped kill them.
+
+That weight settled on my shoulders as we rode, and I felt it crushing me, pressing me down into the horse's back, into the earth, into darkness.
+
+But I didn't fall. I didn't break. Not yet.
+
+I just rode.
+
+And rode.
+
+And rode.
+
+Away from everything I'd been.
+
+Toward a future I couldn't imagine and didn't want.
+
+The only one living to tell.
 
 ***
 
-They woke me before dawn.
+**[End Chapter 7]**
 
-The sky was still dark but beginning to gray at the edges. The soldiers were moving quietly, checking weapons, preparing for something.
+*Word count: ~1,650*
+*Scene location: Mesa above Salt River Canyon, then riding north*
+*Approximate timeframe: December 28, 1872, the day of the massacre*
+*Age: Hoomothya approximately 7-8 years old*
 
-Captain Burns stood over me. "Get up, boy. You're coming with us."
-
-They untied my hands and pulled me to my feet. My legs were stiff from lying on the cold ground all night. They didn't retie me, but two soldiers stayed close on either side, ready to grab me if I tried to run.
-
-We started up the slope toward the cave.
-
-My heart hammered in my chest. They were taking me up there. Taking me back toward my family. Maybe this was my chance. Maybe when we got closer I could break away, run ahead, shout a warning—
-
-"Don't even think about it," one of the soldiers whispered. "You make a sound before we're ready, and I'll gag you. Understand?"
-
-I understood.
-
-We climbed slowly, carefully, trying not to make noise. More soldiers were spreading out along the slope, positioning themselves below the cave entrance. Still more were climbing toward a position above the cave.
-
-The sky was getting lighter. Soon the sun would rise. Soon people in the cave would start waking up.
-
-I thought of my mother rekindling the morning fire. My father taking his position at the entrance to watch the canyon. My sisters stretching and rubbing sleep from their eyes.
-
-None of them knowing that death was climbing toward them.
-
-We were halfway up the slope when I saw the first movement at the cave entrance. A dark figure, silhouetted against the slightly lighter darkness inside. One of the sentries, probably.
-
-He hadn't seen us yet. We were still in shadow, still hidden among the rocks.
-
-Captain Burns raised his hand. The soldiers froze.
-
-For a long moment nothing happened. The sentry stood at the cave entrance, just standing there, maybe looking out at the dawn, maybe thinking about breakfast, maybe worrying about his family.
-
-Then he turned and went back inside the cave.
-
-The soldiers started moving again. Closer. Quieter. Like wolves closing in on prey.
-
-I wanted to scream. Wanted to shout a warning that would wake everyone in the cave, give them a chance to fight or flee or do something.
-
-But a hand clamped over my mouth before I could make a sound. Strong arms held me immobile.
-
-"Not yet," a voice whispered in my ear. "Not yet."
-
-We kept climbing.
-
-The sky grew lighter. The canyon rim caught the first sun, glowing gold. Any minute now the sun would reach down into the canyon, would illuminate the slope, would reveal the soldiers climbing it.
-
-We were close now. So close I could see details of the cave entrance. Could see the smoke from morning fires starting to rise. Could hear faint sounds—voices, movement, morning sounds.
-
-My people. My family. Alive and unaware.
-
-I tried one more time to break free, to warn them. But the hands holding me were too strong. All I could do was watch.
-
-Watch as the soldiers took their positions.
-
-Watch as Captain Burns crept closer to the cave entrance.
-
-Watch as the sun rose and the light came and the last peaceful morning of my people's life in that cave came to an end.
-
-And I knew, even though I didn't know exactly what was going to happen, that I was watching the end of something. The end of safety. The end of hope. Maybe the end of everything.
-
-They had caught us. And whatever came next would change my life forever.
-
-I just didn't know yet how completely forever that would be.
-
-The soldier's hand stayed clamped over my mouth.
-
-The sun kept rising.
-
-And six days from now, in this exact place, the world would end.
-
-But first came the waiting. First came the terrible, helpless waiting.
-
-And I, seven years old and frightened and alone, could do nothing but watch it come.
+**Historical notes:**
+- This revised version reflects Hoomothya's direct role in revealing the cave's location under duress
+- The guilt and psychological burden of this choice would have been enormous for a young child
+- Mike Burns's relationship with his biological father (if he survived the massacre) is not documented in historical sources—this version dramatizes a plausible emotional aftermath
+- Captain James Burns did spare Mike and take him in as an adoptive son—the psychological complexity of this relationship, given Burns's role in the massacre, cannot be understated
+- The massacre's casualty count of 76 (or varying numbers in different accounts) consisted primarily of women, children, and elders—a fact that haunted Burns and others who participated

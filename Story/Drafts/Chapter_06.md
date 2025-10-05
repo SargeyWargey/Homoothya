@@ -22,196 +22,251 @@ I played with them for a while, a game of hiding and seeking among the rock form
 
 It never came.
 
-That evening we had hot food for the first time in days. My mother made a stew with dried meat and the last of the prickly pear pads, cooking it in a basket by dropping hot stones into the water until it boiled. The smell made my mouth water. The warmth of it in my belly made me realize how cold I'd been, how tense, for how long.
+That evening the meat ran out.
 
-My father ate without speaking, his rifle still beside him. He hadn't let it out of reach since we arrived.
+My mother scraped the bottom of the storage basket, finding only a few dried strips. She made a thin stew with prickly pear pads and what little meat remained, cooking it in a basket by dropping hot stones into the water until it boiled. Everyone got a portion, but it was small. Not enough. My stomach was still hollow after I finished.
 
-"They're gone," my mother said quietly. "You can rest."
+"We need to hunt," my uncle said to my father that night. They sat by our fire, voices low. "Tomorrow. While the soldiers are gone. We can't wait any longer."
 
-He looked at her, his face hard in the firelight. "They're not gone. They're out there. And they're coming back."
+My father looked at the children, at the elders, at the mothers nursing babies. All of us getting thinner. "It's risky."
 
-She didn't argue. Just pulled my sisters closer and stared into the fire.
+"It's riskier to starve."
 
-That night I slept better than I had in days. The cave felt almost safe again. Almost like shelter instead of a trap. I dreamed of home—not the cave, but our real home, the camps we'd moved through with the seasons, the places where we'd gathered and hunted and lived before the soldiers came.
+A long pause. Then my father nodded. "At first light. You and me. We'll go to the mesa above, find deer or rabbits. Be back before dark."
 
-I dreamed of my mother. My first mother. Her hands sorting seeds. Her voice singing while she worked. The way she'd call my name when it was time to eat.
+But my uncle shook his head. "Not at first light. Dusk is better. Deer come out to feed when the sun's low. We can track them in the last light, have better chances."
 
-I woke in the darkness with tears on my face.
+My father didn't look happy about it, but he agreed. "Dusk, then. But we stay close. No chasing wounded game into the dark."
 
-***
+My uncle nodded, though I saw something flicker across his face. We both knew: if they wounded a deer and it ran, they'd have no choice but to follow. The group needed that meat too desperately to let it get away.
 
-The fifth day started like the others. Gray light growing at the cave's mouth. People stirring, moving quietly, tending small fires. My mother nursing my youngest sister while my other sister played with stones near our sleeping mat, making them into a family—this one the mother, this one the father, this one the baby.
-
-I went with the other boys to gather firewood again. We were allowed to go farther now, spreading out across the slope below the cave, searching for anything that would burn. The morning was cold, my breath visible in the air.
-
-"My father says we might stay here all winter," one of the boys said. He was older than me, maybe ten. "Says we'll be safe until the soldiers give up and go back to their fort."
-
-"All winter?" Another boy shook his head. "We don't have enough food for that. We'd have to go down to the valley to gather. To hunt."
-
-"Can't do that if soldiers are patrolling."
-
-"So what do we do? Starve?"
-
-No one had an answer to that.
-
-We carried our firewood back up to the cave in silence. The sun was higher now, warming the rock, turning the canyon walls gold. From up here I could see for miles—the broken country stretching away to the north, the mountains blue in the distance, the sky impossibly wide above.
-
-Beautiful country. Harsh country. Our country.
-
-And somewhere out there, soldiers were riding through it, looking for us.
-
-I climbed back into the cave and added my firewood to our family's pile. My mother smiled at me, tired but trying not to show it. My father was at the entrance again with the other men, as he was every morning, watching.
-
-The day passed slowly. Nothing happened. No soldiers appeared. No alarms. Just another day of waiting, of living small and quiet in the stone shelter.
-
-That evening, Grandmother told stories.
-
-She sat by one of the central fires with the children gathered around her—not just the young ones, but older kids too, and even some of the adults who sat at the edges, listening. I sat with my back against the cave wall, my younger sister in my lap, listening to Grandmother's voice echo off the stone.
-
-She told the old stories. How the people came up from beneath the earth into this world of light. How Coyote brought fire and taught the people to use it. How the mountains and rivers and rocks all had spirits, all had power, all deserved respect.
-
-"This cave," she said, her voice soft but carrying in the stillness, "is old. Older than your grandfathers' grandfathers. The stone remembers everyone who has sheltered here. The stone will keep us safe, if we honor it."
-
-I wanted to believe her. I could feel the stone at my back, solid and ancient and strong. Maybe it did remember. Maybe it would protect us.
-
-But stone hadn't protected my first mother. Stone hadn't stopped the soldiers from taking our land, destroying our camps, scattering our people.
-
-Stone was just stone.
-
-After the stories, after the fires burned low and people settled into sleep, I lay awake again. My father was on sentry duty at the entrance—I could see his silhouette against the stars, dark and still. My mother slept beside me with my sisters tucked close.
-
-I thought about the stories Grandmother had told. About the people coming up into this world. About learning to live here, learning what the land could give, learning how to survive.
-
-Had those first people been afraid like we were afraid? Had they hidden in caves from enemies they couldn't fight? Had they huddled in the darkness, hoping the stone would shelter them?
-
-Maybe fear was just part of living. Part of being human in a world that was beautiful and harsh and indifferent all at once.
-
-I closed my eyes and tried to sleep.
+I fell asleep that night with my stomach growling, dreaming of venison roasting over fire.
 
 ***
 
-The sixth day was warmer.
+The fifth day passed in hungry anticipation.
 
-Sunlight poured into the cave's mouth, bright and clean. The men said the soldiers hadn't been seen for two days—maybe they really had moved on to search elsewhere. Maybe we could risk sending out hunters soon, gatherers to bring back food and water from farther away.
+Everyone knew my father and uncle would hunt at dusk. The women prepared to process whatever game they brought back—even in the dark if necessary. The children were quieter, sensing the tension, the need for this hunt to succeed.
 
-My mother and aunt went down to the river to refill the water baskets. They took some of the older girls with them, and two men with rifles to stand guard. I watched them descend the steep slope, carefully picking their way down toward the canyon floor.
+I watched the sun track across the sky, impatient for evening to come.
 
-They came back safely before noon, the baskets heavy with water, everyone unharmed.
+"Can I go with them?" I asked my father as the afternoon shadows lengthened.
 
-"No sign of soldiers," my aunt reported to the elders. "The canyon's quiet."
+He looked at me for a long moment. I was young, maybe seven or eight, but I'd been on hunts before. I knew how to move quietly. How to read tracks. How to stay downwind.
 
-That afternoon, some of the children were allowed to play outside the cave. Not far—just on the ledge in front of the entrance, in the sunlight. We ran and chased and threw stones at targets, burning off energy we'd been holding in for too long.
+"Please," I said. "I can help. I won't make noise."
 
-It felt good to move. To be loud. To play like children instead of prisoners.
+My uncle spoke up before my father could refuse. "The boy should learn. And three sets of eyes are better than two."
 
-I climbed up on one of the boulders near the cave entrance and looked out at the canyon. The river far below, silver in the sunlight. The lava field we'd crossed, black and jagged. The canyon walls striped with color—red and white and gold.
+My father hesitated, then nodded slowly. "You do exactly as I say. No noise. No running ahead. If I signal you to freeze, you freeze. Understood?"
 
-"Careful," my father said. He was standing nearby, watching us play. "Not too close to the edge."
+"Yes, father."
 
-I backed away from the drop and jumped down from the boulder. My father looked different today. Less tense. Almost relaxed. Maybe he was starting to believe we really were safe here.
+As the sun touched the western canyon rim, we prepared to leave. My father and uncle each carried a bow and a quiver of arrows. My uncle gave me a small hunting bag to carry whatever small game we might find—rabbits, quail, anything.
 
-That evening we had another hot meal. My mother even managed to make mesquite cakes the way she used to, grinding the beans and mixing the flour with water, cooking them on hot stones until they were crispy on the outside and soft inside.
-
-They tasted like home. Like normal. Like maybe things would be all right.
-
-After we ate, I sat with my father at the cave entrance. The sun was setting, the canyon filling with that golden light that made everything look softer, kinder. A hawk circled high above, riding the thermals.
-
-"Father," I said, "when will we leave the cave?"
-
-He was quiet for a long moment. Then: "When it's safe."
-
-"But when will that be?"
-
-"I don't know, Hoomothya." He put his hand on my shoulder. "But we'll know when it's time. We'll feel it."
-
-I wanted to ask more—where we'd go, what we'd do, if we'd ever get our old life back. But I could see in his face that he didn't have answers. None of us did. We were living day by day, moment by moment, hoping.
-
-That night I slept without dreams. Deep, exhausted sleep, my body finally releasing some of the tension it had held for so many days.
-
-I didn't know it then, but it was the last peaceful sleep I would ever have.
-
-***
-
-The seventh day dawned cold and clear.
-
-I woke early, before most of the others, and lay watching the gray light grow at the cave's mouth. My father was already awake, standing at the entrance as always. My mother slept beside me, one arm wrapped around my youngest sister.
-
-Everything was quiet. Everything was normal. Everything was the same as it had been for the past six days.
-
-I had no reason to think this day would be different.
-
-I got up carefully, trying not to wake my sisters, and went to relieve myself at the waste area the men had dug near the back of the cave. When I came back, my mother was awake, rekindling our fire to make the morning meal.
-
-"Hoomothya," she said, "go down the slope and gather more firewood. We're running low."
-
-I nodded and headed for the cave entrance. My father was there with my uncle and two other men, talking in low voices. They looked serious, but they always looked serious in the mornings.
-
-"—can't be sure," my uncle was saying.
-
-"Better to assume they're still searching," my father replied.
-
-They stopped talking when I approached.
-
-"Going to gather wood," I said.
-
-My father nodded. "Don't go far. And come back quickly if you see anything strange."
+My mother pulled me close, her hands on my shoulders. "Be careful. Stay with your father. Come back safe."
 
 "I will."
 
-I started down the steep approach, my bare feet finding holds on the loose rock. The morning air was cold on my face. The canyon was still mostly in shadow, but the rim across from us was catching the first sunlight, glowing gold.
+She kissed my forehead, then let me go.
 
-Halfway down the slope I found a dead juniper branch and pulled it loose from the rocks. Further down, some dried manzanita. I gathered an armful, enough to keep me from having to make a second trip.
+We climbed up from the cave to the mesa above, moving quietly through the growing dusk. The air was cooling rapidly, that sharp cold that comes to the desert when the sun drops. My breath made small clouds.
 
-That's when I heard voices.
+Up on the mesa, the juniper and pinyon were dark shapes against the dimming sky. My father led us east, away from the canyon rim, toward a small valley where deer often fed on the brush in the evening.
 
-Not from the cave above. From below. From the direction of the lava field.
+We moved in silence, communicating only with hand signals. My uncle pointed: fresh tracks in the dust. Multiple deer, heading toward the valley. My father nodded and we followed.
 
-I froze.
+The light was fading fast now, that brief time between day and night when the world turns gray and soft. Perfect for hunting. The deer would be feeding, focused on finding food before full darkness came.
 
-The voices were speaking words I didn't understand. A language that was harsh, foreign. English.
+We crested a low rise and there they were: five mule deer browsing on mountain mahogany in the valley below. Three does, a yearling, and a young buck.
 
-I dropped the firewood and started to run back up toward the cave.
+My father and uncle moved into position, placing me behind them where I'd be out of the way. They nocked arrows. Waited for the right moment.
 
-But I was too slow.
+The buck lifted his head, testing the air.
 
-They came around the rocks below me, three of them, on foot—soldiers without their horses, moving quietly. They saw me the same instant I saw them.
+My uncle's bow creaked softly as he drew. The arrow flew.
 
-"Hey! Boy!"
+It took the buck in the chest, just behind the front leg. A good shot. Maybe perfect.
 
-I scrambled upward, trying to reach the cave, trying to warn everyone. My feet slipped on loose stone. I caught myself with my hands, kept climbing.
+But the deer didn't fall. It wheeled and ran, crashing through the brush, the other deer scattering in all directions.
 
-Heavy footsteps behind me. Getting closer. A hand grabbed my ankle and pulled.
+"Damn," my uncle breathed. "Hit him solid. He won't go far."
 
-I fell hard on the rocks, the air knocked out of my lungs. Before I could get up, before I could scream, strong hands lifted me, held me. I kicked and struggled but they were too strong.
+But as we watched, the deer disappeared over a rise, still running strong.
 
-"Got one!" the soldier shouted. To others I couldn't see. "Young boy, maybe eight years old!"
+My father looked at my uncle in the fading light. "We agreed. No chasing into the dark."
 
-More voices from below. More soldiers appearing. Too many. And then I saw him.
+"That arrow will kill him. Within the hour, maybe less. All we have to do is follow the blood trail. We can't let him die and let the coyotes have him. The group needs this meat."
 
-An officer, walking up the slope with the easy confidence of someone who knows he's in control. Taller than the others. Older. Gold bars on his shoulders catching the early light.
+They stood there in the growing darkness, the unspoken argument hanging between them. The need for caution. The equal need for food.
 
-He looked at me with eyes that were neither cruel nor kind. Just... assessing. Like I was something he'd found and was deciding whether to keep.
+Finally my father nodded. "We track him. Carefully. We find him, dress him, and head straight back. We don't go far."
 
-"What's your name, boy?" he asked in English.
+We followed the blood trail as darkness fell completely. Dark drops on stone. A smear on brush. The deer was bleeding, but not as heavily as my uncle had hoped. It was still moving.
 
-I didn't answer. Couldn't answer. Didn't speak his language. And even if I had, I wouldn't have told him.
+We tracked for an hour. Then another. The deer kept going, kept moving deeper into the broken country beyond the mesa, farther from the cave.
 
-He turned to one of the other soldiers. "Bring him. And keep him quiet. I don't want the others to know we're here yet."
+"He should have fallen by now," my father said quietly. His voice held worry.
 
-A hand clamped over my mouth. My arms were pinned to my sides. I struggled harder, desperate now, thinking of my family in the cave above. My mother and father and sisters. All the people sleeping or just waking, unsuspecting.
+"The arrow's in him," my uncle insisted. "He has to drop soon."
 
-I tried to scream a warning through the hand covering my mouth. Tried to bite it. Tried to make any sound that would carry up to the cave.
+And finally, he did.
 
-But they were already carrying me down the slope, away from my family, away from everything I knew. The last thing I saw before they took me around the rocks and out of sight was the dark mouth of the cave high above.
+We found the buck in a small clearing, collapsed on his side, his breathing labored and shallow. My uncle's arrow had gone through the lungs, but hadn't hit the heart. The deer had run farther than any of us expected.
 
-And then it was gone.
+My uncle dispatched him quickly with a knife. We stood in the darkness around the fallen deer, and I felt relief wash through me. We had meat. The group would eat.
 
-And I was alone with the soldiers.
+But we'd gone much farther than planned. And it was fully dark now, the moon not yet risen. We'd have to dress the deer here and carry it back in darkness.
 
-And I knew with terrible certainty that everything had just changed forever.
+My father and uncle worked quickly, field-dressing the carcass by feel as much as by sight. I held the hunting bag, ready to collect the liver and heart—precious organs we'd eat first.
 
-But I didn't know yet—couldn't imagine—just how forever that would be.
+The work took longer in the dark. Everything took longer. By the time they finished, we were all shivering. The temperature had dropped, that deep cold that comes to the desert on winter nights.
 
-December 22, 1872.
+"We need to move," my father said. "Get back to the cave while we can still find the way."
 
-Six days before the world ended.
+But my uncle was already gathering deadwood. "We're too cold. So is the meat. If we try to carry this back now, we'll freeze before we make it. We need to warm up first. Build a small fire, warm ourselves, then go."
+
+"A fire could be seen."
+
+"By who? The soldiers moved on days ago. And we're miles from where they were camped."
+
+My father looked into the darkness, toward where the cave lay hidden. Then back at us, shivering. At the deer, cold and heavy. He was weighing the risks.
+
+"A small fire," he said finally. "Just enough to warm us. Then we put it out and go. Agreed?"
+
+"Agreed."
+
+My uncle built the fire in a small depression, sheltered by rocks. He used juniper bark for tinder, dry twigs for kindling. The flames caught quickly, small and hungry, growing until we had a fire barely bigger than two hands.
+
+But it was warm. Gloriously warm.
+
+We huddled around it, holding our hands to the heat, feeling life return to our frozen fingers. My father kept watch while my uncle and I warmed ourselves. Then they switched, my uncle watching while my father thawed.
+
+"Just a few more minutes," my uncle said. "Then we'll go."
+
+But the cold had settled deep into our bones. A few minutes became longer. The fire felt too good. The warmth was too precious to leave.
+
+I don't remember falling asleep. One moment I was watching the flames dance, the next I was being shaken awake by rough hands.
+
+Not my father's hands. Not my uncle's.
+
+Soldiers' hands.
+
+I opened my eyes to see men standing around our fire—four, maybe five of them. White men in uniforms, rifles pointed down at us. More were emerging from the darkness beyond the firelight. Too many to count.
+
+My father and uncle were already awake, already surrounded. My father's hand had moved toward his knife but stopped when he saw how many guns were aimed at us.
+
+One of the soldiers kicked my uncle hard in the ribs. "On your feet. All of you."
+
+We didn't understand the words, but we understood the tone. We stood slowly, hands visible, trying to show we weren't a threat.
+
+An officer stepped into the firelight. Tall, with gold bars on his shoulders. He looked at us with cold assessment, then barked something in English.
+
+One of the soldiers grabbed my father, forcing his arms behind his back. Another did the same to my uncle.
+
+My uncle jerked away, trying to break free.
+
+The gunshot was impossibly loud in the night.
+
+My uncle staggered backward, his hand going to his chest. Dark blood welled between his fingers, black in the firelight.
+
+"No!" My father lunged toward him, but the soldiers held him back.
+
+My uncle fell to his knees, then onto his side. His eyes found mine across the firelight. Wide. Surprised. Already fading.
+
+He tried to speak. Blood bubbled at his lips. Then he went still.
+
+I couldn't breathe. Couldn't move. Couldn't do anything but stare at my uncle lying dead on the ground, the firelight flickering across his open eyes.
+
+The officer said something sharp in English. The soldier who'd shot my uncle lowered his rifle, looking shaken.
+
+Then the officer turned to look at my father and me. Studied us. Made a decision.
+
+He pointed at my father and said something. Two soldiers grabbed my father, forced him to his knees. One of them put a pistol to the back of my father's head.
+
+"No!" I screamed. "No, please—"
+
+The officer held up his hand. The soldier with the pistol waited.
+
+The officer crouched down so he was at my eye level. He spoke slowly, in English, words I didn't understand. Then he pointed at the darkness around us, made a sweeping gesture. Asked a question.
+
+I didn't understand.
+
+He asked again, more insistent this time. Pointed at the darkness. Made a gesture like people hiding, people camping. Asked his question again.
+
+He wanted to know where my people were. Where the cave was.
+
+I looked at my father. His face was hard, determined. He shook his head once. Don't tell.
+
+The officer saw. He said something to the soldier with the pistol.
+
+The soldier cocked the hammer.
+
+"Where?" the officer asked in accented Yavapai. One of the few words he knew. "Where people?"
+
+I looked at my uncle's body. At my father with a gun to his head. At the soldiers surrounding us, so many soldiers, all with weapons.
+
+I was seven years old. Maybe eight. I didn't understand politics or war or the weight of the choice I was making.
+
+I only knew I didn't want my father to die the way my uncle just had.
+
+"Cave," I whispered in Yavapai. Then, not knowing if they understood, I pointed. Toward where the canyon lay in the darkness. Toward where my mother and sisters and grandmother slept, unaware.
+
+My father made a sound like something breaking.
+
+The officer stood up. Smiled. Said something to his men.
+
+The gun came away from my father's head.
+
+I'd saved him. I'd done it. They wouldn't kill him now.
+
+But then two soldiers grabbed my father and dragged him away from the fire, into the darkness. I heard struggling. A muffled cry. Then a thud and silence.
+
+"Father!" I tried to run to him but hands held me back.
+
+When they brought him back into the firelight, he was unconscious, a dark bruise swelling on the side of his head. They tied his hands and feet and left him lying near the fire.
+
+The officer gestured to me, said something. A soldier picked me up. I struggled, bit, kicked, but it was useless.
+
+They tied my hands too. Sat me down beside my father and uncle's body.
+
+My father's eyes fluttered open. He looked at me, and in his eyes I saw something I'd never seen before.
+
+Disappointment.
+
+I'd betrayed them. I'd told the soldiers where to find them. I'd doomed everyone.
+
+"I'm sorry," I whispered. "I'm sorry, father. I didn't want them to kill you."
+
+He closed his eyes and turned his face away.
+
+The soldiers gathered around their officer, talking in low voices, making plans. Every few minutes one would look toward the darkness where I'd pointed, toward where the cave lay hidden.
+
+They knew now. They knew where to find my people.
+
+And it was my fault.
+
+I sat in the cold darkness beside my dead uncle and my unconscious father, my hands tied, my heart broken, understanding finally what I'd done.
+
+I'd saved my father's life.
+
+But I'd condemned everyone else.
+
+December 27, 1872.
+
+The night the world began to end.
+
+***
+
+**[End Chapter 6]**
+
+*Word count: ~3,800*
+*Scene location: Mesa above Salt River Canyon*
+*Approximate timeframe: December 27, 1872, one day before the massacre*
+*Age: Hoomothya approximately 7-8 years old*
+
+**Historical notes:**
+- The historical record indicates Mike Burns was captured shortly before the December 28, 1872 massacre
+- The exact circumstances of his capture are not fully documented in primary sources
+- This version dramatizes a plausible scenario: a desperate hunting trip, the fatal decision to build a fire, and a child's impossible choice under threat of death
+- Mike Burns later recounted witnessing the massacre; this narrative explores how he may have been captured and his role in revealing the cave's location—a burden of guilt he may have carried for life

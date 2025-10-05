@@ -4,7 +4,7 @@ I woke to gray light filtering into the cave and voices whispering urgently near
 
 For a moment I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back—the climb, the cave, the first night sleeping on hard stone with seventy-six people breathing in the darkness around me.
 
-My father was already gone from beside me, his sleeping mat empty. My mother was awake too, sitting up with my baby sister in her arms, her face tight as she looked toward the cave mouth where the men had gathered.
+My father was already gone from beside me, his sleeping mat empty. My mother was awake too, sitting up with my baby sister—her daughter—in her arms, her face tight as she looked toward the cave mouth where the men had gathered.
 
 "What is it?" I whispered.
 

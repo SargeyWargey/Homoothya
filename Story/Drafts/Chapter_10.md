@@ -1,201 +1,133 @@
 # Chapter 10: Skeleton Cave
 
-The gunfire started before I understood what was happening.
+I heard it from miles away.
 
-Sharp cracks echoing off stone. Multiplying. Becoming a roar that filled the canyon and the cave and the inside of my head until there was nothing else in the world but that sound.
+Bound on the mesa beside my father and my uncle's body, I heard the gunfire begin. Distant. Echoing off canyon walls. But unmistakable.
 
-Screaming. People screaming inside the cave. High voices. Women. Children.
+Sharp cracks at first. Then multiplying. Becoming a roar that seemed to fill the whole world.
 
-I tried to pull away but hands held me. Not rough. Just firm. Keeping me there on the ledge in front of the cave entrance.
+The two guards looked toward the canyon. One of them shifted uncomfortably.
 
-"Don't look," someone said. Hayes maybe. "Don't look, boy."
+My father's keening grew louder. That terrible sound, animal and wounded, that came from somewhere deep inside him.
 
-But I was already looking. The gag was out of my mouth now and I could have screamed but no sound came. My throat was closed. My whole body was frozen.
+I couldn't breathe. Couldn't move. My hands were still tied. All I could do was sit there on the cold ground and listen to my people dying.
 
-Smoke drifted out of the cave mouth. Acrid. Bitter. The smell of gunpowder mixing with something else. Something sweet and copper that made my stomach heave.
+The gunfire went on and on. How long? Minutes? Hours? I couldn't tell. Time had stopped meaning anything.
 
-The soldiers were firing into the cave. Standing in a line along the ledge and the slope above, aiming down into the opening, pulling triggers again and again. Reloading. Firing again.
+I imagined what was happening down there in the cave. The soldiers firing from above, bullets ricocheting off stone. My mother trying to shield my sisters. Grandmother praying. The children screaming.
 
-Some aimed at the roof. I didn't understand why at first. Then I saw the bullets spark off the stone ceiling and angle down. Ricocheting. Killing people who thought they were sheltered.
+All of them trapped with nowhere to run.
 
-There was nowhere to hide. The cave that was supposed to protect them had become a trap.
+All of them dying because I'd told the soldiers where to find them.
 
-A woman ran toward the cave entrance. I saw her for just a moment in the smoke. Dark hair streaming. Hands reaching out.
+My father's keening had stopped. He sat silent now, staring toward the canyon, tears running down his face. His mouth moved but no sound came out. Maybe he was praying. Maybe he was just broken.
 
-She fell.
+I wanted to die. Wanted the guards to shoot me, to end this, to stop me from having to hear what I'd caused.
 
-Something small moved near the cave mouth. A child. Maybe four years old. He stood there with his thumb in his mouth, looking out at the soldiers with wide eyes. Not crying. Just staring at the guns like he didn't understand what they were.
-
-A soldier lowered his rifle. Couldn't shoot a baby.
-
-But someone else did.
-
-The child crumpled.
-
-I made a sound then. Not a scream. Something animal. Something from deep in my chest that had no words.
-
-Hayes's hands tightened on my shoulders. "I'm sorry," he said. "God, I'm sorry."
-
-But he didn't stop it. None of them stopped it.
+But they didn't. They just stood there, looking uncomfortable, occasionally glancing toward the canyon where the gunfire continued.
 
 ***
 
-I don't know how long the shooting lasted. Time had no meaning anymore. There was only the sound of rifles and the screams that got quieter and quieter until they stopped.
+When the gunfire finally stopped, the silence was worse.
 
-Then there was just the ringing in my ears. And smoke. And the terrible smell.
+One of the guards looked sick. The other wouldn't meet my eyes.
 
-Captain Burns walked past me toward the cave entrance. He moved carefully, rifle ready, checking for anyone still alive who might fight back.
+We sat there for what felt like hours. The sun climbed higher. Birds sang. The world went on, indifferent.
 
-But there was no one left to fight.
+Then the soldiers started coming back.
 
-He looked into the cave for a long moment, his face unreadable. Then he turned and gestured to his men.
+They climbed up from the canyon in ones and twos, their faces grim. Some looked shell-shocked. One young soldier stumbled away and vomited.
 
-"Secure the area. Count the dead. Look for survivors."
+Captain Burns came last, his face drawn and gray.
 
-Survivors. As if there could be any.
+He walked over and looked down at my father and me for a long moment.
 
-Soldiers moved into the cave. I heard their boots on stone. Heard their voices, lower now, some of them sounding sick.
+"It's done," he said. His voice was flat. Empty. "Seventy-six dead. All women, children, and old men."
 
-"Jesus Christ."
+My father made that wounded sound again.
 
-"They're all women and children."
+Burns's eyes found mine. I saw something in them—not quite guilt, not quite pity. Something complicated and dark.
 
-"There's a baby here. Can't be more than—"
+"Cut their bonds," he told his men. "We're taking them with us."
 
-"Don't. Just don't."
+As they untied my hands, I wanted to ask if I could see them. See my mother. My sisters. My grandmother. Say goodbye.
 
-Burns looked down at me. His face was gray. Old. He opened his mouth like he was going to say something, then closed it again.
+But I couldn't form the words. And even if I could have, I don't think Burns would have let me.
 
-What was there to say?
+Maybe that was a mercy. Maybe seeing them would have broken something in me that couldn't be fixed.
 
-I pulled free from Hayes and ran toward the cave entrance.
+Or maybe I needed to see them. Needed that final goodbye. Needed to witness what my words had caused.
 
-"Boy, no—" someone called, but I didn't stop.
+I'll never know.
 
-I had to find them. Had to find my mother, my father, my grandfather, my little sister. Had to see if maybe, somehow, they were all right.
+They put us on horses. My father and me, the only survivors. My uncle's body thrown over a third horse.
 
-The cave was dark after the brightness outside. I stumbled over something and fell. My hands landed in something wet. Something warm.
+As we rode away from the canyon, I looked back once. Saw smoke drifting up from where the cave was. Saw the country I'd been born in.
 
-Blood. The floor was slick with it.
+All of it going on without them.
 
-I pushed myself up and kept going deeper into the cave. My eyes were adjusting. I could see shapes now in the dimness. Bodies. Everywhere.
+Somewhere down there in that cave, sealed behind boulders the soldiers had rolled across the entrance, lay my mother. My sisters. My grandmother. Everyone I'd ever known.
 
-Some I recognized. Old Nanchu who used to make my sister laugh. She was lying with her arms around two small children, protecting them even in death.
+Seventy-six people dead.
 
-One-Eye, the warrior who had danced at the fire last night. He was sprawled near the back of the cave, his body full of bullet holes.
+And two left alive to carry the weight of it.
 
-I stepped over them. Around them. Looking for my family.
+My father and I didn't speak as we rode. What was there to say?
 
-I found my grandfather first.
+He still wouldn't look at me. The disappointment in his eyes earlier had been replaced by something worse: emptiness. Like he'd used up all his emotions and had nothing left.
 
-He was sitting with his back against the cave wall like he had just decided to rest. But his eyes were open and empty and there was a dark stain spreading across his chest.
+Captain Burns rode at the head of the column. Every so often he would glance back at us, his face unreadable.
 
-His head was wrong. Part of it was gone, blown away by a bullet or a rock. I remembered what he'd told me about the heads in the rocks. About the spirits that guarded this place.
+After several hours, we stopped to rest the horses. Burns came over to where my father and I sat, still bound to our saddles.
 
-He'd been right. Death had been here all along, waiting.
+"What's your name, boy?" he asked in halting Yavapai.
 
-"Grandfather," I whispered. But he didn't answer. Would never answer again.
+I didn't answer. My name was Hoomothya. But that boy had died back in the canyon.
 
-My mother was nearby. I knew her by her dress, the one she'd been wearing when I was captured. She was face-down, one arm stretched out like she'd been reaching for something.
+"I'll call you Mike," he said finally, switching to English. "Mike Burns. After me."
 
-For someone.
-
-I knelt beside her and carefully turned her over. Her face was peaceful. Eyes closed. Almost like she was sleeping except for the blood at the corner of her mouth.
-
-"Mother," I said. My voice cracked. "Mother, please."
-
-But she was gone. They were all gone.
-
-I found my father near the cave entrance, where he must have been trying to defend the others. My aunt was beside him. My uncle was in the back corner, his body shielding two small forms that I couldn't look at too closely.
-
-My little sister. She was so small. Her favorite doll was still clutched in her hand.
-
-I sat down in the middle of them all—my family, my people, my world—and something inside me broke.
-
-Not loudly. Not with screaming or crying. Just a quiet shattering, like ice cracking on a winter stream.
-
-A sound came out of me. Low. Keening. The grief sound that Yavapai women made when someone died. I'd heard it before when old ones passed away. But never like this. Never for everyone at once.
-
-I rocked back and forth, making that sound, and I couldn't stop.
-
-***
-
-Hands lifted me up. Gentle hands. Hayes again, pulling me away from my mother's body.
-
-"Come on," he said quietly. "You can't stay here."
-
-But where could I go? There was nowhere left. No home. No family. Nothing.
-
-He carried me out of the cave into the daylight. The sun was fully up now. The sky was blue and cloudless. Birds were starting to sing in the canyon.
-
-The world was still beautiful. Still going on like nothing had happened.
-
-But everything had happened. Everything had ended.
-
-Burns was talking to his officers. Giving orders. Organizing the men.
-
-Some soldiers were gathering things from the cave. Weapons. Supplies. Evidence of the "hostile" band they'd destroyed.
-
-Others were rolling boulders to the cave entrance. Big stones from higher up the slope. They'd seal the cave, Burns said. Make it a tomb.
-
-Bury the evidence. Bury the dead.
-
-Bury my family and leave them here in the dark.
-
-"No," I tried to say, but my voice wouldn't work. "No, you can't—"
-
-But they could. They did.
-
-I watched them roll stone after stone until the cave entrance was blocked. Sealed. A mass grave for seventy-six people.
-
-Seventy-six. That's what the soldiers counted. Seventy-six dead.
-
-My mother. My father. My grandfather. My grandmother. My sister. My aunt. My uncle.
-
-Everyone.
-
-I was the only one who survived. The only one left to remember their names. The only one who could tell what happened here.
-
-The only one living to tell.
-
-***
-
-They took me with them when they left. Down the slope, across the lava field, up the canyon wall and away from that place.
-
-I looked back once. The cave was just a dark smudge on the cliff face now, the entrance hidden behind the boulders. You wouldn't know anything terrible had happened there unless you'd seen it.
-
-But I had seen it. I would always see it. Every time I closed my eyes.
-
-Burns rode beside me. I was on a horse again, tied to the saddle again, going wherever they decided to take me.
-
-"What's your name?" he asked. In English. I understood the words now—he'd asked me before.
-
-I didn't answer. My name was Hoomothya. But Hoomothya had died in that cave with everyone else.
-
-"I'll call you Mike," he said finally. "Mike Burns. After me."
-
-His name. The name of the man who'd kept me prisoner while my family was slaughtered. Who'd led this attack. Who'd given the orders that killed everyone I loved.
+His name. The name of the man who'd led the massacre. Who'd used the information I gave him to find and kill my people.
 
 That was my name now.
 
-I didn't protest. Didn't argue. What was the point?
+I didn't protest. What was the point?
 
-Hoomothya was dead. My family was dead. My people were dead.
+My father made a sound of disgust and turned his head away.
 
-I was just a ghost wearing a dead boy's skin. And ghosts don't need names.
+The column rode on through the afternoon. North, away from the canyon. Away from the cave. Away from everything.
 
-The column rode north through the winter sunshine, and I rode with them because I had nowhere else to go.
+As the sun began to set, painting the desert in gold and red, I looked back one last time. The canyon was just a dark line on the horizon now. You wouldn't know anything terrible had happened there.
 
-Behind us, the cave held its dead in silence.
+But I knew. I would always know.
 
-And inside me, I held the memory of their last moments. The sound of their screams. The sight of their bodies.
+The sound of the gunfire. The keening my father had made. The silence that followed.
 
-The weight of being the only one who survived to tell their story.
+The weight of being partly responsible for seventy-six deaths.
 
-I didn't know it then, but that weight would never lift. Not in all the years to come. Not even now, sixty-two years later, as I write these words.
+I was seven or eight years old, and I'd helped kill my people trying to save my father.
 
-I am the only one living to tell.
+And now I had to live with that. Had to carry it forward. Had to become whatever came next.
 
-And that burden is heavier than any stone they rolled across that cave entrance.
+Mike Burns, they called me now. The boy who survived. The only one living to tell.
 
-Heavier than anything else I would carry in my whole long life.
+But inside, where no one else could see, I was still Hoomothya.
+
+Still the boy who'd pointed toward the canyon and doomed everyone he loved.
+
+That boy would never die. Would never leave me. Would haunt every day of the long life ahead.
+
+***
+
+**[End Chapter 10]**
+
+*Word count: ~850*
+*Scene location: Mesa above Salt River Canyon, then riding north*
+*Approximate timeframe: December 28, 1872*
+*Age: Hoomothya approximately 7-8 years old*
+
+**Historical notes:**
+- This revised version maintains emotional distance from the actual massacre, showing Hoomothya hearing it from afar rather than witnessing it directly
+- The psychological impact remains devastating—perhaps even more so because his imagination fills in what he cannot see
+- Mike Burns's father's fate is historically uncertain; this version keeps him alive initially but separates him from Mike, creating additional emotional complexity
+- The burden of survivor's guilt and complicity under duress would have been crushing for a child—this trauma would shape the rest of Mike's life
+- Historical accounts vary on exact details of the massacre; this narrative honors the emotional truth of Mike's experience while acknowledging gaps in the historical record
