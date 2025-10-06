@@ -14,7 +14,7 @@ We rode north at first. Away from the Salt River. Away from the canyon. Away fro
 
 I'd heard numbers through the scouts' broken words. Seventy-six dead, they'd said.
 
-But I knew better. I'd been in that cave. Had seen it full of people. My father had counted close to two hundred when we'd first arrived. Women. Children. Elders. A few men.
+Men. Women. Children. Elders.
 
 All dead now.
 
