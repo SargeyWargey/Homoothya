@@ -64,7 +64,7 @@ The historical record provides limited information about Captain Burns's persona
 
 ## Legacy
 
-The historical record of Captain James Burns is largely defined by his actions in December 1872. He is remembered not for his broader military career, but for the pivotal and paradoxical role he played in the life of Mike Burns.
+The historical records of Captain James Burns is largely defined by his actions in December 1872. He is remembered not for his broader military career, but for the pivotal and paradoxical role he played in the life of Mike Burns.
 
 His legacy is a complicated one—a mix of violence and an unexpected act that forever linked his name to the story of the Skeleton Cave Massacre and its survivor. He died just two years after these events, in 1874, leaving Mike Burns to be passed to another military officer and eventually sent to Carlisle Indian Industrial School.
 
