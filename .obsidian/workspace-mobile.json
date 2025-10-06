@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Drafts/Chapter_02.md",
+                "file": "Planning/DUAL_NARRATIVE_RESTRUCTURE_SUMMARY.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter_02"
+              "title": "DUAL_NARRATIVE_RESTRUCTURE_SUMMARY"
             }
           }
         ]
@@ -86,7 +86,8 @@
         }
       }
     ],
-    "currentTab": 0
+    "currentTab": 0,
+    "pinned": true
   },
   "right": {
     "id": "b1a530efe2fd0f8d",
@@ -156,9 +157,13 @@
   },
   "active": "151844873364a93c",
   "lastOpenFiles": [
+    "Story/Drafts/Chapter_08.md",
+    "Planning/DUAL_NARRATIVE_RESTRUCTURE_SUMMARY.md",
+    "CLAUDE.md",
+    "Story/Drafts/Chapter_01.md",
+    "Story/Drafts/Chapter_04.md",
     "Story/Drafts/Chapter_03.md",
     "Story/Drafts/Chapter_02.md",
-    "Story/Drafts/Chapter_01.md",
     "Story/Drafts/Prologue.md"
   ]
 }
