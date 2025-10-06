@@ -178,11 +178,17 @@ He looked exhausted. Dust covered him from head to foot, and there were dark cir
 
 The men gathered immediately. The women pulled the children close but didn't send us away. We needed to hear this.
 
-"There are soldiers," my father said. "Many of them. Camped three days' walk from here, maybe less on horseback. I counted fifty men. Maybe more. They have Apache scouts with them. Pima scouts. They're organizing for something. Preparing."
+"There are soldiers," my father said. "Many of them. Camped three days' walk from here, maybe less on horseback. I counted more than a hundred soldiers. Maybe one hundred twenty. And they have Native scouts with them—many scouts. Pima. Maricopa. Maybe some Apache. As many scouts as soldiers, maybe more. They're organizing for something. Preparing."
 
 "For what?" someone asked, though we all knew.
 
 "For us."
+
+"Our own people," my uncle said bitterly. "Pima and Maricopa, working for the Army against us."
+
+"Old enemies," an elder said quietly. "The soldiers use our conflicts against us. Promise them payment, food, weapons. Turn tribe against tribe."
+
+My father nodded. "I saw them training together. The soldiers and the scouts. They're preparing to sweep the territory. Looking for every band, every camp."
 
 My mother's hand tightened on my shoulder.
 

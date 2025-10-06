@@ -1,195 +1,169 @@
-# Chapter 7: Prisoner
+# Chapter 7: Taken
 
-My father wouldn't look at me.
+The knife was cold against my throat.
 
-We sat on the cold ground as dawn approached, surrounded by soldiers preparing for something I didn't want to imagine. My father's hands and feet were still bound. So were mine. My uncle's body lay where he'd fallen, already stiffening in the cold.
+My uncle lay dead three feet away, his eyes still open, looking at nothing. The blood on the snow-dusted ground looked black in the firelight.
 
-I kept trying to catch my father's eye. Kept trying to make him see that I'd had no choice, that they would have killed him, that I'd only done what any child would do to save their parent.
+The Pima scout holding me said something I didn't understand. His hand was clamped over my mouth. I couldn't breathe. Couldn't scream. Could barely think through the terror.
 
-But he wouldn't look at me. Wouldn't acknowledge me. His face was stone.
+There were five or six soldiers around our small fire. White men with rifles and those leather-brimmed hats. Behind them, more Native scouts—Pima, maybe Maricopa. Enemies of my people who wore pieces of Army uniforms and carried Army rifles.
 
-Maybe he wished they had killed him. Maybe that would have been better than knowing his son had betrayed his people.
+They'd come out of the darkness while my uncle and I huddled by the fire. We'd been too cold, too exhausted from the hunt. The fire had been a mistake. The warmth had made us careless.
 
-The soldiers moved around us with purpose, checking weapons and equipment. The officer who'd questioned me—the one with gold bars on his shoulders—stood apart, looking toward the darkness where the canyon lay. Where I'd pointed.
+Now my uncle was dead and I was going to die too.
 
-Where my family slept.
+The tallest soldier stepped closer. He had markings on his shoulders that meant something I didn't understand. He crouched down and looked at my face. His eyes were tired. Old.
 
-"Captain Burns, sir." One of the soldiers approached him. "We ready to move out?"
+He said something in English. The Pima scout holding me responded, his knife still at my throat.
 
-So that was his name. Burns.
+The white officer shook his head and said something sharp. An order.
 
-The captain nodded. "Leave two men here with the prisoners. The rest come with me. We'll approach from above, get in position before first light. When the sun rises, we'll have them outlined against the cave entrance."
+The knife moved away from my throat but the scout's grip on me didn't loosen.
 
-The words were English, but I was starting to recognize some of them. "Cave." "Ready." "Move."
+The officer studied me for a long moment. Then he stood and spoke to his men. Orders. Decisions being made about my life while I trembled in the scout's grip.
 
-They were going. Going to the cave. Going to my people.
+One of the soldiers brought rope. They tied my hands in front of me. Not tight enough to cut off blood, but firm. Permanent.
 
-And I'd told them where to find them.
+I was a prisoner now.
 
-I made a sound, something between a sob and a moan. One of the soldiers looked at me but said nothing.
+They sat me down away from the fire, away from my uncle's body. Two soldiers stood guard while the others gathered around the officer, looking at something—a map, maybe. Planning something.
 
-Captain Burns walked over and crouched in front of me and my father. He studied us for a moment, his face unreadable in the pre-dawn darkness.
+Every few minutes one of them would glance at me. Calculating. Deciding what I was worth.
 
-"Keep them here until it's done," he said to the two soldiers he was leaving behind. "Don't hurt them unless they try to escape. The boy especially—he's just a child. He didn't know what he was doing."
+I didn't understand the words but I understood enough. They wanted something from me. Information. The cave. My people.
 
-But I had known. I'd known exactly what I was doing. I'd chosen my father's life over everyone else's.
+But I wouldn't tell them. I would be like my uncle—silent even with a knife at my throat. I would die before I betrayed my family.
 
-And I would have to live with that choice forever.
+The officer came over and crouched in front of me again. He said something in slow, careful English. Pointed at the darkness around us. Made a gesture like people hiding in a cave.
 
-The soldiers moved out, disappearing into the darkness. Twenty men, maybe more. All headed toward the cave. All because of what I'd told them.
+They already knew we were hiding somewhere. They just didn't know where.
 
-My father finally looked at me then. His eyes were empty. Hollow. Like everything inside him had died when I'd pointed toward the canyon.
+I shook my head. Said nothing.
 
-"I'm sorry," I whispered. "Father, I'm sorry. I didn't know what else to do."
+He sighed and stood. Spoke to the scouts. One of them—not the one who'd held the knife—came over and tried speaking in broken Yavapai.
 
-He looked away again.
+"Where. Your. People."
 
-The two guards stood a little distance off, rifles ready but not aimed at us. They talked quietly to each other, their voices low. Occasionally one would glance our way to make sure we hadn't moved.
+I looked at my uncle's body and said nothing.
 
-Where would we go? My father was bound. I was bound. My uncle was dead. And somewhere in the darkness, soldiers were approaching the cave where everyone I loved was sleeping.
+The scout grabbed my arm, squeezed hard enough to hurt. Asked again.
 
-The sky began to lighten. Gray first, then pearl, then gold touching the eastern horizon. Beautiful. The kind of morning my grandmother would have called blessed. The kind of morning that made you grateful to be alive.
+I stayed silent.
 
-But this morning was death approaching. This morning was the end of everything.
+This went on for a long time. Questions I didn't answer. Threats I didn't understand. The cold seeping deeper into my bones. My uncle's blood freezing on the ground.
 
-I thought about my mother waking up in the cave, wondering where I was. Had she noticed I hadn't come back from the hunt? Was she worried? Or did she think I was with my father and uncle, that we'd stayed out overnight because the hunting had taken longer than expected?
+I would not tell them. Would not betray my family. Would die first.
 
-I thought about my sisters. Little Nashta, who I'd promised to always protect. The baby who barely knew my name. Would they be frightened when the soldiers came? Would they understand what was happening?
+But then one of the Pima scouts drew his knife again. Put it back against my throat. And I felt the blade—cold, sharp, real.
 
-I thought about Grandmother, who'd said the stone would protect us. Who'd believed we'd be safe in the cave.
+I was eight years old. Maybe ten. Just a child.
 
-She'd been wrong. And it was my fault.
+And I was so afraid.
 
-Time crawled. The guards changed position, walking around to stay warm. One of them offered me water from his canteen. I drank because I was thirsty, even though I hated myself for accepting anything from them.
+The white officer said something. The scout with the knife answered. They argued—I could hear it in their tones even though I didn't know the words.
 
-My father refused the water. Refused to eat the hardtack they offered. Refused to acknowledge their existence or mine.
+Finally the officer made a sharp gesture. The knife came away from my throat.
 
-The sun rose. Full light now. The guards looked toward the canyon, toward where their comrades had gone. Waiting for something. Listening for something.
+But the scout still held me. Still waited for an answer.
 
-And then we heard it.
+And in that moment, with my uncle dead and the knife still close and the cold and the terror filling everything, I broke.
 
-Distant. Echoing off the canyon walls. But unmistakable.
+"Cave," I whispered in Yavapai. So quiet I could barely hear myself.
 
-Gunfire.
+The scout smiled. Said something to the officer in English.
 
-A few shots at first. Then more. Then a sustained roar that seemed to go on and on and on.
+The officer nodded. Asked a question.
 
-I tried to stand but my legs wouldn't hold me. I fell to my knees in the dirt, that terrible sound filling my ears, filling my chest, filling the whole world.
+The scout turned back to me. "Where. Cave."
 
-My father made a sound I'd never heard before. Animal. Wounded. A keening that came from somewhere deep inside him.
+I pointed. Toward where the canyon lay hidden in the darkness. Toward where my father and mother and sisters slept.
 
-The gunfire continued. And continued. And continued.
+Toward everyone I loved.
 
-How long does it take to kill seventy-six people trapped in a cave with nowhere to run? How many bullets? How many minutes?
+The officer spoke to his men. Two of them immediately moved off into the darkness—runners, going to bring the main force to converge on this area.
 
-Too long. Not long enough. An eternity. An instant.
+I'd saved my life.
 
-When the shooting finally stopped, the silence was worse than the sound had been.
+And doomed everyone else.
 
-One of the guards looked sick. The other wouldn't meet my eyes.
+But I wasn't done. The Pima scout grabbed me by the arm, hauled me to my feet. Spoke to the officer, gesturing at me, then at the darkness where I'd pointed.
 
-We waited.
+The officer nodded. Said something sharp in English.
 
-The sun climbed higher. The morning grew warm. Birds began to sing in the rocks around us, oblivious to what had just happened, to what we'd just heard.
+The scout turned to me. Gestures: pointing at me, then sweeping his hand toward the darkness. You. Show. Take us.
 
-It was mid-morning when the soldiers started coming back.
+Terror flooded through me. Pointing from a distance wasn't enough. They wanted me to lead them. To take them right to my family.
 
-They climbed up from the canyon in ones and twos, their faces grim. Some of them wouldn't look at each other. One young soldier stumbled away from the group and vomited behind a rock.
+I shook my head violently. "No. No, I told you. I showed you. No more."
 
-Captain Burns came last. His uniform was dusty, his face drawn. He looked like he'd aged ten years since I'd seen him before dawn.
+The scout backhanded me across the face. The world exploded in stars and pain. When my vision cleared, he had the knife out again.
 
-He walked over to where we sat and looked down at my father and me for a long moment.
+One of the scouts gestured at me—hands tracing a path, then pointing at his chest, then at me. Show us. Path. Then safe. Live.
 
-"It's done," he said quietly. In English, but I understood the tone. "Seventy-six dead. All women, children, and old men. Not a single warrior among them."
+I understood through their gestures. They were going to make me betray my family twice. Once with my words. Now with my feet.
 
-My father stared up at him with murder in his eyes.
+They untied my hands but the Pima scout kept hold of my arm.
 
-Burns turned to one of his officers. "Cut their bonds. We're taking them with us."
+I looked at my uncle's body. He'd stayed silent. Died with honor.
 
-"Sir, wouldn't it be easier to—"
+I'd told them where the cave was. And now I was going to lead them there.
 
-"We're taking them." Burns's voice was hard. Final. "The man and the boy both. That's an order."
+Hours passed in a nightmare. More soldiers arrived—a few at first, then more. They gathered in the darkness, quiet and efficient. Officers issued orders through the scouts. Weapons checked. Equipment readied.
 
-Someone cut the ropes on my wrists and ankles. I rubbed feeling back into my hands, but I felt nothing. Numb. Empty. Hollow.
+As dawn approached, a different officer arrived—more markings on his shoulders than the others. The scouts seemed to defer to him more. They spoke briefly, the new officer looking at me once.
 
-They untied my father too. For a moment I thought he might attack them, might go for their weapons and force them to kill him. But he didn't move. Just sat there, broken.
+He looked at me like I was a tool. Something to be used and discarded.
 
-"Get them on horses," Burns said. "We're moving out."
+They gave me a blanket as the temperature dropped toward dawn. I wrapped it around my shoulders but couldn't stop shivering. From cold. From knowing what came next.
 
-They lifted me onto a horse, tied me to the saddle. Did the same with my father on another horse. Someone threw my uncle's body over a third horse like cargo.
+I thought about running. But the scout's hand never left my arm. Thought about refusing. But the knife was always there, visible threat.
 
-The column formed up. Twenty soldiers, three prisoners—two living, one dead. And somewhere behind us in the canyon, seventy-six more dead left sealed in a stone tomb.
+I was eight years old. Just a child who wanted to live.
 
-My people. My family. My mother and sisters and grandmother and everyone I'd ever known.
+Even if living meant this.
 
-All dead because I'd been too young and too frightened and too human to stay silent when they threatened my father.
+As gray light touched the eastern sky, one of the scouts came over. Through gestures, he made me understand: I would show them the way. Walk. They follow. When close, I stop. Stay back. Won't be hurt.
 
-As we rode away from that place, I looked back once. Saw the canyon rim glowing in the midday sun. Saw the birds circling. Saw the country I'd been born in, the land my people had lived on since the beginning.
+I understood. They were offering me a fiction. A story I could tell myself. That I was forced. That I had no choice.
 
-All of it going on without us. Without them.
+But I'd already chosen. When I whispered "cave" instead of staying silent.
 
-The world didn't care that seventy-six people had died this morning. The sun still shone. The birds still sang. The rocks still stood eternal and indifferent.
+Now I just had to live with it.
 
-Only I cared. Only I remembered. Only I was left to carry the weight of what had happened.
+As the full light of morning came, I realized what would happen next.
 
-The only one living to tell.
+They would make me take them there. Make me guide them to the cave.
 
-And that burden was already crushing me.
+Make me lead them to my family.
 
-My father rode ahead of me. His back was straight, his head high. Proud even in defeat. But he still wouldn't look at me.
+The scout pulled me to my feet. Gestures: Time to go. Show the way.
 
-I didn't know if he ever would again.
+I looked one last time at my uncle's body. At the man who'd taught me to hunt. Who'd died with honor.
 
-Captain Burns rode at the front of the column, his shoulders set, his face forward. The man who'd led the massacre. The man who'd kept me prisoner while my family died. The man who'd decided to spare my father and me when he could have killed us with the others.
+Then I turned toward where the canyon lay in the distance.
 
-Why? Why spare us? Why burden us with survival when death would have been kinder?
+Toward my family.
 
-I didn't know then. I wouldn't know for years. Maybe I still don't know.
+Toward everyone I loved.
 
-But as we rode north through the winter sunshine, away from the canyon and the cave and the dead, I understood one thing:
+I was about to become their guide. Their betrayer.
 
-Hoomothya had died back there. The boy I'd been, the child who'd played and hunted and listened to Grandmother's stories—he was as dead as everyone else in that cave.
-
-What rode on this horse was something else. Something broken and hollow and wrong.
-
-A ghost.
-
-A witness.
-
-A traitor.
-
-The only one left to tell what happened. The only one who would spend the rest of his life explaining to strangers how his people died.
-
-How I helped kill them.
-
-That weight settled on my shoulders as we rode, and I felt it crushing me, pressing me down into the horse's back, into the earth, into darkness.
-
-But I didn't fall. I didn't break. Not yet.
-
-I just rode.
-
-And rode.
-
-And rode.
-
-Away from everything I'd been.
-
-Toward a future I couldn't imagine and didn't want.
-
-The only one living to tell.
 
 ***
 
 **[End Chapter 7]**
 
-*Word count: ~1,650*
-*Scene location: Mesa above Salt River Canyon, then riding north*
-*Approximate timeframe: December 28, 1872, the day of the massacre*
-*Age: Hoomothya approximately 7-8 years old*
+*Word count: ~1,200*
+*Scene location: Mesa above Salt River Canyon - capture site*
+*Approximate timeframe: December 27, 1872 (night before massacre)*
+*Age: Hoomothya approximately 8-10 years old*
 
 **Historical notes:**
-- This revised version reflects Hoomothya's direct role in revealing the cave's location under duress
-- The guilt and psychological burden of this choice would have been enormous for a young child
-- Mike Burns's relationship with his biological father (if he survived the massacre) is not documented in historical sources—this version dramatizes a plausible emotional aftermath
-- Captain James Burns did spare Mike and take him in as an adoptive son—the psychological complexity of this relationship, given Burns's role in the massacre, cannot be understated
-- The massacre's casualty count of 76 (or varying numbers in different accounts) consisted primarily of women, children, and elders—a fact that haunted Burns and others who participated
+- Mike Burns's testimony states Army scouts captured him and forced him to reveal the cave location
+- His uncle was killed during or near the time of capture
+- The scouts were likely Pima (Akimel O'odham) and Maricopa auxiliaries
+- Captain William H. Brown commanded the attack operation
+- Captain James Burns remained on the mesa and never went down to the cave site
+- Mike's burden of having revealed the cave location, even under threat of death, haunted him his entire life
+- He was approximately 7-10 years old—accounts vary
+- Hoomothya did not speak English at this time; all communication was through scouts using broken Yavapai and gestures
