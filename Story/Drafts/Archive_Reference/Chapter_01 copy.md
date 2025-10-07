@@ -8,9 +8,9 @@ I stood in the parlor of the quarters at Fort Whipple, trying not to scratch whe
 
 "Fork on the left, Mickie," she said gently. "Knife and spoon on the right."
 
-Mickie. That was what they called me now. Lieutenant Thomas had given me that name. "Mickie would be at least one Irish Indian in the land that would become Arizona!" he'd said, and the soldiers had laughed, and that was my name now. Before that I had another name, but I kept it locked away. In the daytime I was Mickie. Soon I would be Mike Burns.
+Mickie. That was what they called me now. Lieutenant Thomas had given me that name. "Mickie would be at least one Irish Indian in Arizona!" he'd said, and the soldiers had laughed, and that was my name now. Before that I had another name, but no one spoke it anymore. Sometimes I whispered it to myself at night, in the dark, to make sure I still remembered. But in the daytime I was Mickie. Soon I would be Mike Burns.
 
-I placed the fork on the left side of the plate. I focused on each lesson as if precision could anchor me. Here, what mattered was forks on the left and standing straight when the Captain entered the room and speaking English.
+I placed the fork on the left side of the plate. My hands knew how to do other things—how to weave yucca fiber, how to grind mesquite beans, how to track a deer by the bent grass—but those things did not matter here. Here, what mattered was forks on the left and standing straight when the Captain entered the room and speaking English.
 
 The English came quickly. I learned it the way you learn to swim when you are thrown in the river: you learn or you drown. Within months I could understand most of what was said to me. Within a year I could speak it well enough that the soldiers stopped talking about me as if I were not there.
 
@@ -26,27 +26,29 @@ Captain Burns was not cruel. I want to be clear about that, even though it makes
 
 And I did learn. I learned to read. I learned to write my new name: Mike Burns. The letters looked like tracks of birds in sand, meaningless scratches that somehow meant me. I practiced writing it until my hand cramped. Mike Burns. Mike Burns. Mike Burns. As if writing it enough times would make it true.
 
-At night, in the small room they gave me off the kitchen, I would lie awake and count my breaths. The Yavapai language pressed against the back of my throat, but I swallowed it down. Letting those words loose felt dangerous, so I trained myself to think in English until sleep finally came.
+At night, in the small room they gave me off the kitchen, I would lie awake and whisper words in the other language. The language I was not supposed to speak anymore. The words for mother, for father, for the mountain that has been chopped up, for the red earth, for the mesquite harvest. I said them very quietly, afraid someone would hear. Afraid I would forget them if I did not practice.
 
-I told myself that forgetting was safer. Remembering too clearly was the thing that frightened me most.
+Sometimes I could not remember if a word was right. Sometimes I would reach for a word and find only English there, as if the other language was being washed away like rain washing tracks from dirt.
+
+That frightened me more than anything.
 
 ---
 
 Captain Burns took me with him sometimes when he went about his duties at the fort. I would walk beside his horse, carrying his saddlebag, trying to match his stride. The soldiers would look at me. Some of them looked with pity. Some with curiosity. Some with the same look they gave the captured Apache scouts—a look that said I was a thing, not a person. A possession. A pet.
 
-"That's the Yavapai boy Burns took in," I heard one soldier say to another as we passed.
+"That's the boy from the cave," I heard one soldier say to another as we passed.
 
-"Poor little devil," the other replied. "Burns gave him a chance at civilized life."
+"Poor little devil," the other replied. "Burns took him in. Gave him a chance at civilized life."
 
 I kept my eyes down and kept walking. I had learned that was best. Keep your eyes down, speak when spoken to, do not cry no matter what you feel.
 
-They traded stories about how I had come to the fort, as if my life were a rumor to pass around after supper. I let their talk drift past me. Holding on to the present was the only way to keep from sliding backward.
+The cave. They spoke of it as if it were just a place, just something that happened. They did not understand. They could not understand. I did not have the words—not in English, not in any language—to make them understand what it meant to see everyone you love killed in a single morning. What it meant to be seven years old and realize that you are the only one left.
 
-Mrs. Burns said it was better to look forward, not back. "You're safe now," she would tell me, smoothing my hair. "You have a family now. You have a future."
+But I was not supposed to think about that. Mrs. Burns said it was better to look forward, not back. "You're safe now," she would tell me, smoothing my hair. "You have a family now. You have a future."
 
 I would nod and say, "Yes, ma'am," because that was what she needed to hear.
 
-At night I practiced the same discipline. If memories clawed at the edges of sleep, I pushed them away before morning. In the daylight I wore the uniform, followed the rules, and pretended the past was sealed shut.
+But at night I would dream of smoke and screaming and blood on stone walls. I would wake gasping, my throat raw as if I had been screaming, though I learned quickly to scream silently so I would not wake the household. In the morning I would wash my face and put on the scratchy blue uniform and be Mickie again, the bright Indian boy learning to be American.
 
 ---
 
@@ -54,13 +56,13 @@ In the spring of 1874, Captain Burns told me we were going to Ireland.
 
 "To meet my parents," he said. "They'll want to see the fine young man I've taken under my wing."
 
-I did not know what Ireland was. He showed me on a map—a green island across a vast ocean. So far from the land that would become Arizona it might as well have been the moon. I tried to imagine getting on a ship and sailing across all that water to a place where everyone would be white and Irish and I would be even more alone than I already was.
+I did not know what Ireland was. He showed me on a map—a green island across a vast ocean. So far from Arizona it might as well have been the moon. I tried to imagine getting on a ship and sailing across all that water to a place where everyone would be white and Irish and I would be even more alone than I already was.
 
 But Captain Burns was excited about it, so I tried to be excited too.
 
 "You'll like it there," he said. "Green hills, soft rain. Nothing like this desert."
 
-The desert. He said it as if it were a barren place, a hard place, a place to escape from. He did not know how the desert blooms after rain, how the saguaros hold water in their flesh, how the shade of a palo verde can save your life in summer. He did not know that the desert was home, that it was beautiful, that it had fed the Yavapai for thousands of years.
+The desert. He said it as if it were a barren place, a hard place, a place to escape from. He did not know how the desert blooms after rain, how the saguaros hold water in their flesh, how the shade of a palo verde can save your life in summer. He did not know that the desert was home, that it was beautiful, that it had fed my people for thousands of years.
 
 But I did not tell him that. I just nodded and said, "Yes, sir. It sounds wonderful."
 
@@ -78,7 +80,7 @@ Word came that he had died at a place called Navajo Springs. Fever, they said. O
 
 Mrs. Burns wept. Katie wept. I stood in the parlor in my blue wool uniform and did not know what to feel.
 
-This man who had taken me in, who had given me his name, who had taught me to read, who had promised to take me to Ireland—this man was dead.
+This man who had taken me in, who had given me his name, who had taught me to read, who had promised to take me to Ireland—this man who had led the soldiers on the morning of December 28, 1872, when everyone I loved was killed—this man was dead.
 
 Should I grieve for him? Should I feel relieved? Should I feel anything at all?
 
@@ -106,7 +108,7 @@ He said it without malice, almost cheerfully, as if becoming civilized were a ga
 
 But he also never asked me what I wanted. None of them did. They decided what was best for me—what name I should have, what language I should speak, what god I should worship, what future I should want. They decided, and I obeyed, because I was a child and alone and had no other choice.
 
-Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left the land that would become Arizona—left the red rocks and the saguaros and the mountains whose Yavapai names I was forgetting—and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
+Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left Arizona—left the red rocks and the saguaros and the mountains whose Yavapai names I was forgetting—and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
 
 But I adapted. That was what I was good at. Adapting. Surviving. Becoming whatever I needed to be.
 
@@ -118,15 +120,15 @@ I learned it all. I became fluent in their customs, their expectations, their go
 
 Almost.
 
-But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and rehearse the day's English lessons until exhaustion settled in. If a fragment of the Yavapai language rose up, I smothered it with another recitation. Wanting those sounds felt like walking toward a cliff.
+But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and test myself. The word for grandmother. The word for the river. The word for home. Sometimes the words came easily. Sometimes I had to search for them, digging through layers of English to find the other language buried beneath.
 
-I lived in terror of letting the past overtake me, of opening a door I could not close again.
+I lived in terror of the day when I would reach for a word and find nothing there. When the erasure would be complete.
 
 ---
 
 In the summer of 1876, I was eleven years old, and Lieutenant Bishop took me north with the Fifth Cavalry to fight the Sioux.
 
-I had been with the Army for nearly four years by then. I had seen campaigns against the Apache, the Yavapai, the Comanche. I had watched soldiers kill people who looked like me, who spoke languages I half-remembered, who fought to protect their land just as we Yavapai had fought.
+I had been with the Army for nearly four years by then. I had seen campaigns against the Apache, the Yavapai, the Comanche. I had watched soldiers kill people who looked like me, who spoke languages I half-remembered, who fought to protect their land just as my father had fought.
 
 And now I would go north and watch soldiers kill the Sioux, and I would carry Lieutenant Bishop's gear and cook his meals and clean his weapons, and I would be the good Indian boy who had learned to be civilized.
 
@@ -136,15 +138,15 @@ The Sioux were fighting to keep their land. Fighting to stay free. I understood 
 
 At the Slim Buttes fight, I watched soldiers kill a warrior named Yellow Hand. I watched them celebrate the victory. I kept my face blank and my eyes down and my thoughts locked away where no one could see them.
 
-That night, alone, I wept for the first time in years. I wept for Yellow Hand, for the Sioux, for the Yavapai and for every person who had been punished for wanting to stay free.
+That night, alone, I wept for the first time since Skeleton Cave. I wept for Yellow Hand, for the Sioux, for my father who had died fighting, for my grandfather and my baby sister and everyone who had been killed for wanting to stay free.
 
-I wept for the Yavapai boy they expected to forget.
+I wept for the boy I had been before the soldiers found me.
 
 And then I wiped my face and went back to being Mike Burns.
 
 ---
 
-They were teaching me to be American. They were teaching me that Yavapai ways were savage and wrong. They were teaching me that the language I spoke as a child was inferior to English, that the god I had prayed to was false, that the land I loved belonged to someone else now.
+They were teaching me to be American. They were teaching me that my people's ways were savage and wrong. They were teaching me that the language I spoke as a child was inferior to English, that the god I had prayed to was false, that the land I loved belonged to someone else now.
 
 They were teaching me to forget.
 
@@ -162,7 +164,7 @@ In early 1880, Lieutenant Bishop—now Captain Bishop—sat me down and told me 
 
 "Real school," he said. "Back East. A place called Carlisle, in Pennsylvania. They teach Indian children there. Make something of them."
 
-I was fifteen years old. I had been with the Army for seven years. I could read and write English better than many of the soldiers. I could ride, shoot, track, and survive. I had traveled thousands of miles across territories I never asked to see. I had watched Yavapai people hunted and killed and confined to reservations.
+I was fifteen years old. I had been with the Army for seven years. I could read and write English better than many of the soldiers. I could ride, shoot, track, and survive. I had traveled thousands of miles across territories I never asked to see. I had watched my people hunted and killed and confined to reservations.
 
 And now I was going to school to be "made into something."
 
@@ -172,7 +174,7 @@ But I did not ask. I just nodded and said, "Yes, sir."
 
 Captain Bishop looked at me with something like affection. "You're a good boy, Mickie," he said. "You're going to do well. You're going to make us proud."
 
-*Us.* The Army. The white men who had taken me in. The people who had erased the life I once belonged to and then raised me as their own.
+*Us.* The Army. The white men who had taken me in. The people who had killed my family and then raised me as their own.
 
 I would make them proud.
 
@@ -184,7 +186,7 @@ In September of 1880, Captain Bishop put me on a train heading east. We stood on
 
 "This is your chance," he said. "Your chance to make something of yourself."
 
-I wanted to tell him I had been something already. I had been a Yavapai boy with a name they refused to use, a boy who already belonged to a people and a place before the Army claimed me.
+I wanted to tell him I had been something already. I had been Hoomothya, son of a Yavapai father and mother, brother to a little boy and girl I had taken care of after our mother was killed. I had been a child who knew how to gather mesquite and track rabbits and sing the songs my grandmother taught me.
 
 I had been someone before the soldiers found me.
 
@@ -198,7 +200,7 @@ The train pulled away from the platform. Captain Bishop raised his hand in farew
 
 I was alone again.
 
-I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country that had swallowed the Yavapai whole.
+I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country that had swallowed my people whole.
 
 Somewhere in my chest, in the place I kept locked and silent, I felt something stir. Not quite anger. Not quite grief. Something older and harder and more patient than either.
 
@@ -214,7 +216,7 @@ First I had to survive. First I had to learn everything they wanted to teach me.
 
 The train rattled eastward. I was fifteen years old, going to a school designed to kill the Indian and save the man.
 
-They did not know that the Indian in me was already learning to hide where they could not reach him. They did not know that every word of English I learned was a tool I would someday use to tell the Yavapai story. They did not know that you could teach someone to speak like you, dress like you, pray like you—and still not own what lived inside their heart.
+They did not know that the Indian in me was already learning to hide where they could not reach him. They did not know that every word of English I learned was a tool I would someday use to tell my people's story. They did not know that you could teach someone to speak like you, dress like you, pray like you—and still not own what lived inside their heart.
 
 I would learn to be American. I would learn it perfectly.
 
@@ -230,8 +232,8 @@ The train carried me away from everything I had known, toward a future I could n
 
 I was Mike Burns, the bright Indian boy learning to be civilized.
 
-And buried deep inside, barely breathing, barely alive, was the Yavapai boy they thought they could erase.
+And buried deep inside, barely breathing, barely alive, was the boy who had another name.
 
-The boy who kept his silence.
+The boy who remembered everything.
 
 The only one left to tell.
