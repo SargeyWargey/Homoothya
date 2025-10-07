@@ -8,7 +8,7 @@ I stood in the parlor of the quarters at Fort Whipple, trying not to scratch whe
 
 "Fork on the left, Mickie," she said gently. "Knife and spoon on the right."
 
-Mickie. That was what they called me now. Lieutenant Thomas had given me that name. "Mickie would be at least one Irish Indian in the land that would become Arizona!" he'd said, and the soldiers had laughed, and that was my name now. Before that I had another name, but I kept it locked away. In the daytime I was Mickie. Soon I would be Mike Burns.
+Mickie. That was what they called me now. Lieutenant Thomas had written Mike Burns in the ledger and then given me that nickname. "Mickie would be at least one Irish Indian in the land that would become Arizona!" he'd said, and the soldiers had laughed, and that was what they shouted across parade grounds and kitchens. Before that I had another name, but I kept it locked away.
 
 I placed the fork on the left side of the plate. I focused on each lesson as if precision could anchor me. Here, what mattered was forks on the left and standing straight when the Captain entered the room and speaking English.
 
@@ -24,11 +24,11 @@ Captain Burns was not cruel. I want to be clear about that, even though it makes
 
 "Try again," he would say. "You're a bright boy. You can learn this."
 
-And I did learn. I learned to read. I learned to write my new name: Mike Burns. The letters looked like tracks of birds in sand, meaningless scratches that somehow meant me. I practiced writing it until my hand cramped. Mike Burns. Mike Burns. Mike Burns. As if writing it enough times would make it true.
+And I did learn. I learned to read. I learned to write the name they had given me: Mike Burns. The letters looked like tracks of birds in sand, meaningless scratches that somehow meant me. I practiced writing it until my hand cramped. Mike Burns. Mike Burns. Mike Burns. As if writing it enough times would make it true.
 
-At night, in the small room they gave me off the kitchen, I would lie awake and count my breaths. The Yavapai language pressed against the back of my throat, but I swallowed it down. Letting those words loose felt dangerous, so I trained myself to think in English until sleep finally came.
+At night, in the small room they gave me off the kitchen, I would lie awake and try to remember the Yavapai language of my past. I whispered the words for mother, for father, for the mountain that has been chopped up, for the red earth, for the mesquite harvest. I said them so quietly that even I could barely hear them, afraid someone might be listening.
 
-I told myself that forgetting was safer. Remembering too clearly was the thing that frightened me most.
+Sometimes the words came easily. Sometimes they slipped away and I chased them, repeating them until they stayed. Letting them fade frightened me more than anything.
 
 ---
 
@@ -106,7 +106,7 @@ He said it without malice, almost cheerfully, as if becoming civilized were a ga
 
 But he also never asked me what I wanted. None of them did. They decided what was best for me—what name I should have, what language I should speak, what god I should worship, what future I should want. They decided, and I obeyed, because I was a child and alone and had no other choice.
 
-Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left the land that would become Arizona—left the red rocks and the saguaros and the mountains whose Yavapai names I was forgetting—and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
+Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left the land that would become Arizona—left the red rocks and the saguaros and the mountains whose Yavapai names I was trying not to forget, and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
 
 But I adapted. That was what I was good at. Adapting. Surviving. Becoming whatever I needed to be.
 
@@ -118,9 +118,9 @@ I learned it all. I became fluent in their customs, their expectations, their go
 
 Almost.
 
-But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and rehearse the day's English lessons until exhaustion settled in. If a fragment of the Yavapai language rose up, I smothered it with another recitation. Wanting those sounds felt like walking toward a cliff.
+But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and test myself. The Yavapai words for grandmother, for the river, for home—I repeated them under my breath until exhaustion settled in. If I stumbled, I began again, determined not to let them vanish.
 
-I lived in terror of letting the past overtake me, of opening a door I could not close again.
+I lived in terror of the day when I would reach for a word and find nothing there, when the Yavapai language would be gone and I would have nothing left to hold.
 
 ---
 
