@@ -15,7 +15,7 @@ These chapters were written based on an earlier outline structure before the pro
   - Cultural details and research integration
 
 ## Current Outline
-The definitive outline is now: `/Story/Outlines/Chronological_Outline_v2.md`
+The definitive outline is now: `/Story/Outlines/Outline.md`
 
 New chapters will be written based on this v2 structure, which features:
 - Act I: Mike's life as servant (no reveal he was Hoomothya)
