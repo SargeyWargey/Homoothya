@@ -1,6 +1,6 @@
 # Chronological Chapter Outline: The Life of Mike Burns (Hoomothya)
 
-**Novel Structure**: Prologue + 30 Chapters + Epilogue = ~82,500 words
+**Novel Structure**: Prologue + 31 Chapters + Epilogue = ~85,000 words
 **Target**: ~2,500 words per chapter (flexible)
 
 ---
@@ -11,15 +11,15 @@
 
 **Structure**:
 - **Prologue**: 1934, Mike begins writing at Fort McDowell
-- **Act I (Chapters 1-8)**: Mike's life as servant through old age (1873-1934) - **NO mention he was Hoomothya**
-- **Act II (Chapters 9-19)**: Mike writing "Hoomothya's story" in third person (mysterious connection)
-- **CHAPTER 20**: **THE REVEAL** - Mike was Hoomothya all along
-- **Act III (Chapters 21-30)**: Publication attempts, death, posthumous triumph
+- **Act I (Chapters 1-9)**: Mike's life as servant through old age (1873-1934) - **NO mention he was Hoomothya**
+- **Act II (Chapters 10-20)**: Mike writing "Hoomothya's story" in third person (mysterious connection)
+- **CHAPTER 21**: **THE REVEAL** - Mike was Hoomothya all along
+- **Act III (Chapters 22-31)**: Publication attempts, death, posthumous triumph
 - **Epilogue**: Present day, legacy affirmed
 
 **The Mystery**: Readers wonder throughout Acts I & II: Who is Hoomothya? How does Mike know his story so intimately? Why does he care so much about this boy?
 
-**The Reveal**: Chapter 20 - devastating realization that Mike Burns IS Hoomothya.
+**The Reveal**: Chapter 21 - devastating realization that Mike Burns IS Hoomothya.
 
 ---
 
@@ -45,7 +45,7 @@ DETERMINATION + URGENCY + CULTURAL RECLAMATION
 
 ---
 
-## ACT I: MIKE BURNS'S LIFE (Chapters 1-8)
+## ACT I: MIKE BURNS'S LIFE (Chapters 1-9)
 ### Mike's life as servant through old age - NO REVEAL
 
 **CRITICAL**: Mike tells his story starting from his time as Captain Burns's servant, never mentioning his Yavapai childhood or the name Hoomothya. Readers wonder: What happened before? Why won't he talk about it?
@@ -65,11 +65,13 @@ Mike's story begins as servant to Captain Burns. **He does NOT explain how he ca
 ### Key Scenes
 1. **Servant Life**: Daily work for Burns household (no explanation of how he got there)
 2. **English Lessons**: Mastering new language
-3. **American Life**: Clothing, customs, erasure
-4. **Buried Self**: "Sometimes I whispered words in another language, alone" (what language?)
-5. **Burns's Treatment**: Moments of care mixed with subordination—confusing, guilt-inducing
-6. **Divided**: Two people in one body
-7. **Mystery**: Where did he come from? Why won't he talk about it?
+3. **Rio Verde Period** (1873-1875): Mike watches from military side as his people settle at Rio Verde, farm peacefully, then suffer disease outbreak (~1,500 die). Crook's promise: "as long as they lived"
+4. **March of Tears** (February 1875): Mike witnesses the broken promise—his people forced to march 180 miles to San Carlos. "Toilsome" 20-day journey, rations short, violence on East Verde River (30-35 Tontos killed). "Good-bye my homeland"
+5. **American Life**: Clothing, customs, erasure
+6. **Buried Self**: "Sometimes I whispered words in another language, alone" (what language?)
+7. **Burns's Treatment**: Moments of care mixed with subordination—confusing, guilt-inducing
+8. **Divided**: Two people in one body
+9. **Mystery**: Where did he come from? Why won't he talk about it?
 
 ### Emotional Beat
 ADAPTATION + BURIED IDENTITY + MORAL CONFUSION + MYSTERY (Who was he before?)
@@ -164,7 +166,31 @@ BETRAYAL + CRYPTIC SHAME + MYSTERY (How does he know these skills? This people?)
 
 ---
 
-## CHAPTER 6: BETWEEN WORLDS
+## CHAPTER 6: CHEHATA
+
+**Time**: 1887-1888
+**POV**: First-person (Mike)
+**Location**: San Carlos Reservation
+**Word Count**: ~2,500 words
+
+### Plot Function
+After Army discharge, Mike meets Chehata (Hattie), daughter of prominent Tolkepaya leader. **Their courtship and marriage connect Mike to Yavapai community and cultural knowledge.** Through her family, Mike begins reclaiming the culture stolen from him. Foundation for future witness work.
+
+### Key Scenes
+1. **Meeting**: Mike doing odd jobs at San Carlos, sees Chehata
+2. **Attraction**: Her connection to Yavapai culture he lost; his education unusual
+3. **Her Father**: Prominent Tolkepaya leader—does he approve of this scout?
+4. **Courtship**: Building relationship, navigating reservation constraints
+5. **Marriage**: c. 1888, choosing partnership and future
+6. **Learning**: Chehata's family teaching Mike Yavapai language, customs, traditions he missed
+7. **Belonging**: First real connection to "his people" since childhood
+
+### Emotional Beat
+HOPE + CONNECTION + CULTURAL RECLAMATION + LOVE
+
+---
+
+## CHAPTER 7: BETWEEN WORLDS
 
 **Time**: 1889-1908 (the "lost years")
 **POV**: First-person (Mike)
@@ -172,21 +198,22 @@ BETRAYAL + CRYPTIC SHAME + MYSTERY (How does he know these skills? This people?)
 **Word Count**: ~2,500 words
 
 ### Plot Function
-After discharge, seeking belonging. **Mike tries to reconnect with "his people" but readers still don't know his exact origin.** Neither white nor fully accepted by Natives. Witness mission forming.
+After marriage, Mike and Chehata start family (six children). **Mike tries to reconnect with "his people" but readers still don't know his exact origin.** Neither white nor fully accepted by Natives. Witness mission forming. Chehata grounds him.
 
 ### Key Scenes
-1. **Discharge**: 1888, nowhere to go
+1. **Family Life**: Birth of children (Solomon, Carlos, Katie, Charlotte, Lula, Josie)
 2. **Seeking Community**: Returning to "his people" (unnamed)
 3. **Complicated Reception**: Some accept, some reject
-4. **Work and Life**: Jobs, survival, searching
-5. **Purpose Forming**: Must tell the story
+4. **Work and Life**: Jobs, survival, chopping wood for family
+5. **Cultural Education**: Learning from Chehata's elders alongside children
+6. **Purpose Forming**: Must tell the story
 
 ### Emotional Beat
-SEARCHING + ISOLATION + MISSION EMERGING
+SEARCHING + ISOLATION + FAMILY GROUNDING + MISSION EMERGING
 
 ---
 
-## CHAPTER 7: FIRST CITIZEN
+## CHAPTER 8: FIRST CITIZEN
 
 **Time**: July 14-15, 1908
 **POV**: First-person (Mike)
@@ -208,7 +235,7 @@ COMPLEX PRIDE + BITTER COST + ASSERTION
 
 ---
 
-## CHAPTER 8: COMING HOME TO WRITE
+## CHAPTER 9: COMING HOME TO WRITE
 
 **Time**: May 28, 1934
 **POV**: First-person (Mike, age 69)
@@ -230,14 +257,14 @@ HOMECOMING + MISSION SHIFT + MYSTERY INTENSIFIES (Why does Mike owe Hoomothya? H
 
 ---
 
-## ACT II: THE MANUSCRIPT - HOOMOTHYA'S STORY (Chapters 9-19)
+## ACT II: THE MANUSCRIPT - HOOMOTHYA'S STORY (Chapters 10-20)
 ### Mike writing Hoomothya's story in third person - mystery continues
 
 **CRITICAL**: These chapters are Mike's manuscript about Hoomothya, written in third person. Readers wonder: How does Mike know this intimate detail? What's the connection between Mike Burns and Hoomothya?
 
 ---
 
-## CHAPTER 9: HOOMOTHYA (Manuscript Chapter 1)
+## CHAPTER 10: HOOMOTHYA (Manuscript Chapter 1)
 
 **Time**: c. 1865-1870 (Hoomothya's early childhood)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -260,7 +287,7 @@ INNOCENCE + BELONGING + MYSTERY (How does Mike know this?)
 
 ---
 
-## CHAPTER 10: THE MESQUITE HARVEST (Manuscript Chapter 2)
+## CHAPTER 11: THE MESQUITE HARVEST (Manuscript Chapter 2)
 
 **Time**: Late spring/summer, c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -284,7 +311,7 @@ CULTURAL RICHNESS + GROWING MYSTERY (Mike's intimate knowledge puzzling)
 
 ---
 
-## CHAPTER 11: THE LESSONS (Manuscript Chapter 3)
+## CHAPTER 12: THE LESSONS (Manuscript Chapter 3)
 
 **Time**: c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -308,7 +335,7 @@ LEARNING + BITTERSWEET IRONY + CLUES EMERGING
 
 ---
 
-## CHAPTER 12: MOTHER'S DEATH (Manuscript Chapter 4)
+## CHAPTER 13: MOTHER'S DEATH (Manuscript Chapter 4)
 
 **Time**: Before December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -330,7 +357,7 @@ FIRST TRAUMA + CLUES MULTIPLYING (Same loss, same tragedy?)
 
 ---
 
-## CHAPTER 13: THE WHISPERS (Manuscript Chapter 5)
+## CHAPTER 14: THE WHISPERS (Manuscript Chapter 5)
 
 **Time**: Early December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -354,7 +381,7 @@ MOUNTING DREAD + MYSTERY DEEPENING (How does Mike know what Hoomothya felt?)
 
 ---
 
-## CHAPTER 14: THE CLIMB (Manuscript Chapter 6)
+## CHAPTER 15: THE CLIMB (Manuscript Chapter 6)
 
 **Time**: Mid-December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -378,7 +405,7 @@ FEAR + MYSTERY INTENSIFYING (Mike knows too much—what's the connection?)
 
 ---
 
-## CHAPTER 15: DECEMBER 22, 1872 (Manuscript Chapter 7)
+## CHAPTER 16: DECEMBER 22, 1872 (Manuscript Chapter 7)
 
 **Time**: December 22, 1872 (morning)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -400,7 +427,7 @@ TERROR + CLUES CONVERGING (Same date! Could they be...?)
 
 ---
 
-## CHAPTER 16: SIX DAYS (Manuscript Chapter 8)
+## CHAPTER 17: SIX DAYS (Manuscript Chapter 8)
 
 **Time**: December 22-27, 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -422,7 +449,7 @@ DREAD + REALIZATION DAWNING (Readers putting it together)
 
 ---
 
-## CHAPTER 17: DECEMBER 28, 1872 (Manuscript Chapter 9)
+## CHAPTER 18: DECEMBER 28, 1872 (Manuscript Chapter 9)
 
 **Time**: December 28, 1872 (massacre)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -444,7 +471,7 @@ HORROR + REALIZATION SOLIDIFYING (They are the same person!)
 
 ---
 
-## CHAPTER 18: BROUGHT TO BURNS (Manuscript Chapter 10)
+## CHAPTER 19: BROUGHT TO BURNS (Manuscript Chapter 10)
 
 **Time**: Late December 1872 - Early 1873
 **POV**: Third-person limited (Hoomothya)—manuscript
@@ -466,7 +493,7 @@ TRAUMA + IMPOSSIBLE RELATIONSHIP + REALIZATION COMPLETE (Mike = Hoomothya confir
 
 ---
 
-## CHAPTER 19: WRITING THROUGH PAIN (Mike Present - Interlude)
+## CHAPTER 20: WRITING THROUGH PAIN (Mike Present - Interlude)
 
 **Time**: June-July 1934, Fort McDowell
 **POV**: First-person (Mike, age 69)
@@ -474,7 +501,7 @@ TRAUMA + IMPOSSIBLE RELATIONSHIP + REALIZATION COMPLETE (Mike = Hoomothya confir
 **Word Count**: ~2,500 words
 
 ### Plot Function
-Break from manuscript. Mike reflects on writing Hoomothya's story. **Still hasn't explicitly said "I am Hoomothya" but readers are certain after Chapter 18's renaming scene.** Mike processes writing about his traumatic past in third person.
+Break from manuscript. Mike reflects on writing Hoomothya's story. **Still hasn't explicitly said "I am Hoomothya" but readers are certain after Chapter 19's renaming scene.** Mike processes writing about his traumatic past in third person.
 
 ### Key Scenes
 1. **Exhausted**: Writing about the massacre drained him
@@ -488,7 +515,7 @@ EXHAUSTION + NEAR-CONFESSION + DISSOCIATION EXPLAINED (but not fully revealed ye
 
 ---
 
-## CHAPTER 20: THE REVEAL - "I WAS HOOMOTHYA"
+## CHAPTER 21: THE REVEAL - "I WAS HOOMOTHYA"
 
 **Time**: July 1934, Fort McDowell
 **POV**: First-person (Mike)
@@ -519,14 +546,14 @@ DEVASTATING REVELATION + INTEGRATION + CATHARTIC TRUTH
 
 ---
 
-## ACT III: THE WITNESS (Chapters 21-30)
+## ACT III: THE WITNESS (Chapters 22-31)
 ### Publication journey, death, posthumous triumph - post-reveal
 
 **Note**: Readers now know Mike = Hoomothya. Act III shows his final mission: getting the truth published.
 
 ---
 
-## CHAPTER 21: THE LETTER (1910)
+## CHAPTER 22: THE LETTER (1910)
 
 **Time**: January 6, 1910
 **POV**: First-person (Mike)
@@ -548,7 +575,7 @@ HOPE + MISSION CLARITY + VULNERABILITY
 
 ---
 
-## CHAPTER 22: REJECTION
+## CHAPTER 23: REJECTION
 
 **Time**: 1910-1920s
 **POV**: First-person (Mike)
@@ -570,7 +597,7 @@ DISAPPOINTMENT + PERSISTENCE + DEFIANCE
 
 ---
 
-## CHAPTER 23: TWENTY-FOUR YEARS
+## CHAPTER 24: TWENTY-FOUR YEARS
 
 **Time**: 1910-1934
 **POV**: First-person (Mike)
@@ -592,7 +619,7 @@ QUIET PERSISTENCE + FAITH + DUTY
 
 ---
 
-## CHAPTER 24: COMPLETION
+## CHAPTER 25: COMPLETION
 
 **Time**: September 1934
 **POV**: First-person (Mike)
@@ -614,7 +641,7 @@ COMPLETION + PEACE + ACCEPTANCE
 
 ---
 
-## CHAPTER 25: AUTUMN
+## CHAPTER 26: AUTUMN
 
 **Time**: October-November 1934
 **POV**: First-person (Mike)
@@ -636,7 +663,7 @@ PEACE + COMPLETION + HOMECOMING
 
 ---
 
-## CHAPTER 26: NOVEMBER 26, 1934
+## CHAPTER 27: NOVEMBER 26, 1934
 
 **Time**: November 26, 1934
 **POV**: First-person → third-person at death
@@ -658,7 +685,7 @@ PEACE + INTEGRATION + RELEASE
 
 ---
 
-## CHAPTER 27: SILENCE (1934-2000s)
+## CHAPTER 28: SILENCE (1934-2000s)
 
 **Word Count**: ~2,500 words
 **POV**: Third-person omniscient
@@ -679,7 +706,7 @@ PATIENCE + PERSISTENCE + HOPE DEFERRED
 
 ---
 
-## CHAPTER 28: REDISCOVERY
+## CHAPTER 29: REDISCOVERY
 
 **Time**: 2000s-2010
 **POV**: Third-person (following scholars)
@@ -701,7 +728,7 @@ VINDICATION BEGINNING + TRUTH EMERGING
 
 ---
 
-## CHAPTER 29: THE SECOND BOOK
+## CHAPTER 30: THE SECOND BOOK
 
 **Time**: 2005-2012
 **POV**: Third-person
@@ -723,7 +750,7 @@ TRIUMPH + VINDICATION COMPLETE
 
 ---
 
-## CHAPTER 30: READERS
+## CHAPTER 31: READERS
 
 **Time**: 2010-present
 **POV**: Third-person omniscient
@@ -770,13 +797,13 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 ## CHAPTER COUNT & WORD COUNT SUMMARY
 
 **Prologue**: ~1,750 words
-**Act I (Chapters 1-8)**: Mike's Life as servant (no reveal) = 8 × 2,500 = 20,000 words
-**Act II (Chapters 9-19)**: Hoomothya Manuscript = 11 × 2,500 = 27,500 words
-**Chapter 20**: **THE REVEAL** = ~2,500 words
-**Act III (Chapters 21-30)**: Publication Journey = 10 × 2,500 = 25,000 words
+**Act I (Chapters 1-9)**: Mike's Life as servant (no reveal) = 9 × 2,500 = 22,500 words
+**Act II (Chapters 10-20)**: Hoomothya Manuscript = 11 × 2,500 = 27,500 words
+**Chapter 21**: **THE REVEAL** = ~2,500 words
+**Act III (Chapters 22-31)**: Publication Journey = 10 × 2,500 = 25,000 words
 **Epilogue**: ~1,750 words
 
-**TOTAL**: 1,750 + 20,000 + 27,500 + 2,500 + 25,000 + 1,750 = **78,500 words**
+**TOTAL**: 1,750 + 22,500 + 27,500 + 2,500 + 25,000 + 1,750 = **81,000 words**
 
 *Target is 87,500. Additional scenes or expansion may be needed to reach target.*
 
@@ -808,6 +835,7 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 - Tracking skills (Where did he learn?)
 - "My own people" (Which people?)
 - Guilt, survivor's guilt (Survivor of what?)
+- Marriage to Chehata connects him to Yavapai culture
 - December 22-28, 1872 dates may surface in memory fragments
 
 **Act II (Hoomothya manuscript)**:
@@ -819,11 +847,11 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 - Same survival—only one living
 
 **Accumulating Evidence**:
-- Chapter 12 (Mother's death): "Bitter vengeance"—Mike hinted at family killed
-- Chapter 15 (Capture): December 22—Brown capturing Hoomothya
-- Chapter 16 (Six days): Hoomothya's captivity experience
-- Chapter 17 (Massacre): Hoomothya witnessing Skeleton Cave
-- Chapter 18 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable
+- Chapter 13 (Mother's death): "Bitter vengeance"—Mike hinted at family killed
+- Chapter 16 (Capture): December 22—Brown capturing Hoomothya
+- Chapter 17 (Six days): Hoomothya's captivity experience
+- Chapter 18 (Massacre): Hoomothya witnessing Skeleton Cave
+- Chapter 19 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable
 
 ---
 
@@ -833,14 +861,14 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 1. **Prologue**: Intrigued—stories of Yavapai people to tell
 2. **Act I**: Engaged with Mike's struggle, wondering about his mysterious origins as servant
 3. **Act II**: Increasingly certain Mike = Hoomothya as clues pile up
-4. **Chapter 20**: Cathartic reveal—even if guessed, Mike saying it aloud is powerful
+4. **Chapter 21**: Cathartic reveal—even if guessed, Mike saying it aloud is powerful
 5. **Act III**: Understanding Mike's mission with full context
 6. **Epilogue**: Triumphant—truth survived, Mike's witness vindicated
 
 ### Mike's Arc
 1. **Act I**: Fragmented, carrying secret, dissociated from Hoomothya identity, mysterious origins
 2. **Act II**: Writing about "the boy" because he can't claim him as "I"
-3. **Chapter 20**: Integration—"I was Hoomothya. I am Hoomothya."
+3. **Chapter 21**: Integration—"I was Hoomothya. I am Hoomothya."
 4. **Act III**: Complete witness, both identities claimed, mission fulfilled
 5. **Death**: Peace, integration, truth recorded
 

@@ -45,12 +45,12 @@ Hall believed Arizona's history belonged to all its people:
 - Preserved material culture (tools, clothing, everyday objects)
 - Created archives that became foundation of Sharlot Hall Museum
 
-## The Mike Burns Connection: January 6, 1910
+## The Mike Burns Connection: 1910
 
 ### The Letter
 
-**Mike Burns contacted Sharlot Hall in 1910**, writing:
-> Seeking "a little history of the Apaches... including my own history"
+**Mike Burns contacted Sharlot Hall in 1910**, writing to introduce himself as:
+> "I am an Apache Indian" seeking help publishing his work
 
 **Context of the letter**:
 - Mike was ~45 years old
