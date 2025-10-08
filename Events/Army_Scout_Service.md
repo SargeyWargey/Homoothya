@@ -84,7 +84,7 @@ The most bitter irony: scouts who loyally served the U.S. Army were often treate
 **Context of His Service**:
 - Burns enlisted at approximately age 20 (1885), after 5 years at Carlisle
 - He was Yavapai, serving during Apache campaigns
-- Already culturally displaced (Skeleton Cave survivor, raised by Captain Burns, Carlisle educated)
+- Already culturally displaced (Raised by Captain Burns, Carlisle educated)
 - First enlistment overlapped with Highland University attendance (1885-1886)
 
 **Questions for Story Development**:

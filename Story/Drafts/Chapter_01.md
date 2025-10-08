@@ -148,7 +148,7 @@ They were teaching me to be American. They were teaching me that Yavapai ways we
 
 They were teaching me to forget.
 
-And I was learning. God help me, I was learning.
+And I was learning.
 
 But I was also learning something they did not intend to teach me. I was learning to watch, to listen, to remember. I was learning to carry two selves inside one body—the self they could see, and the self I kept hidden. I was learning that survival sometimes meant pretending to be what you were not.
 
@@ -184,9 +184,7 @@ In September of 1880, Captain Bishop put me on a train heading east. We stood on
 
 "This is your chance," he said. "Your chance to make something of yourself."
 
-I wanted to tell him I had been something already. I had been a Yavapai boy with a name they refused to use, a boy who already belonged to a people and a place before the Army claimed me.
-
-I had been someone before the soldiers found me.
+I wanted to tell him I had been something already. I had been a Yavapai.
 
 But I could not say any of that. The words were locked too deep, buried under too many years of Mike Burns.
 
@@ -198,40 +196,34 @@ The train pulled away from the platform. Captain Bishop raised his hand in farew
 
 I was alone again.
 
-I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country that had swallowed the Yavapai whole.
+I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country that had swallowed the my people whole.
 
 Somewhere in my chest, in the place I kept locked and silent, I felt something stir. Not quite anger. Not quite grief. Something older and harder and more patient than either.
 
 I did not have a name for it yet. But I would carry it with me to Carlisle, and to Kansas, and to every place I went afterward. I would carry it for the rest of my life.
 
-Someday, I thought, I will tell the truth about what happened. Someday I will speak the words I am not allowed to speak now. Someday I will write it all down—not in the way they want to hear it, but in the way it really was.
+Someday, I thought, I will tell the truth about what happened. Someday I will write it all down, not in the way they want to hear it, but in the way it really was.
 
 Someday.
 
 But not yet.
 
-First I had to survive. First I had to learn everything they wanted to teach me. First I had to become so fluent in their world that they would not suspect what I carried inside.
+First, I had to survive. First, I had to learn everything they wanted to teach me. First, I had to become so fluent in their world that they would not suspect what I carried inside.
 
 The train rattled eastward. I was fifteen years old, going to a school designed to kill the Indian and save the man.
 
-They did not know that the Indian in me was already learning to hide where they could not reach him. They did not know that every word of English I learned was a tool I would someday use to tell the Yavapai story. They did not know that you could teach someone to speak like you, dress like you, pray like you—and still not own what lived inside their heart.
+They did not know that every word of English I learned was a tool I would someday use to tell the Yavapai story. They did not know that you could teach someone to speak like you, dress like you, pray like you—and still not own what lived inside their heart.
 
 I would learn to be American. I would learn it perfectly.
 
 And then, someday, I would use everything they taught me to tell them what they did to us.
 
-That was my secret plan, formed on a train heading east, carried by a boy who had already survived the unsurvivable.
+That was my plan, formed on a train heading east, carried by a boy trying to survive.
 
 I would remember. I would learn. I would survive.
 
-And someday—though it would take forty more years—I would tell.
+And someday, though it would take forty more years, I would tell.
 
-The train carried me away from everything I had known, toward a future I could not imagine.
+The train carried me away from everything I had known, into a future I could not imagine.
 
-I was Mike Burns, the bright Indian boy learning to be civilized.
 
-And buried deep inside, barely breathing, barely alive, was the Yavapai boy they thought they could erase.
-
-The boy who kept his silence.
-
-The only one left to tell.
