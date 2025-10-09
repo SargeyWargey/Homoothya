@@ -1,9 +1,9 @@
 # Chronological Chapter Outline: The Life of Mike Burns (Hoomothya)
 
-**Novel Structure**: Prologue + 37 Chapters + Epilogue = ~100,500 words
+**Novel Structure**: Prologue + 40 Chapters + Epilogue = ~108,500 words
 **Target**: ~2,500-3,500 words per chapter (flexible)
 
-**LAST UPDATED**: Added Rio Verde Reservation period (Ch 1A), March of Tears (Ch 1B), expanded Chehata role (Ch 6, 7, throughout Act III), Dr. Carlos Montezuma storyline (Ch 7A, 7B, 23A, 23B), and enhanced family narrative throughout.
+**LAST UPDATED**: Added interlude framing Chapter 8 (return to present-day Mike before Rio Verde/March chapters), renumbered subsequent chapters, and retained expanded Rio Verde, March of Tears, Chehata, and Carlos Montezuma threads.
 
 ---
 
@@ -13,17 +13,17 @@
 
 **Structure**:
 - **Prologue**: 1934, Mike begins writing at Fort McDowell
-- **Act I (Chapters 1-13)**: Mike's life as servant through old age (1873-1934) - **NO mention he was Hoomothya** = 13 chapters total
-- **Act II (Chapters 14-24)**: Mike writing "Hoomothya's story" in third person (mysterious connection) = 11 chapters
-- **CHAPTER 25**: **THE REVEAL** - Mike was Hoomothya all along
-- **Act III (Chapters 26-37)**: Publication attempts, death, posthumous triumph = 12 chapters total
+- **Act I (Chapters 1-15)**: Mike's life as servant through old age (1873-1934) - **NO mention he was Hoomothya** = 15 chapters total
+- **Act II (Chapters 16-28)**: Mike writing "Hoomothya's story" in third person (mysterious connection) = 13 chapters
+- **CHAPTER 28**: **THE REVEAL** - Mike was Hoomothya all along
+- **Act III (Chapters 29-40)**: Publication attempts, death, posthumous triumph = 12 chapters total
 - **Epilogue**: Present day, legacy affirmed
 
-**Total**: 37 chapters + Prologue + Epilogue
+**Total**: 40 chapters + Prologue + Epilogue
 
 **The Mystery**: Readers wonder throughout Acts I & II: Who is Hoomothya? How does Mike know his story so intimately? Why does he care so much about this boy?
 
-**The Reveal**: Chapter 25 - devastating realization that Mike Burns IS Hoomothya.
+**The Reveal**: Chapter 28 - devastating realization that Mike Burns IS Hoomothya.
 
 ---
 
@@ -50,7 +50,7 @@ DETERMINATION + AVOIDANCE + PARTIAL TRUTH + MYSTERY
 
 ---
 
-## ACT I: MIKE BURNS'S LIFE (Chapters 1-14)
+## ACT I: MIKE BURNS'S LIFE (Chapters 1-15)
 ### Mike's partial life story and Carlos's intervention
 
 **CRITICAL**: Mike tells his story starting from his time as Captain Burns's servant, never mentioning his Yavapai childhood or the name Hoomothya. Readers wonder: What happened before? Why won't he talk about it? **Act I ends with Carlos Montezuma breaking through Mike's avoidance, pushing him to write "Hoomothya's story."**
@@ -83,70 +83,7 @@ ADAPTATION + BURIED IDENTITY + MORAL CONFUSION + MYSTERY (Who was he before?)
 
 ---
 
-## CHAPTER 2: THE PROMISE (Rio Verde Reservation)
-
-**Time**: 1873-1875 (ages 8-10)
-**POV**: First-person (Mike)
-**Location**: Camp Verde/Rio Verde Agency area
-**Word Count**: ~3,000 words
-
-### Plot Function
-Mike observes Rio Verde Reservation period from military side. **Crook's promise: "as long as they lived."** Mike watches "his people" (unexplained connection) settle, farm successfully, then suffer massive disease outbreak. First major broken promise Mike witnesses. Sets up pattern of betrayal.
-
-### Key Scenes
-1. **Crook's Promise** (April 1873): Mike hearing the general promise Yavapai/Tontos they can stay "as long as they lived" if they surrender
-2. **Settlement**: ~3,500 people gathered at Rio Verde—Mike watching from military side, unable to join them
-3. **Farming Success**: Mike sees them raise wheat, barley, corn—proving they can be "civilized"
-4. **Daily Rations**: Flour, sugar, coffee, beans, bacon, fresh beef issued—Mike helping distribute?
-5. **The Disease** (1873-1875): Massive outbreak kills ~1,500 people (nearly half)
-6. **Yavapai Belief**: Indians believe Dr. Josephus Williams poisoned them—Mike hears the whispers
-7. **Mike's Helplessness**: Watching "his people" die, unable to explain his connection or help them
-8. **Conflicts Brewing**: Tensions between Tontos and Apache Mojaves/Yumas (Tolkepaya)
-9. **False Hope**: Two years of believing the promise might hold
-
-### Emotional Beat
-WITNESSING BETRAYAL + HELPLESS OBSERVER + MYSTERY (Why does he care so much about these people?)
-
-### Notes
-**CRITICAL FOR MYSTERY**: Mike refers to watching "his people" or "the Yavapai" but never explains WHY he cares or his connection. Readers see his emotional investment but don't understand the source. First major clue that Mike has hidden Native identity.
-
----
-
-## CHAPTER 3: GOOD-BYE MY HOMELAND (March of Tears)
-
-**Time**: February 1875 (age 10)
-**POV**: First-person (Mike)
-**Location**: Rio Verde to San Carlos, 180-mile journey
-**Word Count**: ~3,000 words
-
-### Plot Function
-The forced march that broke Crook's promise. Mike witnesses/participates from military escort side. **"As long as they lived" becomes 2 years.** Second promise: "Return in 5-7 years"—also a lie. Violence erupts. Mike's heartbreak at displacement of "his people." His famous line: "Good-bye my homeland."
-
-### Key Scenes
-1. **The Order** (late February 1875): Crook breaks promise—all must leave for San Carlos
-2. **Second Promise**: "You can return in 5-7 years" (Mike knows it's a lie even at age 10)
-3. **Departure**: Mike watching ~2,000 people forced to leave Verde Valley
-4. **The Journey**: 20 days, toilsome, rough terrain, Mike traveling with military escort
-5. **Rations Short**: Government fails to provision adequately—people going hungry
-6. **East Verde Violence**: Conflict erupts between Tontos and Apache Yumas/Mojaves—30-35 Tontos killed
-7. **Al Sieber Wounded**: Chief of Scouts shot through stomach, lame for life—Mike witnesses this
-8. **Mike's Internal Conflict**: Traveling with the people forcing the march, watching "his people" suffer
-9. **Arrival at San Carlos**: "Thrown among a lot of people they did not know"
-10. **Mike's Grief**: "Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land."
-
-### Emotional Beat
-HEARTBREAK + WITNESSING SYSTEMATIC BETRAYAL + COMPLICITY + MYSTERY (Why does he call it "MY homeland"?)
-
-### Notes
-**CRITICAL FOR MYSTERY**:
-- Mike says "Good-bye MY homeland"—whose homeland? He's with the Army!
-- Readers should be asking: Why is this Army ward so emotionally devastated by Yavapai displacement?
-- Plant clues: Mike's unexplained grief, his use of "my people," "my homeland"
-- Show his impossible position: traveling with oppressors, mourning with the oppressed
-
----
-
-## CHAPTER 4: CARLISLE
+## CHAPTER 2: CARLISLE
 
 **Time**: September 1880 - 1885
 **POV**: First-person (Mike)
@@ -168,7 +105,7 @@ FURTHER ERASURE + POWER GAINED + MISSION FORMING
 
 ---
 
-## CHAPTER 5: HIGHLAND
+## CHAPTER 3: HIGHLAND
 
 **Time**: 1885-1886
 **POV**: First-person (Mike)
@@ -190,7 +127,7 @@ BRIEF HOPE + UNCERTAINTY + CROSSROADS
 
 ---
 
-## CHAPTER 6: THE CHOICE
+## CHAPTER 4: THE CHOICE
 
 **Time**: July 1885
 **POV**: First-person (Mike)
@@ -212,7 +149,7 @@ MORAL COMPROMISE + DESPERATE PRAGMATISM + CRYPTIC GUILT
 
 ---
 
-## CHAPTER 7: SCOUT SERVICE
+## CHAPTER 5: SCOUT SERVICE
 
 **Time**: 1885-1888 (both enlistments)
 **POV**: First-person (Mike)
@@ -234,7 +171,7 @@ BETRAYAL + CRYPTIC SHAME + MYSTERY (How does he know these skills? This people?)
 
 ---
 
-## CHAPTER 8: CHEHATA
+## CHAPTER 6: CHEHATA
 
 **Time**: 1887-1888
 **POV**: First-person (Mike)
@@ -271,7 +208,7 @@ HOPE + CONNECTION + CULTURAL RECLAMATION + LOVE + HEALING BEGINS
 
 ---
 
-## CHAPTER 9: FAMILY AND WITNESS
+## CHAPTER 7: FAMILY AND WITNESS
 
 **Time**: 1889-1905 (ages ~24-40)
 **POV**: First-person (Mike)
@@ -309,7 +246,102 @@ SEARCHING + FAMILY GROUNDING + CULTURAL HEALING + MISSION EMERGING + HOPE THROUG
 
 ---
 
-## CHAPTER 10: THE COUSIN (Dr. Carlos Montezuma - First Meeting)
+## CHAPTER 8: RIVER OF RETURN
+
+**Time**: 1905-1909 (ages ~40-44)
+**POV**: First-person (Mike)
+**Location**: Fort McDowell Reservation / Verde River
+**Word Count**: ~3,000 words
+
+### Plot Function
+Mike, Chehata, and their children settle permanently at Fort McDowell, rebuild the irrigation ditches, and organize the community's petitions while collecting elders' testimonies about Rio Verde and the forced march. The chapter bridges family life into communal witness, showing why Mike must now write the stories of promises and betrayal that shaped their return.
+
+### Key Scenes
+1. **Reviving the Canals**: Families clear irrigation ditches and reopen fields along the Verde.
+2. **Mediator Role**: Mike writes petitions, keeps duplicate records, and confronts agency officials with community demands.
+3. **Evening Story Circles**: Elders recount Crook's promise, the disease, and the death toll while Mike records every name.
+4. **March Mapping**: Survivors describe the March of Tears; Mike's children listen and make offerings.
+5. **Wassaja Newspapers**: News from Dr. Carlos Montezuma reaches camp, linking their struggle to wider advocacy.
+6. **Inspectors Questioned**: Federal visitors tour the thriving fields; Mike presents ledger evidence of competence.
+7. **Commitment to Write**: Guided by Chehata and the elders, Mike resolves to set down the Rio Verde and march histories next.
+
+### Emotional Beat
+COMMUNITY RECLAMATION + GROWING RESOLVE + LISTENING DUTY + GATHERING COURAGE
+
+### Notes
+- Highlights Mike's evolution from father and laborer to community historian.
+- Plants the Carlos Montezuma thread ahead of Chapter 11.
+- Provides an organic lead-in to Chapters 9 and 10, explaining why Mike now rewinds to tell those events in full.
+
+---
+
+## CHAPTER 9: THE PROMISE (Rio Verde Reservation)
+
+**Time**: 1873-1875 (ages 8-10)
+**POV**: First-person (Mike)
+**Location**: Camp Verde/Rio Verde Agency area
+**Word Count**: ~3,000 words
+
+### Plot Function
+Mike, still under Captain Burns's care at Camp Verde, pieces together the Rio Verde Reservation period from the barracks—letters, officer briefings, and conversations he overhears. **Crook's promise: "as long as they lived."** Though he learns the details secondhand, the images sear into him. Years later, after returning from Highland, he meets survivors whose grief confirms everything he heard, cementing this first major broken promise. Sets up pattern of betrayal he will carry for decades.
+
+### Key Scenes
+1. **Crook's Promise** (April 1873): Mike hearing the general promise Yavapai/Tontos they can stay "as long as they lived" if they surrender
+2. **Settlement**: ~3,500 people gathered at Rio Verde—Mike hearing about their progress through Burns's reports, unable to stand among them
+3. **Farming Success**: Mike is told they raise wheat, barley, corn—proving they can be "civilized"
+4. **Daily Rations**: Flour, sugar, coffee, beans, bacon, fresh beef issued—Mike helps tally provisions for Burns's household
+5. **The Disease** (1873-1875): Massive outbreak kills ~1,500 people (nearly half)
+6. **Yavapai Belief**: Indians believe Dr. Josephus Williams poisoned them—Mike hears the whispers in the officers' quarters
+7. **Mike's Helplessness**: Listening to "his people" die through secondhand accounts, unable to explain his connection or help them
+8. **Conflicts Brewing**: Tensions between Tontos and Apache Mojaves/Yumas (Tolkepaya)
+9. **Later Confirmation**: After Highland, Mike meets families still mourning the Rio Verde dead, validating the stories he heard as a boy
+10. **False Hope**: Two years of believing the promise might hold
+
+### Emotional Beat
+WITNESSING BETRAYAL + HELPLESS OBSERVER + MYSTERY (Why does he care so much about these people?)
+
+### Notes
+**CRITICAL FOR MYSTERY**: Mike refers to watching "his people" or "the Yavapai" but never explains WHY he cares or his connection. Readers see his emotional investment but don't understand the source. His vantage is the adopted ward in the Burns household, gathering accounts he cannot publicly claim as personal history, then later validating them in person after Highland. First major clue that Mike has hidden Native identity.
+
+---
+
+## CHAPTER 10: GOOD-BYE MY HOMELAND (March of Tears)
+
+**Time**: February 1875 (age 10)
+**POV**: First-person (Mike)
+**Location**: Rio Verde to San Carlos, 180-mile journey
+**Word Count**: ~3,000 words
+
+### Plot Function
+The forced march that broke Crook's promise. Mike, still under Captain Burns's guardianship and traveling as an Army officer's adopted son, rides with the escort yet stands apart from the soldiers. **"As long as they lived" becomes 2 years.** Second promise: "Return in 5-7 years"—also a lie. Violence erupts. Mike's heartbreak at displacement of "his people" deepens first through what he hears and sees on the trail, then later through the shattered families he meets after Highland. His famous line: "Good-bye my homeland."
+
+### Key Scenes
+1. **The Order** (late February 1875): Crook breaks promise—all must leave for San Carlos
+2. **Second Promise**: "You can return in 5-7 years" (Mike knows it's a lie even at age 10)
+3. **Departure**: Mike watching ~2,000 people forced to leave Verde Valley
+4. **The Journey**: 20 days, toilsome, rough terrain—Mike rides with the escort beside Burns, absorbing the officers' conversations and orders
+5. **Rations Short**: Government fails to provision adequately—people going hungry
+6. **East Verde Violence**: Conflict erupts between Tontos and Apache Yumas/Mojaves—30-35 Tontos killed
+7. **Al Sieber Wounded**: Chief of Scouts shot through stomach, lame for life—Mike witnesses this
+8. **Mike's Internal Conflict**: Traveling with the people forcing the march, watching "his people" suffer while expected to act like an obedient Army child
+9. **Arrival at San Carlos**: "Thrown among a lot of people they did not know"
+10. **Long Aftermath**: Years later, post-Highland, Mike listens to survivors describe starvation, disease, and the broken promise that never ended
+11. **Mike's Grief**: "Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land."
+
+### Emotional Beat
+HEARTBREAK + WITNESSING SYSTEMATIC BETRAYAL + COMPLICITY + MYSTERY (Why does he call it "MY homeland"?)
+
+### Notes
+**CRITICAL FOR MYSTERY**:
+- Mike says "Good-bye MY homeland"—whose homeland? He's with the Army!
+- Readers should be asking: Why is this Army ward so emotionally devastated by Yavapai displacement?
+- Plant clues: Mike's unexplained grief, his use of "my people," "my homeland"
+- Show his impossible position: traveling with oppressors, mourning with the oppressed
+- Emphasize that he carried these memories first as Burns's adopted son and later as a grown man hearing firsthand how the promise shattered every family he knew.
+
+---
+
+## CHAPTER 11: THE COUSIN (Dr. Carlos Montezuma - First Meeting)
 
 **Time**: Early 1900s (c. 1901-1903)
 **POV**: First-person (Mike)
@@ -345,7 +377,7 @@ REUNION + SHARED BURDEN + INSPIRATION + HOPE THROUGH ALLIANCE + AVOIDANCE
 
 ---
 
-## CHAPTER 11: THE LAND (Fort McDowell Reservation Fight)
+## CHAPTER 12: THE LAND (Fort McDowell Reservation Fight)
 
 **Time**: 1903-1905
 **POV**: First-person (Mike)
@@ -378,7 +410,7 @@ ADVOCACY + EFFECTIVENESS + FINDING VOICE + BITTERSWEET VICTORY
 
 ---
 
-## CHAPTER 12: FIRST CITIZEN
+## CHAPTER 13: FIRST CITIZEN
 
 **Time**: July 14-15, 1908
 **POV**: First-person (Mike)
@@ -400,7 +432,7 @@ COMPLEX PRIDE + BITTER COST + ASSERTION
 
 ---
 
-## CHAPTER 13: WRITING THE SAFE STORY
+## CHAPTER 14: WRITING THE SAFE STORY
 
 **Time**: 1910-1920s (focusing on initial writing attempts)
 **POV**: First-person (Mike)
@@ -426,7 +458,7 @@ AVOIDANCE + PARTIAL TRUTH + INTERNAL CONFLICT + INCOMPLETENESS
 
 ---
 
-## CHAPTER 14: CARLOS RETURNS (The Intervention - ACT I CLIMAX)
+## CHAPTER 15: CARLOS RETURNS (The Intervention - ACT I CLIMAX)
 
 **Time**: Early 1920s (c. 1920-1922, before Carlos's death in 1923)
 **POV**: First-person (Mike, age ~55-57)
@@ -469,14 +501,14 @@ BREAKTHROUGH + RESISTANCE BROKEN + PERMISSION GIVEN + SURVIVOR'S PACT + ACT I RE
 
 ---
 
-## ACT II: HOOMOTHYA'S STORY (Chapters 15-26)
+## ACT II: HOOMOTHYA'S STORY (Chapters 16-28)
 ### Mike writes Hoomothya's manuscript in third person; mystery deepens
 
-**CRITICAL**: After Carlos's intervention (Ch 14 - Act I climax), Mike writes Hoomothya's story in third person. Readers wonder: How does Mike know this intimate detail? What's the connection between Mike Burns and Hoomothya? **Act II builds mystery to breaking point, ends with THE REVEAL.**
+**CRITICAL**: After Carlos's intervention (Ch 15 - Act I climax), Mike writes Hoomothya's story in third person. Readers wonder: How does Mike know this intimate detail? What's the connection between Mike Burns and Hoomothya? **Act II builds mystery to breaking point, ends with THE REVEAL.**
 
 ---
 
-## CHAPTER 15: BEGINNING HOOMOTHYA'S STORY (ACT II OPENING)
+## CHAPTER 16: BEGINNING HOOMOTHYA'S STORY (ACT II OPENING)
 
 **Time**: Late 1922 to early 1923
 **POV**: First-person (Mike, age ~57-58)
@@ -510,7 +542,7 @@ BREAKTHROUGH + GRIEF AS FUEL + WRITING AS HEALING + URGENCY (Carlos dying) + ACT
 
 ---
 
-## CHAPTER 16: HOOMOTHYA (Manuscript Chapter 1)
+## CHAPTER 17: HOOMOTHYA (Manuscript Chapter 1)
 
 **Time**: c. 1865-1870 (Hoomothya's early childhood)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -533,7 +565,7 @@ INNOCENCE + BELONGING + MYSTERY (How does Mike know this?)
 
 ---
 
-## CHAPTER 15: THE MESQUITE HARVEST (Manuscript Chapter 2)
+## CHAPTER 18: THE MESQUITE HARVEST (Manuscript Chapter 2)
 
 **Time**: Late spring/summer, c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -557,7 +589,7 @@ CULTURAL RICHNESS + GROWING MYSTERY (Mike's intimate knowledge puzzling)
 
 ---
 
-## CHAPTER 16: THE LESSONS (Manuscript Chapter 3)
+## CHAPTER 19: THE LESSONS (Manuscript Chapter 3)
 
 **Time**: c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -581,7 +613,7 @@ LEARNING + BITTERSWEET IRONY + CLUES EMERGING
 
 ---
 
-## CHAPTER 17: MOTHER'S DEATH (Manuscript Chapter 4)
+## CHAPTER 20: MOTHER'S DEATH (Manuscript Chapter 4)
 
 **Time**: Before December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -603,7 +635,7 @@ FIRST TRAUMA + CLUES MULTIPLYING (Same loss, same tragedy?)
 
 ---
 
-## CHAPTER 18: THE WHISPERS (Manuscript Chapter 5)
+## CHAPTER 21: THE WHISPERS (Manuscript Chapter 5)
 
 **Time**: Early December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -627,7 +659,7 @@ MOUNTING DREAD + MYSTERY DEEPENING (How does Mike know what Hoomothya felt?)
 
 ---
 
-## CHAPTER 19: THE CLIMB (Manuscript Chapter 6)
+## CHAPTER 22: THE CLIMB (Manuscript Chapter 6)
 
 **Time**: Mid-December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -651,7 +683,7 @@ FEAR + MYSTERY INTENSIFYING (Mike knows too much—what's the connection?)
 
 ---
 
-## CHAPTER 20: DECEMBER 22, 1872 (Manuscript Chapter 7)
+## CHAPTER 23: DECEMBER 22, 1872 (Manuscript Chapter 7)
 
 **Time**: December 22, 1872 (morning)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -673,7 +705,7 @@ TERROR + CLUES CONVERGING (Same date! Could they be...?)
 
 ---
 
-## CHAPTER 21: SIX DAYS (Manuscript Chapter 8)
+## CHAPTER 24: SIX DAYS (Manuscript Chapter 8)
 
 **Time**: December 22-27, 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -695,7 +727,7 @@ DREAD + REALIZATION DAWNING (Readers putting it together)
 
 ---
 
-## CHAPTER 22: DECEMBER 28, 1872 (Manuscript Chapter 9)
+## CHAPTER 25: DECEMBER 28, 1872 (Manuscript Chapter 9)
 
 **Time**: December 28, 1872 (massacre)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -717,7 +749,7 @@ HORROR + REALIZATION SOLIDIFYING (They are the same person!)
 
 ---
 
-## CHAPTER 23: BROUGHT TO BURNS (Manuscript Chapter 10)
+## CHAPTER 26: BROUGHT TO BURNS (Manuscript Chapter 10)
 
 **Time**: Late December 1872 - Early 1873
 **POV**: Third-person limited (Hoomothya)—manuscript
@@ -739,7 +771,7 @@ TRAUMA + IMPOSSIBLE RELATIONSHIP + REALIZATION COMPLETE (Mike = Hoomothya confir
 
 ---
 
-## CHAPTER 24: WRITING THROUGH PAIN (Mike Present - Interlude)
+## CHAPTER 27: WRITING THROUGH PAIN (Mike Present - Interlude)
 
 **Time**: June-July 1934, Fort McDowell
 **POV**: First-person (Mike, age 69)
@@ -761,7 +793,7 @@ EXHAUSTION + NEAR-CONFESSION + DISSOCIATION EXPLAINED (but not fully revealed ye
 
 ---
 
-## CHAPTER 25: THE REVEAL - "I WAS HOOMOTHYA"
+## CHAPTER 28: THE REVEAL - "I WAS HOOMOTHYA"
 
 **Time**: July 1934, Fort McDowell
 **POV**: First-person (Mike)
@@ -792,14 +824,14 @@ DEVASTATING REVELATION + INTEGRATION + CATHARTIC TRUTH
 
 ---
 
-## ACT III: THE WITNESS (Chapters 26-37)
+## ACT III: THE WITNESS (Chapters 29-40)
 ### Publication journey, death, posthumous triumph - post-reveal
 
 **Note**: Readers now know Mike = Hoomothya. Act III shows his final mission: getting the truth published.
 
 ---
 
-## CHAPTER 26: THE LETTER (1910)
+## CHAPTER 29: THE LETTER (1910)
 
 **Time**: January 6, 1910
 **POV**: First-person (Mike)
@@ -821,7 +853,7 @@ HOPE + MISSION CLARITY + VULNERABILITY
 
 ---
 
-## CHAPTER 27: REJECTION
+## CHAPTER 30: REJECTION
 
 **Time**: 1910-1920s
 **POV**: First-person (Mike)
@@ -843,7 +875,7 @@ DISAPPOINTMENT + PERSISTENCE + DEFIANCE
 
 ---
 
-## CHAPTER 28: CARLOS'S RETURN (1923)
+## CHAPTER 31: CARLOS'S RETURN (1923)
 
 **Time**: Early 1923
 **POV**: First-person (Mike)
@@ -875,7 +907,7 @@ REUNION + MORTALITY + SHARED WITNESS + LOVE BETWEEN SURVIVORS
 
 ---
 
-## CHAPTER 29: THE BURIAL (January 31, 1923)
+## CHAPTER 32: THE BURIAL (January 31, 1923)
 
 **Time**: January 31, 1923
 **POV**: First-person (Mike)
@@ -906,7 +938,7 @@ GRIEF + LAST SURVIVOR + RENEWED DETERMINATION + MORTALITY AWARENESS
 
 ---
 
-## CHAPTER 30: TWENTY-FOUR YEARS
+## CHAPTER 33: TWENTY-FOUR YEARS
 
 **Time**: 1910-1934 (with focus on 1923-1934 post-Carlos)
 **POV**: First-person (Mike)
@@ -939,7 +971,7 @@ QUIET PERSISTENCE + FAITH + DUTY + PARTNERSHIP + FAMILY AS LEGACY
 
 ---
 
-## CHAPTER 31: COMPLETION
+## CHAPTER 34: COMPLETION
 
 **Time**: September 1934
 **POV**: First-person (Mike)
@@ -961,7 +993,7 @@ COMPLETION + PEACE + ACCEPTANCE
 
 ---
 
-## CHAPTER 32: AUTUMN
+## CHAPTER 35: AUTUMN
 
 **Time**: October-November 1934
 **POV**: First-person (Mike)
@@ -994,7 +1026,7 @@ PEACE + COMPLETION + HOMECOMING + PARTNERSHIP + GRATITUDE
 
 ---
 
-## CHAPTER 33: NOVEMBER 26, 1934
+## CHAPTER 36: NOVEMBER 26, 1934
 
 **Time**: November 26, 1934
 **POV**: First-person → third-person at death
@@ -1029,7 +1061,7 @@ PEACE + INTEGRATION + RELEASE + REUNION (with dead) + GRIEF (for living)
 
 ---
 
-## CHAPTER 34: SILENCE (1934-2000s)
+## CHAPTER 37: SILENCE (1934-2000s)
 
 **Word Count**: ~2,500 words
 **POV**: Third-person omniscient
@@ -1050,7 +1082,7 @@ PATIENCE + PERSISTENCE + HOPE DEFERRED
 
 ---
 
-## CHAPTER 35: REDISCOVERY
+## CHAPTER 38: REDISCOVERY
 
 **Time**: 2000s-2010
 **POV**: Third-person (following scholars)
@@ -1072,7 +1104,7 @@ VINDICATION BEGINNING + TRUTH EMERGING
 
 ---
 
-## CHAPTER 36: THE SECOND BOOK
+## CHAPTER 39: THE SECOND BOOK
 
 **Time**: 2005-2012
 **POV**: Third-person
@@ -1094,7 +1126,7 @@ TRIUMPH + VINDICATION COMPLETE
 
 ---
 
-## CHAPTER 37: READERS
+## CHAPTER 40: READERS
 
 **Time**: 2010-present
 **POV**: Third-person omniscient
@@ -1144,42 +1176,44 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 **Prologue**: ~1,750 words
 
-**Act I (Chapters 1-14)**: Mike's partial life story + Carlos's intervention
+**Act I (Chapters 1-15)**: Mike's partial life story + Carlos's intervention
 - Chapter 1: Learning to Be American (~2,500 words)
-- Chapter 2: The Promise (Rio Verde) (~3,000 words)
-- Chapter 3: Good-bye My Homeland (March of Tears) (~3,000 words)
-- Chapter 4: Carlisle (~2,500 words)
-- Chapter 5: Highland (~2,500 words)
-- Chapter 6: The Choice (~2,500 words)
-- Chapter 7: Scout Service (~2,500 words)
-- Chapter 8: Chehata (~3,500 words)
-- Chapter 9: Family and Witness (~3,500 words)
-- Chapter 10: The Cousin (Dr. Montezuma - First Meeting) (~3,000 words)
-- Chapter 11: The Land (Fort McDowell Fight) (~2,500 words)
-- Chapter 12: First Citizen (~2,500 words)
-- Chapter 13: Writing the Safe Story (~2,500 words)
-- **Chapter 14: Carlos Returns (The Intervention - ACT I CLIMAX)** (~3,500 words)
-**Act I Subtotal**: ~39,500 words (14 chapters)
+- Chapter 2: Carlisle (~2,500 words)
+- Chapter 3: Highland (~2,500 words)
+- Chapter 4: The Choice (~2,500 words)
+- Chapter 5: Scout Service (~2,500 words)
+- Chapter 6: Chehata (~3,500 words)
+- Chapter 7: Family and Witness (~3,500 words)
+- Chapter 8: Interlude - Return to the Page (~2,500 words)
+- Chapter 9: The Promise (Rio Verde Reservation) (~3,000 words)
+- Chapter 10: Good-bye My Homeland (March of Tears) (~3,000 words)
+- Chapter 11: The Cousin (Dr. Montezuma - First Meeting) (~3,000 words)
+- Chapter 12: The Land (Fort McDowell Fight) (~2,500 words)
+- Chapter 13: First Citizen (~2,500 words)
+- Chapter 14: Writing the Safe Story (~2,500 words)
+- **Chapter 15: Carlos Returns (The Intervention - ACT I CLIMAX)** (~3,500 words)
+**Act I Subtotal**: ~42,000 words (15 chapters)
 
-**Act II (Chapters 15-26)**: Hoomothya's Story + The Reveal
-- Chapter 15: Beginning Hoomothya's Story (ACT II OPENING) (~2,000 words)
-- Chapters 16-25: Hoomothya Manuscript (10 chapters × ~2,500) = ~25,000 words
-- **Chapter 26: THE REVEAL - "I Was Hoomothya"** (~2,500 words)
-**Act II Subtotal**: ~29,500 words (12 chapters)
+**Act II (Chapters 16-28)**: Hoomothya's Story + The Reveal
+- Chapter 16: Beginning Hoomothya's Story (ACT II OPENING) (~2,000 words)
+- Chapters 17-26: Hoomothya Manuscript (10 chapters × ~2,500) = ~25,000 words
+- Chapter 27: Writing Through Pain (Mike Present - Interlude) (~2,500 words)
+- **Chapter 28: THE REVEAL - "I Was Hoomothya"** (~2,500 words)
+**Act II Subtotal**: ~32,000 words (13 chapters)
 
-**Act III (Chapters 27-38)**: Carlos's death + Publication Journey
-- Chapter 26: The Letter (1910) (~2,500 words)
-- Chapter 27: Rejection (~2,500 words)
-- Chapter 28: Carlos's Return (1923) (~2,500 words)
-- Chapter 29: The Burial (~2,000 words)
-- Chapter 30: Twenty-Four Years (~3,000 words)
-- Chapter 31: Completion (~2,500 words)
-- Chapter 32: Autumn (~3,000 words)
-- Chapter 33: November 26, 1934 (~3,000 words)
-- Chapter 34: Silence (~2,500 words)
-- Chapter 35: Rediscovery (~2,500 words)
-- Chapter 36: The Second Book (~2,500 words)
-- Chapter 37: Readers (~2,500 words)
+**Act III (Chapters 29-40)**: Carlos's death + Publication Journey
+- Chapter 29: The Letter (1910) (~2,500 words)
+- Chapter 30: Rejection (~2,500 words)
+- Chapter 31: Carlos's Return (1923) (~2,500 words)
+- Chapter 32: The Burial (~2,000 words)
+- Chapter 33: Twenty-Four Years (~3,000 words)
+- Chapter 34: Completion (~2,500 words)
+- Chapter 35: Autumn (~3,000 words)
+- Chapter 36: November 26, 1934 (~3,000 words)
+- Chapter 37: Silence (~2,500 words)
+- Chapter 38: Rediscovery (~2,500 words)
+- Chapter 39: The Second Book (~2,500 words)
+- Chapter 40: Readers (~2,500 words)
 **Act III Subtotal**: ~31,000 words (12 chapters)
 
 **Epilogue**: ~1,750 words
@@ -1188,92 +1222,93 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 **TOTAL STRUCTURE**:
 - Prologue: 1,750 words
-- Act I (Chapters 1-14): 39,500 words
-- Act II (Chapters 15-26): 29,500 words (includes The Reveal as Ch 26)
-- Act III (Chapters 27-38): 31,000 words
+- Act I (Chapters 1-15): 42,000 words
+- Act II (Chapters 16-28): 32,000 words (includes The Reveal as Ch 28)
+- Act III (Chapters 29-40): 31,000 words
 - Epilogue: 1,750 words
 
-**GRAND TOTAL**: **~103,500 words** (38 chapters + Prologue + Epilogue)
+**GRAND TOTAL**: **~108,500 words** (40 chapters + Prologue + Epilogue)
 
-*Original target was 87,500 words. With the addition of Rio Verde, March of Tears, expanded Chehata role, **Carlos Montezuma intervention arc**, and enhanced family life, the novel has grown to approximately 103,500 words—well within the range for literary historical fiction (typically 90,000-110,000 words). The additional 16,000 words serve essential narrative functions that were previously missing.*
+*Original target was 87,500 words. With the addition of the Act I interlude that anchors Mike in the present before revisiting Rio Verde and the March, alongside the expanded Rio Verde, March of Tears, Chehata, and Carlos Montezuma threads, the novel sits at roughly 108,500 words—comfortably within the range for literary historical fiction (typically 90,000-110,000 words). The added material underlines Mike's witness mission and deepens emotional continuity between present-day framing and historical chapters.*
 
-**KEY STRUCTURAL IMPROVEMENT**: Carlos Montezuma now serves as the catalyst who breaks through Mike's avoidance (Act I climax, Ch 14), pushing him to write Hoomothya's story. This makes Act I's ending powerful, Act II's mystery deeper, and The Reveal (Ch 26) even more emotionally devastating.
+**KEY STRUCTURAL IMPROVEMENT**: Carlos Montezuma now serves as the catalyst who breaks through Mike's avoidance (Act I climax, Ch 15), with the new interlude showing Chehata reinforcing that call. Together they push Mike to write Hoomothya's story, making Act I's ending powerful, Act II's mystery deeper, and The Reveal (Ch 28) even more emotionally devastating.
 
 ---
 
 ## THE REVEAL STRUCTURE - KEY TO SUCCESS
 
 ### Building Mystery (Acts I & II)
-1. **Act I (Ch 1-13)**: Mike tells his story but SKIPS his Yavapai childhood—starts as servant to Captain Burns
-2. **Act I Climax (Ch 14)**: Carlos intervention—"What about Hoomothya? What about that boy?"—readers think it's someone else
-3. **Act II Opening (Ch 15)**: Mike begins writing "Hoomothya's story" in third person at Carlos's urging
-4. **Act II (Ch 16-25)**: Hoomothya manuscript unfolds—intimate detail puzzles readers. How does Mike know this?
-5. **Clues Accumulate**: Same events, same phrases, same tracking skills, same trauma, same dates
-6. **Readers Realize**: Alert readers figure it out before reveal
-7. **Chapter 26**: Mike finally admits the truth explicitly: "I was Hoomothya"
+1. **Act I (Ch 1-15)**: Mike tells his story but SKIPS his Yavapai childhood—starts as Captain Burns's servant, never names Hoomothya; the new interlude (Ch 8) shows how hard he works to bridge present-day Mike to those buried memories.
+2. **Act I Climax (Ch 15)**: Carlos intervenes—"What about Hoomothya? What about that boy?"—readers still think it's someone else.
+3. **Act II Opening (Ch 16)**: Mike begins writing "Hoomothya's story" in third person at Carlos's urging.
+4. **Act II (Ch 17-26)**: Hoomothya manuscript unfolds—intimate details pile up. How does Mike know this so well?
+5. **Clues Accumulate**: Same events, phrases, tracking skills, trauma, dates—yet Mike maintains third-person distance.
+6. **Readers Realize**: Alert readers piece it together before the reveal.
+7. **Chapter 28**: Mike finally admits the truth explicitly: "I was Hoomothya."
 
 ### Why This Works
-- **Mystery drives reading**: Who is Hoomothya? Why does Carlos care about "that boy"? How does Mike know his story?
-- **Carlos as misdirection**: Fellow survivor pushing Mike to write "another survivor's" story—readers don't realize Carlos knows the truth
-- **Clues satisfy**: Readers feel smart piecing it together
-- **Official reveal pays off**: Even if guessed, Mike's admission is cathartic—especially after Carlos helped him toward this moment
-- **Dissociation shown**: Writing in third person demonstrates trauma, not deception
-- **Integration**: Reveal is Mike finally claiming both identities—Carlos's gift to him
-- **Emotional power**: 50+ years of carrying this secret, Carlos dies helping Mike face it, Mike finally speaks truth aloud
+- **Mystery drives reading**: Who is Hoomothya? Why does Carlos care so deeply about "that boy"? How does Mike know his story?
+- **Carlos as misdirection**: Fellow survivor pushing Mike to write "another survivor's" story—readers don't realize he already knows the truth.
+- **Clues satisfy**: Readers feel smart piecing it together ahead of the reveal.
+- **Official reveal pays off**: Even if guessed, Mike's admission is cathartic—especially after Carlos helped him reach this moment.
+- **Dissociation shown**: Writing in third person demonstrates trauma, not deceit.
+- **Integration**: Reveal is Mike finally claiming both identities—Carlos's gift to him.
+- **Emotional power**: 50+ years of carrying this secret; Carlos dies helping Mike face it; Mike finally speaks truth aloud.
 
 ### Clues Planted Throughout
 
-**Act I (Mike's story, Ch 1-14)**:
-- Starts as servant to Burns, skips how he got there (Why?)
-- Hints at buried identity but never names it
-- "They killed my family" (Who? Which family?)
-- Tracking skills (Where did he learn?)
-- "My own people" (Which people?)
-- Guilt, survivor's guilt (Survivor of what?)
-- Marriage to Chehata connects him to Yavapai culture
-- December 22-28, 1872 dates may surface in memory fragments
-- **Carlos intervention (Ch 14)**: "What about Hoomothya? That boy deserves to be remembered."—readers think it's another child, another survivor
+**Act I (Mike's story, Ch 1-15)**:
+- Starts as servant to Burns, skips how he got there (Why?).
+- Hints at buried identity but never names it.
+- "They killed my family" (Who? Which family?).
+- Tracking skills (Where did he learn?).
+- "My own people" (Which people?).
+- Guilt, survivor's guilt (Survivor of what?).
+- Marriage to Chehata reconnects him to Yavapai culture.
+- Interlude (Ch 8) shows Chehata urging him while he still speaks in riddles about the past.
+- December 22-28, 1872 dates surface in memory fragments.
+- **Carlos intervention (Ch 15)**: "What about Hoomothya? That boy deserves to be remembered."—readers think it's another child, another survivor.
 - **Carlos's words**: "You are the only one living to tell"—tell WHAT? About whom?
 
-**Act II (Hoomothya manuscript, Ch 15-26)**:
-- **Mike's process (Ch 15)**: Writing in third person because he can't say "I"—Carlos dying nearby, urging him forward
-- Same dates as Mike's story (December 22-28, 1872)
-- Same captain (James Burns)
-- Same tracking skills learned
-- Same "bitter vengeance" phrase
-- Same massacre witnessed
-- Same survival—only one living
-- **Growing realization**: Every detail Mike "knows" about Hoomothya matches Mike's own experience
+**Act II (Hoomothya manuscript, Ch 16-28)**:
+- **Mike's process (Ch 16)**: Writing in third person because he can't say "I"—Carlos dying nearby, urging him forward.
+- Same dates as Mike's story (December 22-28, 1872).
+- Same captain (James Burns).
+- Same tracking skills learned.
+- Same "bitter vengeance" phrase.
+- Same massacre witnessed.
+- Same survival—only one living.
+- **Growing realization**: Every detail Mike "knows" about Hoomothya matches Mike's own experience.
 - **The question**: How does Mike know what Hoomothya felt, thought, experienced?
 
 **Accumulating Evidence**:
-- Chapter 17 (Mother's death): "Bitter vengeance"—Mike hinted at family killed
-- Chapter 20 (Capture): December 22—capturing Hoomothya
-- Chapter 21 (Six days): Hoomothya's captivity experience
-- Chapter 22 (Massacre): Hoomothya witnessing Skeleton Cave
-- Chapter 23 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable
+- Chapter 20 (Mother's Death): "Bitter vengeance"—Mike hinted at family killed.
+- Chapter 23 (Capture): December 22—capturing Hoomothya.
+- Chapter 24 (Six Days): Hoomothya's captivity experience.
+- Chapter 25 (Massacre): Hoomothya witnessing Skeleton Cave.
+- Chapter 26 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable.
 
 ---
 
 ## EMOTIONAL JOURNEY
 
 ### Reader Experience
-1. **Prologue**: Intrigued—Mike starting to write but avoiding something
-2. **Act I (Ch 1-13)**: Engaged with Mike's struggle, wondering about his mysterious origins
-3. **Act I Climax (Ch 14)**: Carlos intervention—"Who is Hoomothya? Why does this 'other boy' matter so much?"
-4. **Act II Opening (Ch 15)**: Mike begins Hoomothya manuscript—"How does he know this story so intimately?"
-5. **Act II (Ch 16-25)**: Increasingly certain Mike = Hoomothya as clues pile up, but waiting for confirmation
-6. **Chapter 26 Reveal**: Cathartic—Mike finally says "I was Hoomothya"—readers realize Carlos knew all along and was gently guiding Mike toward this integration
-7. **Act III**: Understanding Mike's mission with full context—including Carlos's role in making the manuscript possible
+1. **Prologue**: Intrigued—Mike starting to write but avoiding something.
+2. **Act I (Ch 1-15)**: Engaged with Mike's struggle, wondering about his mysterious origins.
+3. **Act I Climax (Ch 15)**: Carlos intervention—"Who is Hoomothya? Why does this 'other boy' matter so much?"
+4. **Act II Opening (Ch 16)**: Mike begins Hoomothya manuscript—"How does he know this story so intimately?"
+5. **Act II (Ch 17-26)**: Increasingly certain Mike = Hoomothya as clues pile up, but waiting for confirmation.
+6. **Chapter 28 Reveal**: Cathartic—Mike finally says "I was Hoomothya"—readers realize Carlos knew all along and was gently guiding Mike toward this integration.
+7. **Act III**: Understanding Mike's mission with full context—including Carlos's role in making the manuscript possible.
 
 ### Mike's Arc (with Carlos as Guide)
-1. **Prologue + Act I (Ch 1-13)**: Fragmented, carrying secret, dissociated from Hoomothya identity, writing only "safe" story
-2. **Act I Climax (Ch 14)**: Carlos breaks through resistance—"That boy deserves to be remembered"—permission to face trauma
-3. **Act II Opening (Ch 15)**: Writing about "the boy" because he can't claim him as "I"—Carlos dying nearby, encouraging
-4. **Act II (Ch 16-25)**: Manuscript unfolds in third person—distance necessary for survival
-5. **Chapter 26 Reveal**: Integration—"I was Hoomothya. I am Hoomothya."—Carlos's final gift bearing fruit
-6. **Act III (Ch 27+)**: Complete witness, both identities claimed, Carlos honored, mission fulfilled
-7. **Death**: Peace, integration, truth recorded—Carlos waiting for him
+1. **Prologue + Act I (Ch 1-15)**: Fragmented, carrying secret, dissociated from Hoomothya identity, writing only "safe" story.
+2. **Act I Climax (Ch 15)**: Carlos breaks through resistance—"That boy deserves to be remembered"—permission to face trauma.
+3. **Act II Opening (Ch 16)**: Writing about "the boy" because he can't claim him as "I"—Carlos dying nearby, encouraging.
+4. **Act II (Ch 17-26)**: Manuscript unfolds in third person—distance necessary for survival.
+5. **Chapter 28 Reveal**: Integration—"I was Hoomothya. I am Hoomothya."—Carlos's final gift bearing fruit.
+6. **Act III (Ch 29+)**: Complete witness, both identities claimed, Carlos honored, mission fulfilled.
+7. **Death**: Peace, integration, truth recorded—Carlos waiting for him.
 
 ---
 
@@ -1281,20 +1316,20 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 **Why Carlos as Catalyst Works Brilliantly**:
 
-1. **Survivor helping survivor**: Carlos (found under dead mother, age ~6) helps Mike (witnessed massacre, age 7-8) face shared trauma
-2. **He knows the truth**: Carlos already knows Mike = Hoomothya, but lets Mike arrive at integration in his own time
-3. **Permission giver**: "Write about him as someone else if you must"—validates Mike's need for distance
-4. **Misdirection for readers**: Readers think Carlos is pushing Mike to write about a DIFFERENT child/survivor
-5. **Emotional urgency**: Carlos dying (1920-1923) creates deadline—write before last fellow survivor is gone
-6. **Thematic perfect**: Education and platform (Carlos) + community and witness (Mike) = two paths, same mission
-7. **The reveal recontextualizes everything**: When Mike admits "I was Hoomothya," readers realize every word Carlos said was about MIKE, helping him toward wholeness
+1. **Survivor helping survivor**: Carlos (found under dead mother, age ~6) helps Mike (witnessed massacre, age 7-8) face shared trauma.
+2. **He knows the truth**: Carlos already knows Mike = Hoomothya, but lets Mike arrive at integration in his own time.
+3. **Permission giver**: "Write about him as someone else if you must"—validates Mike's need for distance.
+4. **Misdirection for readers**: Readers think Carlos is pushing Mike to write about a DIFFERENT child/survivor.
+5. **Emotional urgency**: Carlos dying (1920-1923) creates deadline—write before last fellow survivor is gone.
+6. **Thematic perfect**: Education and platform (Carlos) + community and witness (Mike) = two paths, same mission.
+7. **The reveal recontextualizes everything**: When Mike admits "I was Hoomothya," readers realize every word Carlos said was about MIKE, helping him toward wholeness.
 
 **Carlos's key lines that work as mystery clues**:
-- "What about Hoomothya? What about that boy?"—readers think: another child Carlos knows about
-- "You remember everything. That's your burden. And your power."—readers think: Mike witnessed something Carlos didn't
-- "You are the only one living to tell."—readers think: tell about others who died
-- "That boy deserves to be remembered."—readers think: someone else, someone Mike failed to save
-- **After reveal**: Readers realize Carlos meant Mike himself the whole time, gently guiding cousin toward self-reclamation
+- "What about Hoomothya? What about that boy?"—readers think: another child Carlos knows about.
+- "You remember everything. That's your burden. And your power."—readers think: Mike witnessed something Carlos didn't.
+- "You are the only one living to tell."—readers think: tell about others who died.
+- "That boy deserves to be remembered."—readers think: someone else, someone Mike failed to save.
+- **After reveal**: Readers realize Carlos meant Mike himself the whole time, gently guiding cousin toward self-reclamation.
 
 ---
 
