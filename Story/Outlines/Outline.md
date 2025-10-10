@@ -27,26 +27,44 @@
 
 ---
 
-## PROLOGUE: THE WITNESS (1934)
+## PROLOGUE: THE JOURNEY BACK (1920)
 
-**Time**: May 1934, Fort McDowell Indian Reservation
-**POV**: First-person (elderly Mike Burns, age 69)
-**Location**: Mike's home at Fort McDowell
+**Time**: 1920, Fort McDowell Indian Reservation
+**POV**: First-person (Mike Burns, age ~55)
+**Location**: Fort McDowell, Mike's home / outdoors with Carlos
 **Word Count**: ~1,750 words
 
 ### Plot Function
-Establish framing device. Mike begins writing, knowing death is near. **He starts by writing his life as Mike Burns—the servant, student, scout—but avoids his early childhood.** Sets up partial mission: preserve his experiences and stories of the Yavapai people.
+Establish framing device in a crucial transitional moment. Mike Burns and his cousin Dr. Carlos Montezuma—both Yavapai—are together at Fort McDowell, planning their return journey to a significant place from their past. **Clearly establish**: They are cousins. They are Yavapai. Both found different forms of success—Carlos became the first Native American male physician and fierce activist; Mike stayed close to the community, worked with his hands, built a family. **Mystery remains**: What place are they going to? Why this journey matters so deeply. Carlos is visiting, still healthy enough to travel. Mike has begun writing his story—working on his manuscript about his life as "Mike Burns," starting from his time as Captain Burns's servant. Carlos is supportive and encouraging about Mike's writing project.
 
 ### Key Scenes
-1. **Opening**: Mike at table, blank page, Fort McDowell morning
-2. **Starting Point**: "I will begin with my life as Captain Burns's servant" (deliberately skipping earlier years)
-3. **Avoidance**: Hesitation, resistance to writing about "before"—something he can't face yet
-4. **Stories of His People**: Cultural knowledge, histories learned from Chehata's family and Yavapai community
-5. **Mystery**: What is he avoiding? What happened before the Burns household?
-6. **Urgency**: Body failing, time running out, but emotional barriers remain
+1. **Opening Image**: Late afternoon light at Fort McDowell. Two Yavapai cousins (Mike and Carlos) sitting together—both still relatively healthy, in their mid-50s. Establish they're family, they're Yavapai, they share history
+2. **Talking About the Future**: Discussion about someday returning to "the place we need to visit," "where our path began"—minimal details. Both men clearly share something significant but speak around it rather than naming it
+3. **Two Paths to Success**: Brief establishment of their parallel journeys—Carlos: "You stayed here, built a life with Chehata and your children. I left, became a doctor, fought from the outside." Mike: "We both did what we had to do, cousin." Both Yavapai, both found ways to serve their people and build meaningful lives
+4. **Mike's Writing Project**: Carlos asks about Mike's manuscript. Mike shows him pages about his life as Mike Burns—his time with Captain Burns, Carlisle, army service. Carlos is supportive and encouraging
+5. **Shared Understanding**: The cousins talk about their people, about preserving history, about what matters
+6. **Seeds Planted**: Subtle sense that there's more to tell, more to remember, but no pressure yet
+7. **Mystery and Tension**: Where is this place they speak of visiting? Why does it matter? What shared history binds these cousins? What are they both carefully not saying directly?
 
 ### Emotional Beat
-DETERMINATION + AVOIDANCE + PARTIAL TRUTH + MYSTERY
+DETERMINATION + SHARED BURDEN + FORESHADOWING + MYSTERY + BROTHERLY LOVE + IMPENDING LOSS
+
+### Notes
+**Purpose of This Prologue**:
+- **Clearly establishes**: Mike and Carlos are Yavapai cousins, both successful in different ways (doctor/activist vs. community man/family builder)
+- **Mystery is deep and vague**: Where is this place they speak of visiting? Why does it matter? Everything is suggested, not stated
+- **Establishes dual timeline potential**: 1920 "present" with Carlos; Mike's manuscript about his "Mike Burns" life in progress
+- **Introduces Carlos naturally**: Not as flashback but as living presence, establishing their relationship early
+- **Shows Mike's writing process**: He's working on his Mike Burns story—starting from Burns household—but readers don't know yet what he's avoiding
+- **Maximum restraint**: No specific names (Skeleton Cave, Hoomothya), no explicit details—just two men discussing someday visiting "the land of their past"
+- **Emotional foundation**: The bond between these two Yavapai cousins and the unspoken understanding they share
+- **Foreshadows future events**: The journey they speak of will happen in Chapter 15 (1923)
+- **Sets writerly frame**: Mike writing = metanarrative device established early, naturally
+- **Two paths to success**: Shows that both men found ways to serve their people—Carlos through education and activism, Mike through family and community—both are accomplished despite challenges
+
+**Timeline Note**: This is 1920—three years before the actual cave journey in 1923 (Chapter 15). Carlos is still relatively healthy here.
+
+**Reference Source**: [Mike_Burns_&_Carlos_Montezuma_Trip_To_Cave.md](../../Events/Mike_Burns_&_Carlos_Montezuma_Trip_To_Cave.md) - Historical context for the journey they discuss
 
 ---
 
@@ -341,39 +359,45 @@ HEARTBREAK + WITNESSING SYSTEMATIC BETRAYAL + COMPLICITY + MYSTERY (Why does he 
 
 ---
 
-## CHAPTER 11: THE COUSIN (Dr. Carlos Montezuma - First Meeting)
+## CHAPTER 11: THE COUSIN (Dr. Carlos Montezuma - The Push to Write Hoomothya)
 
-**Time**: Early 1900s (c. 1901-1903)
-**POV**: First-person (Mike)
+**Time**: 1922
+**POV**: First-person (Mike, age ~57)
 **Location**: Fort McDowell area/Phoenix
 **Word Count**: ~3,000 words
 
 ### Plot Function
-Mike reconnects with his cousin Dr. Carlos Montezuma—fellow survivor who became first Native American male physician. **Two survivors, two different paths from same trauma (readers don't know what trauma yet).** Initial reunion focuses on Fort McDowell Reservation fight. **Carlos plants seed about writing, but Mike isn't ready yet.**
+Carlos Montezuma returns to Arizona, growing weaker from tuberculosis. Mike has completed his manuscript about "Mike Burns"—his life from the Burns household through Carlisle, army service, and building his family. Carlos reads it and recognizes what's missing. **Carlos now specifically pushes Mike to write about "before"—about Hoomothya, the boy whose story deserves to be told.** Mike resists, but Carlos plants the seed that will eventually break through his avoidance.
 
 ### Key Scenes
-1. **The Letter**: Mike receives letter from Dr. Carlos Montezuma—"I've been searching for my Yavapai relatives"
-2. **Recognition**: Mike realizes this is his cousin (readers don't know how they're related or what they survived together)
-3. **The Reunion**: Meeting in Phoenix or Fort McDowell area—two men shaped by unnamed shared past
-4. **Carlos's Story** (brief): Became doctor, activist, publisher of *Wassaja* magazine, fierce critic of BIA
-5. **Shared Past**: They speak of "what happened" but Mike doesn't tell readers the details—maintaining mystery
-6. **Different Paths, Same Commitment**: Carlos used education to fight publicly; Mike stayed close to community
-7. **First Suggestion**: Carlos gently suggesting Mike should write down his experiences someday
-8. **Mike's Deflection**: "Maybe someday" (not ready to face it)
-9. **Fort McDowell Vision**: Carlos working to establish permanent Yavapai reservation—needs Mike's help
-10. **Alliance**: Two survivors working together for Yavapai future
-11. **Unspoken Understanding**: Carlos knows Mike isn't ready; gives him time
+1. **Carlos's Return**: Carlos back in Arizona, visibly declining from tuberculosis but determined
+2. **The Manuscript**: Mike shows Carlos his completed manuscript—the story of "Mike Burns"
+3. **Carlos Reads**: Carlos reads through Mike's work—Captain Burns, Carlisle, Highland, army service, Chehata, family, Fort McDowell
+4. **Recognition of What's Missing**: Carlos finishes reading. Long silence. "This is good, cousin. But it's not complete."
+5. **The Gentle Push**: "And before that?" Carlos asks. "Before the Burns family? Before you became Mike?"
+6. **Mike's Deflection**: Mike resists, clearly avoiding something. "I've written what matters. My life as Mike Burns."
+7. **About the Boy**: Carlos: "What about Hoomothya? That boy's story deserves to be told too." (First mention of the name to readers—mysterious)
+8. **Who Is Hoomothya?**: Readers wondering—another relative? Another child Carlos and Mike knew? Why does Mike need to tell this boy's story?
+9. **Mike's Resistance**: "I can't write about that. About him. It's too..." He can't finish the sentence.
+10. **Carlos's Gentle Insistence**: "You're the only one who can tell his story. You know what happened. You remember."
+11. **Mike's Pain**: Physical reaction to the suggestion—can't speak about "Hoomothya," can't claim that name or story
+12. **Carlos's Understanding**: "I know it's hard, cousin. But think about it. That boy deserves to be remembered."
+13. **Seed Planted**: Carlos doesn't push further—he's given Mike the challenge, now gives him time
+14. **Shared Duty**: Discussion of preserving their people's history, telling the truth
+15. **The Journey Idea**: Carlos mentions wanting to go back to "that place" soon—while he still can
 
 ### Emotional Beat
-REUNION + SHARED BURDEN + INSPIRATION + HOPE THROUGH ALLIANCE + AVOIDANCE
+REUNION + SHARED BURDEN + CARLOS'S GENTLE CHALLENGE + INSPIRATION + HOPE THROUGH ALLIANCE + AVOIDANCE
 
 ### Notes
 **CRITICAL FOR MYSTERY**:
-- Mike and Carlos share an unnamed traumatic past
-- They speak in vague terms: "after what happened," "what we survived," "that day"
-- Carlos suggests writing but doesn't push—he understands Mike's wounds
-- Readers know they're cousins, both Yavapai, both traumatized—but not HOW or WHY
-- Plant the idea: Carlos survived as infant (how?), Mike as slightly older child (survived what?)
+- **Timeline**: This is 1922, two years after the Prologue (1920). Mike has spent those two years finishing his "Mike Burns" manuscript
+- **First mention of "Hoomothya"**—readers think it's another person, another child, someone whose story needs telling
+- Carlos has read Mike's complete manuscript and recognizes the gap—the missing "before"
+- Mike's resistance to writing about "Hoomothya" is visceral and painful—who is this boy? Why can't Mike face his story?
+- Carlos knows more than he says—he understands exactly why Mike avoids writing about Hoomothya
+- Plant mystery: Who is Hoomothya? Why does Carlos think Mike should write about him? How does Mike know this boy's story? What's the connection?
+- **Sets up Chapter 15**: Carlos plants the idea that will bear fruit when Mike actually writes Hoomothya's story (between Ch 11 and Ch 15)
 
 ---
 
@@ -458,46 +482,49 @@ AVOIDANCE + PARTIAL TRUTH + INTERNAL CONFLICT + INCOMPLETENESS
 
 ---
 
-## CHAPTER 15: CARLOS RETURNS (The Intervention - ACT I CLIMAX)
+## CHAPTER 15: THE JOURNEY TO THE CAVE (ACT I CLIMAX)
 
-**Time**: Early 1920s (c. 1920-1922, before Carlos's death in 1923)
-**POV**: First-person (Mike, age ~55-57)
-**Location**: Fort McDowell area
+**Time**: Early 1923 (January)
+**POV**: First-person (Mike, age ~57-58)
+**Location**: Fort McDowell, journey to Skeleton Cave
 **Word Count**: ~3,500 words
 
 ### Plot Function
-**ACT I CLIMAX. THE TURNING POINT.** Carlos Montezuma, now ill with tuberculosis, returns to Arizona. He reads Mike's manuscript and recognizes what's missing. **Carlos gently but firmly pushes Mike to write the truth—the story of Hoomothya.** As fellow survivor, Carlos helps Mike work through the trauma. **Readers still don't know Hoomothya is Mike; they think it's someone else's story Mike needs to tell.** Act I ends with Mike finally ready to face the past.
+**ACT I CLIMAX. THE TURNING POINT.** Between Chapter 11 (1922) and now (1923), Mike has written the Hoomothya manuscript in third person—the story Carlos pushed him to tell. Carlos, now gravely ill with tuberculosis, reads this new manuscript. **Both men recognize they must go to the cave—to honor those who died, to complete the circle, to bring their ancestors home.** The journey is emotionally devastating but necessary. **Readers still don't know Hoomothya is Mike; the cave connection deepens the mystery.** Act I ends with the cave visited, Carlos dying soon after, and Mike having faced the place that shaped both their lives.
 
 ### Key Scenes
-1. **Carlos's Arrival**: Mike learns Carlos is returning to Arizona, ill, wanting to die among his people
-2. **Reunion at Fort McDowell**: The cousins together again, both aging, both knowing death approaches
-3. **Reading the Manuscript**: Carlos reads Mike's "Mike Burns" manuscript
-4. **The Confrontation** (gentle): "This isn't the whole story, cousin. You're still hiding."
-5. **Mike's Resistance**: "I've written what matters. My life as Mike Burns—that's the story."
-6. **Carlos Sees Through Him**: "You can't write about the servant without writing about the child. You can't write about survival without writing about what you survived."
-7. **The Name**: Carlos says: "What about Hoomothya? What about that boy?"
-8. **Mike's Pain**: Physical reaction—can't speak the name, can't claim it
-9. **Carlos's Understanding**: "I know it hurts. I can barely remember—I was so small. But you remember everything. That's your burden. And your power."
-10. **The Permission**: "Write his story. You don't have to say 'I' if you can't. Write about him as someone else. But write it. He deserves to be remembered."
-11. **Mike's Breakdown**: Finally admitting "I can't face it. I see their faces. I hear the screams."
-12. **Carlos's Guidance**: "That's exactly why you must write it. For them. For grandmother, for my mother, for all of them. You are the only one living to tell."
-13. **The Promise**: Mike promises Carlos he'll write Hoomothya's story
-14. **Carlos's Hope**: "When I'm gone, you'll still be here. Finish this. Tell the whole truth. That boy—Hoomothya—deserves that much."
-15. **Act I Closes**: Mike alone with blank pages, Carlos's words echoing, finally ready to go back to the beginning
+1. **Carlos Reads Hoomothya**: Mike shows Carlos the new manuscript—Hoomothya's story, written in third person
+2. **Carlos's Reaction**: Carlos weeps reading it. "You did it, cousin. You told his story."
+3. **The Recognition**: Both men know what must happen next—they must go to the cave
+4. **We Must Go Back**: Carlos: "I need to see it one more time. We need to bring them home."
+5. **Preparation**: Mike gathers supplies, enlists others (John Williams, George and Charles Dickens) for the journey
+6. **The Journey Begins**: Difficult trek—Carlos weak but determined
+7. **Arriving at the Place**: The cave in Salt River Canyon—unnamed to readers but clearly significant
+8. **The Cave**: Mike and Carlos enter the place where their families died (readers piecing together: is this where Hoomothya's family died too?)
+9. **The Remains**: Finding bones, including small children's bones—Carlos and Mike both weeping
+10. **Blood on the Walls**: Dark stains still visible after 50+ years—the horror made real
+11. **Gathering the Bones**: Reverently collecting remains to bring home for proper burial
+12. **Mike's Internal Struggle**: Writing about "the boy" was hard; being here is unbearable
+13. **Carlos's Farewell**: Carlos saying goodbye to his mother, grandmother—Mike says goodbye to unnamed people (his family?)
+14. **The Return**: Bringing remains back to Fort McDowell
+15. **Carlos Weakened**: The journey has taken everything from Carlos—he will die within weeks
+16. **Shared Duty Fulfilled**: Both men have honored their ancestors, told the truth, brought them home
+17. **Act I Closes**: Carlos dying, Mike left as sole keeper of the story, having faced the cave that made him "Mike Burns"
 
 ### Emotional Beat
-BREAKTHROUGH + RESISTANCE BROKEN + PERMISSION GIVEN + SURVIVOR'S PACT + ACT I RESOLUTION
+CONFRONTING THE PAST + HONORING THE DEAD + SHARED GRIEF + BRINGING THEM HOME + CARLOS'S FINAL MISSION + ACT I RESOLUTION
 
 ### Notes
 **CRITICAL FOR MYSTERY**:
-- Readers hear the name "Hoomothya" prominently for first time
-- They assume Hoomothya is someone else—another survivor, another child, someone Mike knew
-- Carlos speaks of "that boy" as if separate from Mike
-- Mike's pain in talking about Hoomothya seems like survivor's guilt for someone he couldn't save
-- Carlos says "you remember everything" and "you are the only one living to tell"—clues piling up
-- The third-person writing strategy is Carlos's suggestion: "Write about him as someone else if you must"
-- Readers think: Mike is writing another survivor's story at Carlos's urging
-- **Perfect Act I ending**: Mike has told his "safe" story; now he must tell the dangerous truth
+- Readers now know: Carlos and Mike both lost family at this cave
+- The cave is clearly connected to Hoomothya's story—did Hoomothya die here? Was he there?
+- Mike's emotional reaction to the cave is profound—more than just family loss
+- Small bones, children's bones—Hoomothya was a child in the manuscript—connection?
+- **Still mysterious**: How does Mike know Hoomothya's story so intimately? Was Mike at the cave too?
+- Carlos's mother died here (found under her body as infant)—who else died here that Mike mourns?
+- The third-person manuscript about Hoomothya + the first-person journey to the cave = readers wondering about the connection
+- **Historical accuracy**: Based on the actual January 1923 expedition documented in [Mike_Burns_&_Carlos_Montezuma_Trip_To_Cave.md](../../Events/Mike_Burns_&_Carlos_Montezuma_Trip_To_Cave.md)
+- **Perfect Act I ending**: The physical journey to the cave mirrors Mike's emotional journey through writing; both have faced what they avoided
 
 ---
 
