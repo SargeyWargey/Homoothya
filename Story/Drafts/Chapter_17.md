@@ -1,4 +1,4 @@
-# Chapter 4: The Climb
+# Chapter 17: The Climb
 
 We walked for two days before I understood what fear really meant.
 

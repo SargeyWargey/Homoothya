@@ -1,4 +1,4 @@
-# Chapter 5: The Cave
+# Chapter 18: The Cave
 
 I woke to gray light filtering into the cave and voices whispering urgently near the entrance.
 

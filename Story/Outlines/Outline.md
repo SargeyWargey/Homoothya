@@ -506,7 +506,7 @@ REUNION + SHARED BURDEN + CARLOS'S GENTLE CHALLENGE + INSPIRATION + HOPE THROUGH
 
 ---
 
-## ACT II: HOOMOTHYA'S STORY (Chapters 13-24)
+## ACT II: HOOMOTHYA'S STORY (Chapters 13-21)
 
 ### Mike writes Hoomothya's manuscript in third person; mystery deepens
 
@@ -514,64 +514,7 @@ REUNION + SHARED BURDEN + CARLOS'S GENTLE CHALLENGE + INSPIRATION + HOPE THROUGH
 
 ---
 
-## CHAPTER 13: BEGINNING HOOMOTHYA'S STORY (ACT II OPENING)
-
-**Time**: Late 1922 to early 1923
-**POV**: First-person (Mike, age ~57-58)
-**Location**: Fort McDowell area
-**Word Count**: ~2,000 words
-
-### Plot Function
-**ACT II OPENS.** After Carlos's intervention, Mike finally begins writing Hoomothya's story. Shows Mike's process—the pain, the decision to write in third person, the first words on the page. **Carlos is dying nearby; Mike races to finish before Carlos passes.** Transitions into the manuscript that follows.
-
-### Key Scenes
-1. **Blank Page**: Mike sitting with empty paper after Carlos's challenge
-2. **The Decision**: "I will write about him. But I cannot say 'I.' Not yet."
-3. **Third Person Choice**: Deliberately creating distance—"the boy" not "me"
-4. **First Sentence**: Mike writing "His name was Hoomothya" and weeping
-5. **The Flood**: Once started, memories pour out—he can't stop writing
-6. **Carlos Nearby**: Mike visiting Carlos daily, telling him "I'm doing it, cousin. I'm writing Hoomothya's story."
-7. **Carlos's Encouragement**: Fading but still pushing Mike: "Don't stop. Tell it all."
-8. **Writing Through Pain**: Mike discovering that writing eases the burden, even as it hurts
-9. **The Mission**: This is for Carlos, for the dead, for the boy who died in that cave
-10. **Transition**: "Chapter 1: Hoomothya" (manuscript begins)
-
-### Emotional Beat
-BREAKTHROUGH + GRIEF AS FUEL + WRITING AS HEALING + URGENCY (Carlos dying) + ACT II BEGINS
-
-### Notes
-- This chapter shows WHY Mike writes in third person—not deception, but survival
-- Carlos's impending death adds urgency—Mike writing against time
-- Readers see Mike beginning "Hoomothya's manuscript" but still think it's someone else's story
-- Perfect Act II opening: the hard work begins
-- Sets up all the Hoomothya chapters that follow
-
----
-
-## CHAPTER 14: HOOMOTHYA (Manuscript Chapter 1)
-
-**Time**: c. 1865-1870 (Hoomothya's early childhood)
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
-**Location**: Yavapai territory, Arizona
-**Word Count**: ~2,500 words
-**Framing**: Begins "Chapter 1" of Mike's manuscript
-
-### Plot Function
-Mike writes about Hoomothya's early childhood. **Readers finally see the "before" that Mike skipped in Act I.** Beautiful, whole world. Third person maintains mystery.
-
-### Key Scenes
-1. **Waking**: Desert morning, family warmth
-2. **Name Meaning**: "Wet Nose"—child's laughter
-3. **Learning**: Traditional knowledge
-4. **Community**: Belonging completely
-5. **World Whole**: Everything as it should be
-
-### Emotional Beat
-INNOCENCE + BELONGING + MYSTERY (How does Mike know this?)
-
----
-
-## CHAPTER 15: THE MESQUITE HARVEST (Manuscript Chapter 2)
+## CHAPTER 13: THE MESQUITE HARVEST (Manuscript Chapter 1)
 
 **Time**: Late spring/summer, c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -595,7 +538,7 @@ CULTURAL RICHNESS + GROWING MYSTERY (Mike's intimate knowledge puzzling)
 
 ---
 
-## CHAPTER 16: THE LESSONS (Manuscript Chapter 3)
+## CHAPTER 14: THE LESSONS (Manuscript Chapter 2)
 
 **Time**: c. 1870-1871
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -619,7 +562,7 @@ LEARNING + BITTERSWEET IRONY + CLUES EMERGING
 
 ---
 
-## CHAPTER 17: MOTHER'S DEATH (Manuscript Chapter 4)
+## CHAPTER 15: MOTHER'S DEATH (Manuscript Chapter 3)
 
 **Time**: Before December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -641,7 +584,7 @@ FIRST TRAUMA + CLUES MULTIPLYING (Same loss, same tragedy?)
 
 ---
 
-## CHAPTER 18: THE WHISPERS (Manuscript Chapter 5)
+## CHAPTER 16: THE WHISPERS (Manuscript Chapter 4)
 
 **Time**: Early December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -665,7 +608,7 @@ MOUNTING DREAD + MYSTERY DEEPENING (How does Mike know what Hoomothya felt?)
 
 ---
 
-## CHAPTER 19: THE CLIMB (Manuscript Chapter 6)
+## CHAPTER 17: THE CLIMB (Manuscript Chapter 5)
 
 **Time**: Mid-December 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -689,7 +632,7 @@ FEAR + MYSTERY INTENSIFYING (Mike knows too much—what's the connection?)
 
 ---
 
-## CHAPTER 20: DECEMBER 22, 1872 (Manuscript Chapter 7)
+## CHAPTER 18: DECEMBER 22, 1872 (Manuscript Chapter 6)
 
 **Time**: December 22, 1872 (morning)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -711,7 +654,7 @@ TERROR + CLUES CONVERGING (Same date! Could they be...?)
 
 ---
 
-## CHAPTER 21: SIX DAYS (Manuscript Chapter 8)
+## CHAPTER 19: SIX DAYS (Manuscript Chapter 7)
 
 **Time**: December 22-27, 1872
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -733,7 +676,7 @@ DREAD + REALIZATION DAWNING (Readers putting it together)
 
 ---
 
-## CHAPTER 22: DECEMBER 28, 1872 (Manuscript Chapter 9)
+## CHAPTER 20: DECEMBER 28, 1872 (Manuscript Chapter 8)
 
 **Time**: December 28, 1872 (massacre)
 **POV**: Third-person limited (Hoomothya)—Mike's manuscript
@@ -755,7 +698,7 @@ HORROR + REALIZATION SOLIDIFYING (They are the same person!)
 
 ---
 
-## CHAPTER 23: BROUGHT TO BURNS (Manuscript Chapter 10)
+## CHAPTER 21: BROUGHT TO BURNS (Manuscript Chapter 9)
 
 **Time**: Late December 1872 - Early 1873
 **POV**: Third-person limited (Hoomothya)—manuscript
@@ -777,7 +720,7 @@ TRAUMA + IMPOSSIBLE RELATIONSHIP + REALIZATION COMPLETE (Mike = Hoomothya confir
 
 ---
 
-## CHAPTER 24: THE REVEAL - "I WAS HOOMOTHYA"
+## CHAPTER 22: THE REVEAL - "I WAS HOOMOTHYA"
 
 **Time**: July 1934, Fort McDowell
 **POV**: First-person (Mike)
@@ -808,7 +751,7 @@ DEVASTATING REVELATION + INTEGRATION + CATHARTIC TRUTH
 
 ---
 
-## CHAPTER 25: THE JOURNEY TO THE CAVE
+## CHAPTER 23: THE JOURNEY TO THE CAVE
 
 **Time**: Early 1923 (January)
 **POV**: First-person (Mike, age ~57-58)
@@ -853,14 +796,14 @@ PILGRIMAGE + INTEGRATION + HONORING THE DEAD + BRINGING THEM HOME + CARLOS'S FIN
 
 ---
 
-## ACT III: THE WITNESS (Chapters 26-37)
+## ACT III: THE WITNESS (Chapters 24-34)
 ### Publication journey, death, posthumous triumph - post-reveal
 
 **Note**: Readers now know Mike = Hoomothya. Act III shows his final mission: getting the truth published.
 
 ---
 
-## CHAPTER 26: THE LETTER (1910)
+## CHAPTER 24: THE LETTER (1910)
 
 **Time**: January 6, 1910
 **POV**: First-person (Mike)
@@ -882,7 +825,7 @@ HOPE + MISSION CLARITY + VULNERABILITY
 
 ---
 
-## CHAPTER 27: REJECTION
+## CHAPTER 25: REJECTION
 
 **Time**: 1910-1920s
 **POV**: First-person (Mike)
@@ -904,7 +847,7 @@ DISAPPOINTMENT + PERSISTENCE + DEFIANCE
 
 ---
 
-## CHAPTER 28: CARLOS'S RETURN (1923)
+## CHAPTER 26: CARLOS'S RETURN (1923)
 
 **Time**: Early 1923
 **POV**: First-person (Mike)
@@ -936,7 +879,7 @@ REUNION + MORTALITY + SHARED WITNESS + LOVE BETWEEN SURVIVORS
 
 ---
 
-## CHAPTER 29: THE BURIAL (January 31, 1923)
+## CHAPTER 27: THE BURIAL (January 31, 1923)
 
 **Time**: January 31, 1923
 **POV**: First-person (Mike)
@@ -967,7 +910,7 @@ GRIEF + LAST SURVIVOR + RENEWED DETERMINATION + MORTALITY AWARENESS
 
 ---
 
-## CHAPTER 30: TWENTY-FOUR YEARS
+## CHAPTER 28: TWENTY-FOUR YEARS
 
 **Time**: 1910-1934 (with focus on 1923-1934 post-Carlos)
 **POV**: First-person (Mike)
@@ -1000,7 +943,7 @@ QUIET PERSISTENCE + FAITH + DUTY + PARTNERSHIP + FAMILY AS LEGACY
 
 ---
 
-## CHAPTER 31: COMPLETION
+## CHAPTER 29: COMPLETION
 
 **Time**: September 1934
 **POV**: First-person (Mike)
@@ -1022,7 +965,7 @@ COMPLETION + PEACE + ACCEPTANCE
 
 ---
 
-## CHAPTER 32: AUTUMN
+## CHAPTER 30: AUTUMN
 
 **Time**: October-November 1934
 **POV**: First-person (Mike)
@@ -1055,7 +998,7 @@ PEACE + COMPLETION + HOMECOMING + PARTNERSHIP + GRATITUDE
 
 ---
 
-## CHAPTER 33: NOVEMBER 26, 1934
+## CHAPTER 31: NOVEMBER 26, 1934
 
 **Time**: November 26, 1934
 **POV**: First-person → third-person at death
@@ -1090,7 +1033,7 @@ PEACE + INTEGRATION + RELEASE + REUNION (with dead) + GRIEF (for living)
 
 ---
 
-## CHAPTER 34: SILENCE (1934-2000s)
+## CHAPTER 32: SILENCE (1934-2000s)
 
 **Word Count**: ~2,500 words
 **POV**: Third-person omniscient
@@ -1111,7 +1054,7 @@ PATIENCE + PERSISTENCE + HOPE DEFERRED
 
 ---
 
-## CHAPTER 35: REDISCOVERY
+## CHAPTER 33: REDISCOVERY
 
 **Time**: 2000s-2010
 **POV**: Third-person (following scholars)
@@ -1133,7 +1076,7 @@ VINDICATION BEGINNING + TRUTH EMERGING
 
 ---
 
-## CHAPTER 36: THE SECOND BOOK
+## CHAPTER 34: THE SECOND BOOK
 
 **Time**: 2005-2012
 **POV**: Third-person
@@ -1155,7 +1098,7 @@ TRIUMPH + VINDICATION COMPLETE
 
 ---
 
-## CHAPTER 37: READERS
+## CHAPTER 35: READERS
 
 **Time**: 2010-present
 **POV**: Third-person omniscient
@@ -1201,7 +1144,7 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 ## CHAPTER COUNT & WORD COUNT SUMMARY
 
-### Updated Structure with New Chapter 11
+### Updated Structure (Chapters 13-14 Removed)
 
 **Prologue**: ~1,750 words
 
@@ -1216,31 +1159,30 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 - **Chapter 8: Broken Promises - A Witness Account (~6,000 words)** [CONDENSED from former Chs 8, 9, 10]
 - Chapter 9: The Land (Fort McDowell Fight) (~2,500 words)
 - Chapter 10: First Citizen (~2,500 words)
-- **Chapter 11: The Manuscript (~2,000 words)** [NEW - Mike's publication attempts, Chehata encourages contacting Carlos]
+- **Chapter 11: The Manuscript (~2,000 words)** [Mike's publication attempts, Chehata encourages contacting Carlos]
 - **Chapter 12: The Cousin (Dr. Montezuma - ACT I CLIMAX)** (~3,000 words)
 **Act I Subtotal**: ~39,000 words (12 chapters)
 
-**Act II (Chapters 13-24)**: Hoomothya's Story + The Reveal
-- Chapter 13: Beginning Hoomothya's Story (ACT II OPENING) (~2,000 words)
-- Chapters 14-23: Hoomothya Manuscript (10 chapters × ~2,500) = ~25,000 words
-- **Chapter 24: THE REVEAL - "I Was Hoomothya"** (~2,500 words)
-**Act II Subtotal**: ~29,500 words (12 chapters)
+**Act II (Chapters 13-21)**: Hoomothya's Story + The Reveal
+- Chapters 13-21: Hoomothya Manuscript (9 chapters × ~2,500) = ~22,500 words
+- **Chapter 22: THE REVEAL - "I Was Hoomothya"** (~2,500 words)
+**Act II Subtotal**: ~25,000 words (10 chapters)
 
-**TRANSITION**: **Chapter 25: The Journey to the Cave** (~3,500 words) - After the reveal, the pilgrimage
+**TRANSITION**: **Chapter 23: The Journey to the Cave** (~3,500 words) - After the reveal, the pilgrimage
 
-**Act III (Chapters 26-37)**: Publication Journey + Death + Posthumous Triumph
-- Chapter 26: The Letter (1910) (~2,500 words)
-- Chapter 27: Rejection (~2,500 words)
-- Chapter 28: Carlos's Return (1923) (~2,500 words)
-- Chapter 29: The Burial (~2,000 words)
-- Chapter 30: Twenty-Four Years (~3,000 words)
-- Chapter 31: Completion (~2,500 words)
-- Chapter 32: Autumn (~3,000 words)
-- Chapter 33: November 26, 1934 (~3,000 words)
-- Chapter 34: Silence (~2,500 words)
-- Chapter 35: Rediscovery (~2,500 words)
-- Chapter 36: The Second Book (~2,500 words)
-- Chapter 37: Readers (~2,500 words)
+**Act III (Chapters 24-34)**: Publication Journey + Death + Posthumous Triumph
+- Chapter 24: The Letter (1910) (~2,500 words)
+- Chapter 25: Rejection (~2,500 words)
+- Chapter 26: Carlos's Return (1923) (~2,500 words)
+- Chapter 27: The Burial (~2,000 words)
+- Chapter 28: Twenty-Four Years (~3,000 words)
+- Chapter 29: Completion (~2,500 words)
+- Chapter 30: Autumn (~3,000 words)
+- Chapter 31: November 26, 1934 (~3,000 words)
+- Chapter 32: Silence (~2,500 words)
+- Chapter 33: Rediscovery (~2,500 words)
+- Chapter 34: The Second Book (~2,500 words)
+- Chapter 35: Readers (~2,500 words)
 **Act III Subtotal**: ~31,000 words (12 chapters)
 
 **Epilogue**: ~1,750 words
@@ -1250,20 +1192,20 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 **TOTAL STRUCTURE**:
 - Prologue: 1,750 words
 - Act I (Chapters 1-12): 39,000 words
-- Act II (Chapters 13-24): 29,500 words (includes The Reveal as Ch 24)
-- Chapter 25 (Transition): 3,500 words (Journey to the Cave - after reveal)
-- Act III (Chapters 26-37): 31,000 words
+- Act II (Chapters 13-22): 25,000 words (includes The Reveal as Ch 22)
+- Chapter 23 (Transition): 3,500 words (Journey to the Cave - after reveal)
+- Act III (Chapters 24-35): 31,000 words
 - Epilogue: 1,750 words
 
-**GRAND TOTAL**: **~105,000 words** (37 chapters + Prologue + Epilogue)
+**GRAND TOTAL**: **~98,500 words** (35 chapters + Prologue + Epilogue)
 
-*Original target was 87,500 words. Major structural reorganization places The Cousin (Ch 12) as Act I climax, establishing Carlos's challenge for Mike to write Hoomothya's story. **Chapter 8 condenses three former chapters (River of Return, The Promise, Good-bye My Homeland) into one powerful testimony chapter where Mike documents the broken promises and atrocities against his people.** **New Chapter 11 (The Manuscript) shows Mike's early publication attempts and Chehata's crucial role in encouraging him to contact Carlos, creating a better narrative bridge to Carlos's intervention.** Act II (Ch 13-24) contains the Hoomothya manuscript and THE REVEAL. The Journey to the Cave (Ch 25) comes AFTER the reveal as a powerful transition—readers now understand the full emotional weight of Mike returning to Skeleton Cave. This creates maximum mystery buildup, devastating revelation, then cathartic pilgrimage. The novel sits at roughly 105,000 words—perfect for literary historical fiction (typically 90,000-110,000 words).*
+*Original target was 87,500 words. After removing Chapters 13 (Beginning Hoomothya's Story) and 14 (Hoomothya - Manuscript Chapter 1), the novel now totals ~98,500 words with 35 chapters. The structure flows directly from Carlos's intervention (Ch 12) into the Hoomothya manuscript chapters (Ch 13-21), building mystery to THE REVEAL (Ch 22). The Journey to the Cave (Ch 23) comes AFTER the reveal as a powerful transition—readers now understand the full emotional weight of Mike returning to Skeleton Cave. This creates maximum mystery buildup, devastating revelation, then cathartic pilgrimage. The novel sits at roughly 98,500 words—perfect for literary historical fiction (typically 90,000-110,000 words).*
 
 **KEY STRUCTURAL IMPROVEMENTS**:
 1. **The Reveal happens BEFORE the cave journey.** This creates a completely different emotional experience:
    - **Act I (Ch 11-12)**: Mike tries to publish, Chehata suggests Carlos; Carlos plants the seed—"Write about Hoomothya"
-   - **Act II (Ch 13-24)**: Mike writes the manuscript in third person, building mystery, ending with THE REVEAL
-   - **Chapter 25**: AFTER readers know the truth, the cave journey becomes Mike's act of integration—honoring both Hoomothya and Mike Burns at the place where one died and the other was born
+   - **Act II (Ch 13-22)**: Mike writes the manuscript in third person, building mystery, ending with THE REVEAL
+   - **Chapter 23**: AFTER readers know the truth, the cave journey becomes Mike's act of integration—honoring both Hoomothya and Mike Burns at the place where one died and the other was born
    - **Act III**: With full integration achieved, Mike faces his final years and death as a whole person
 
 2. **CHAPTER 8 CONDENSATION RATIONALE**: The three former chapters (River of Return, The Promise, Good-bye My Homeland) are now woven into one powerful testimony chapter where Mike explicitly writes to document the broken promises and atrocities against the Yavapai people. This approach:
@@ -1284,14 +1226,13 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 ## THE REVEAL STRUCTURE - KEY TO SUCCESS
 
 ### Building Mystery (Acts I & II)
-1. **Act I (Ch 1-13)**: Mike tells his story but SKIPS his Yavapai childhood—starts as Captain Burns's servant, never names Hoomothya; the interlude (Ch 8) shows how hard he works to bridge present-day Mike to those buried memories.
-2. **Act I Climax (Ch 13)**: Carlos intervenes—"What about Hoomothya? What about that boy?"—readers still think it's someone else. NO cave journey yet—that comes after the reveal.
-3. **Act II Opening (Ch 14)**: Mike begins writing "Hoomothya's story" in third person at Carlos's urging.
-4. **Act II (Ch 15-24)**: Hoomothya manuscript unfolds—intimate details pile up. How does Mike know this so well?
-5. **Clues Accumulate**: Same events, phrases, tracking skills, trauma, dates—yet Mike maintains third-person distance.
-6. **Readers Realize**: Alert readers piece it together before the reveal.
-7. **Chapter 25 - THE REVEAL**: Mike finally admits the truth explicitly: "I was Hoomothya."
-8. **Chapter 26 - THE PILGRIMAGE**: NOW the cave journey—readers experience it with full knowledge of what it means to Mike
+1. **Act I (Ch 1-12)**: Mike tells his story but SKIPS his Yavapai childhood—starts as Captain Burns's servant, never names Hoomothya; the interlude (Ch 8) shows how hard he works to bridge present-day Mike to those buried memories.
+2. **Act I Climax (Ch 12)**: Carlos intervenes—"What about Hoomothya? What about that boy?"—readers still think it's someone else. NO cave journey yet—that comes after the reveal.
+3. **Act II (Ch 13-21)**: Hoomothya manuscript unfolds in third person—intimate details pile up. How does Mike know this so well?
+4. **Clues Accumulate**: Same events, phrases, tracking skills, trauma, dates—yet Mike maintains third-person distance.
+5. **Readers Realize**: Alert readers piece it together before the reveal.
+6. **Chapter 22 - THE REVEAL**: Mike finally admits the truth explicitly: "I was Hoomothya."
+7. **Chapter 23 - THE PILGRIMAGE**: NOW the cave journey—readers experience it with full knowledge of what it means to Mike
 
 ### Why This Works
 - **Mystery drives reading**: Who is Hoomothya? Why does Carlos care so deeply about "that boy"? How does Mike know his story?
@@ -1314,11 +1255,10 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 - Marriage to Chehata reconnects him to Yavapai culture.
 - Interlude (Ch 8) shows Chehata urging him while he still speaks in riddles about the past.
 - December 22-28, 1872 dates surface in memory fragments.
-- **Carlos intervention (Ch 13)**: "What about Hoomothya? That boy deserves to be remembered."—readers think it's another child, another survivor.
+- **Carlos intervention (Ch 12)**: "What about Hoomothya? That boy deserves to be remembered."—readers think it's another child, another survivor.
 - **Carlos's words**: "You are the only one living to tell"—tell WHAT? About whom?
 
-**Act II (Hoomothya manuscript, Ch 14-25)**:
-- **Mike's process (Ch 14)**: Writing in third person because he can't say "I"—Carlos dying nearby, urging him forward.
+**Act II (Hoomothya manuscript, Ch 13-21)**:
 - Same dates as Mike's story (December 22-28, 1872).
 - Same captain (James Burns).
 - Same tracking skills learned.
@@ -1329,13 +1269,13 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 - **The question**: How does Mike know what Hoomothya felt, thought, experienced?
 
 **Accumulating Evidence**:
-- Chapter 18 (Mother's Death): "Bitter vengeance"—Mike hinted at family killed.
-- Chapter 21 (Capture): December 22—capturing Hoomothya.
-- Chapter 22 (Six Days): Hoomothya's captivity experience.
-- Chapter 23 (Massacre): Hoomothya witnessing Skeleton Cave.
-- Chapter 24 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable.
+- Chapter 15 (Mother's Death): "Bitter vengeance"—Mike hinted at family killed.
+- Chapter 18 (Capture): December 22—capturing Hoomothya.
+- Chapter 19 (Six Days): Hoomothya's captivity experience.
+- Chapter 20 (Massacre): Hoomothya witnessing Skeleton Cave.
+- Chapter 21 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable.
 
-**Chapter 26 (After the Reveal)**:
+**Chapter 23 (After the Reveal)**:
 - The cave journey NOW—readers understand Mike is returning to the place where Hoomothya died
 - Integration moment: honoring both identities at the site of trauma
 - Cathartic pilgrimage with full emotional weight
@@ -1346,23 +1286,21 @@ SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 ### Reader Experience
 1. **Prologue**: Intrigued—Mike starting to write but avoiding something.
-2. **Act I (Ch 1-13)**: Engaged with Mike's struggle, wondering about his mysterious origins.
-3. **Act I Climax (Ch 13)**: Carlos intervention—"Who is Hoomothya? Why does this 'other boy' matter so much?"
-4. **Act II Opening (Ch 14)**: Mike begins Hoomothya manuscript—"How does he know this story so intimately?"
-5. **Act II (Ch 15-24)**: Increasingly certain Mike = Hoomothya as clues pile up, but waiting for confirmation.
-6. **Chapter 25 - THE REVEAL**: Cathartic—Mike finally says "I was Hoomothya"—readers realize Carlos knew all along and was gently guiding Mike toward this integration.
-7. **Chapter 26 - THE PILGRIMAGE**: NOW the cave journey—devastating and beautiful because readers understand what it means
-8. **Act III (Ch 27+)**: Understanding Mike's mission with full context—including Carlos's role in making the manuscript possible.
+2. **Act I (Ch 1-12)**: Engaged with Mike's struggle, wondering about his mysterious origins.
+3. **Act I Climax (Ch 12)**: Carlos intervention—"Who is Hoomothya? Why does this 'other boy' matter so much?"
+4. **Act II (Ch 13-21)**: Increasingly certain Mike = Hoomothya as clues pile up, but waiting for confirmation.
+5. **Chapter 22 - THE REVEAL**: Cathartic—Mike finally says "I was Hoomothya"—readers realize Carlos knew all along and was gently guiding Mike toward this integration.
+6. **Chapter 23 - THE PILGRIMAGE**: NOW the cave journey—devastating and beautiful because readers understand what it means
+7. **Act III (Ch 24+)**: Understanding Mike's mission with full context—including Carlos's role in making the manuscript possible.
 
 ### Mike's Arc (with Carlos as Guide)
-1. **Prologue + Act I (Ch 1-13)**: Fragmented, carrying secret, dissociated from Hoomothya identity, writing only "safe" story.
-2. **Act I Climax (Ch 13)**: Carlos breaks through resistance—"That boy deserves to be remembered"—permission to face trauma.
-3. **Act II Opening (Ch 14)**: Writing about "the boy" because he can't claim him as "I"—Carlos dying nearby, encouraging.
-4. **Act II (Ch 15-24)**: Manuscript unfolds in third person—distance necessary for survival.
-5. **Chapter 25 - THE REVEAL**: Integration in writing—"I was Hoomothya. I am Hoomothya."—Carlos's final gift bearing fruit.
-6. **Chapter 26 - THE PILGRIMAGE**: Integration in action—returning to the cave as a whole person, honoring both identities.
-7. **Act III (Ch 27+)**: Complete witness, both identities claimed, Carlos honored, mission fulfilled.
-8. **Death**: Peace, integration, truth recorded—Carlos waiting for him.
+1. **Prologue + Act I (Ch 1-12)**: Fragmented, carrying secret, dissociated from Hoomothya identity, writing only "safe" story.
+2. **Act I Climax (Ch 12)**: Carlos breaks through resistance—"That boy deserves to be remembered"—permission to face trauma.
+3. **Act II (Ch 13-21)**: Manuscript unfolds in third person—distance necessary for survival.
+4. **Chapter 22 - THE REVEAL**: Integration in writing—"I was Hoomothya. I am Hoomothya."—Carlos's final gift bearing fruit.
+5. **Chapter 23 - THE PILGRIMAGE**: Integration in action—returning to the cave as a whole person, honoring both identities.
+6. **Act III (Ch 24+)**: Complete witness, both identities claimed, Carlos honored, mission fulfilled.
+7. **Death**: Peace, integration, truth recorded—Carlos waiting for him.
 
 ---
 

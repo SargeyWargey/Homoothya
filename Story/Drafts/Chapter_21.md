@@ -1,4 +1,4 @@
-# Chapter 8: The Guide
+# Chapter 21: The Guide
 
 The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited—the main force, converging from different directions.
 

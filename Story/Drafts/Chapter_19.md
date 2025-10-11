@@ -1,4 +1,4 @@
-# Chapter 6: Six Days
+# Chapter 19: Six Days
 
 The soldiers didn't leave.
 

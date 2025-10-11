@@ -1,6 +1,6 @@
-# Chapter 1: The Mesquite Harvest
+# Chapter 13: The Mesquite Harvest
 
-The morning I remember best, I was small enough to climb.
+The earliest morning I remember best, I was small enough to climb.
 
 My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."
 
@@ -84,11 +84,3 @@ I was Hoomothya.
 
 And I was home.
 
----
-
-**[End Chapter 1]**
-
-*Word count: ~1,250*
-*Scene location: Salt River region, Yavapai summer camp*
-*Approximate timeframe: Late spring/early summer, c. 1870-1871*
-*Age: Hoomothya approximately 5-6 years old*

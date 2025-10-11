@@ -1,4 +1,4 @@
-# Chapter 9: December 28, 1872
+# Chapter 23: December 28, 1872
 
 The first shot cracked across the morning like thunder.
 

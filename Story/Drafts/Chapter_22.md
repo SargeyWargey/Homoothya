@@ -1,4 +1,4 @@
-# Chapter 10: Only One
+# Chapter 22: Only One
 
 I don't remember most of the first part of the journey away from the canyon.
 
