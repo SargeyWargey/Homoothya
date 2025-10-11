@@ -1,319 +1,226 @@
-# Chapter 16: The Whispers
+# Chapter 16: The Climb
 
-The men came back wrong.
+We walked for two days before I understood what fear really meant.
 
-My father and uncle returned to camp when the sun sat low, but they didn't carry deer or rabbits or even stories about what they'd seen. They came back quiet, their faces hard in a way that made my stomach tighten.
+The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.
 
-I'd seen my father look like that once before. The day he came back alone, without my first mother.
+My legs ached from keeping pace, and the small bundle grandmother had given me grew heavier with each mile, but I didn't complain. No one complained. The adults set a steady rhythm and we followed it, children and elders alike, our feet finding the path by instinct.
 
-I was smaller then. Maybe four winters, maybe five. Too young to understand what death meant, but old enough to know something terrible had happened.
+We stopped once when the sun stood high, resting in the shade of a rock outcrop. My mother gave me dried meat and water. I chewed slowly, watching my father and uncle scan the horizon behind us, their eyes never still.
 
-She'd gone out that morning with the other women to gather agave hearts near Mormon Flat. I remembered watching her leave, the digging stick across her shoulder, her gathering basket empty and waiting to be filled. She'd touched my head as she passed. That was all. Just her hand on my hair, warm from the cooking fire.
+"Do you see them?" I whispered to my mother.
 
-She never came back.
+"Hush. Eat."
 
-Father found her in the afternoon. The other women came running into camp ahead of him, crying, and then father appeared carrying her. Her body was wrong. Limp. Her head rolled against his shoulder in a way that frightened me. I tried to go to her but my aunt held me back.
+But I saw the tightness around her mouth, the way her hand kept touching the knife at her belt. She saw something. Or feared she would.
 
-"Soldiers," someone said. The word hissed through camp like wind through dry grass.
+We moved again before I'd finished the meat.
 
-They'd found the women gathering. The white men had shouted things in their language, words my mother didn't understand. When she couldn't answer, when she reached for her digging stick not knowing they thought it was a weapon, they shot her.
+The second day was harder.
 
-She'd been gathering food. That was all.
+The land changed as we climbed. The low desert gave way to rougher country, scattered juniper and scrub oak replacing the saguaro and mesquite. The air cooled. The wind picked up, carrying the smell of pine from somewhere higher, somewhere we weren't going.
 
-I didn't cry at first. I thought she was sleeping, thought father would lay her down and she would wake up. I kept waiting for her to move, to speak, to look at me with those eyes that had always been warm.
+We turned west into a canyon system I didn't know. The trails here were faint, barely visible, and sometimes my father stopped to study the ground before choosing which way to go. We were leaving the known paths. Going where travelers didn't go. Where pursuit would be hard.
 
-But she didn't move. Didn't speak. Didn't look.
+That's when I started to feel it. Real fear. Not the worried kind that came from hearing adults talk in the dark. But the kind that lived in your belly and made your breath come short. The kind that came from understanding, finally, that we were prey.
 
-They wrapped her in hides and took her away to the burial place. I wasn't allowed to go. Too young, they said. Stay with your aunt, they said.
+Nashta felt it too. I could tell by the way she stayed close to her mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
 
-Father came back different. The softness gone from his face. His mouth a hard line. His hands always near his weapons. At night I heard him talking with the other men, his voice low and angry. "Bitter vengeance," my uncle called it later, when he thought I wasn't listening. "Your father has bitter vengeance for soldiers and all white people now. Because of what they did to your mother."
+When we stopped that night, there was no fire. Too dangerous, my father said. The smoke could be seen from miles away. So we huddled in our blankets and ate cold food and shivered as the temperature dropped.
 
-I understood the anger even if I didn't understand death. The soldiers had taken her. Had hurt her for no reason. Had made father's face turn to stone.
+I lay between my parents, listening to the darkness. Strange sounds carried in the cold air. The yip of coyotes. The hoot of an owl. Something larger moving through brush somewhere down-canyon, its passage marked by the crack of breaking branches.
 
-After many moons, my father took a new wife. A woman from another family whose husband had died the winter before. She was kind to me, gentle, and in time I learned to call her mother too. She gave my father two daughters—Nashta first, then the baby. She did the work my first mother had done: grinding meal, gathering plants, making our clothes. She cared for me when I was sick. She smiled when I climbed too high in the mesquite trees.
+"Sleep, Hoomothya," my mother whispered.
 
-But she wasn't the same. Couldn't be. And father never lost that hardness, that readiness for violence that had settled into him the day the soldiers killed my first mother.
-
-Now, watching him return to camp with that same terrible look on his face, I felt my stomach clench. The soldiers were close again. And father remembered, just as I did, what they had already taken from us.
-
-The woman who had become mother to me stood from the grinding stone, my baby sister on her hip. "What is it?"
-
-My father looked at her for a long moment before speaking. "Tracks. Boot tracks. Three men, maybe four. Following the river upstream from the east."
-
-"How close?"
-
-"Two valleys over. Half a day's walk."
-
-The other women had stopped their work. Everyone was listening now. My grandmother's hands went still on the basket she was weaving.
-
-"Could be prospectors," one of the men said. "Looking for silver."
-
-"Or scouts," my uncle said. His jaw was tight. "Looking for us."
-
-My father set his bow down carefully, like it might break. "We saw their camp. Old, maybe three days. They'd stayed there, built a fire, left marks on trees." He paused. "They're looking for something. And they're not trying to hide."
-
-That night, the adults talked in voices that rose and fell like the wind. I lay under my blanket with Nashta curled against me, pretending to sleep, but I heard everything.
-
-"We should move higher." That was my uncle. "Into the mountains. Make it harder for them to follow."
-
-"Winter is coming." An aunt's voice, worried. "The high country will be too cold. And we haven't finished gathering enough. We're already low on meat."
-
-"How low?" My father's voice was sharp.
-
-"Two days, maybe three if we're careful. We'll need to hunt soon."
-
-"Can't hunt if we're running," someone said.
-
-"Better cold and hungry than dead."
-
-My mother's voice cut through, sharp. "Don't say that in front of the children."
-
-"They need to know what's happening."
-
-"They're too young."
-
-"They're old enough to run."
-
-Silence then. Long and heavy. Nashta's breathing changed, and I knew she was awake too, listening. Her hand found mine under the blanket and squeezed.
-
-My father spoke next, quieter. "We don't know they're looking for us. Could be miners. Could be surveyors for the railroad they talk about."
-
-"You believe that?"
-
-Another pause. "No."
-
-Grandmother's voice came from the darkness. "There have been soldiers in the territory for two winters now. More every season. They build their forts. They bring their hunters and their guides. They say we raid their settlements."
-
-"We haven't raided anyone in months," someone said.
-
-"Doesn't matter what's true. Matters what they say is true."
-
-I heard my father move, probably standing. "Tomorrow we'll send scouts south, toward the settlements. See if there are more soldiers moving. If they're organizing."
-
-"And if they are?"
-
-"Then we move. Take what we can carry. Find somewhere they can't follow."
-
-Somewhere they can't follow. The words settled in my chest like stones.
+I closed my eyes but didn't sleep. None of us really slept that night.
 
 ---
 
-Three days later, my father left before dawn with two other men. They didn't say where they were going, but I knew. Down toward the white settlements. To watch. To see what was coming.
+The third day we reached the rim of Salt River Canyon.
 
-My uncle taught me to make arrows while they were gone. We sat in the shade of the ramada, and he showed me how to split the shaft, how to fit the stone point, how to bind it with sinew soaked in water that would shrink tight as it dried.
+I'd never been here before. Never seen anything like it. The land just dropped away, the earth opening like a wound, revealing layered cliffs that fell hundreds of feet to the river below. The walls were gold and red and grey, ancient stone that made me feel small and temporary.
 
-"You have to make the binding perfect," he said. "If it comes loose, you lose the point. Lose the point, you lose the shot. Lose the shot, you go hungry."
+"There," my father said, pointing north along the canyon wall. "The cave is there. Two hours' walk, maybe three with everyone together."
 
-My fingers were clumsy. The sinew kept slipping.
+I couldn't see any cave. Just cliff face and empty sky and the distant thread of the river far below.
 
-"Try again."
+We followed the rim north, moving slower now. The terrain was treacherous, loose rock and sudden drops hidden by brush. My grandmother needed help over the rough spots, and the smallest children had to be carried.
 
-I tried. Failed. Tried again.
+Finally we stopped. My father and uncle moved to the edge and looked down. When they came back, my father's face was grim.
 
-"Good," he said finally, examining my work. "Better. The binding will hold."
+"We have to descend here. The trail is steep. Everyone needs to be careful."
 
-"When will father come back?"
+Trail was a generous word for what we found. It was barely more than a series of ledges and handholds carved into the cliff face, dropping from the rim into a tilted landscape of broken rock and scattered vegetation. Below that, I could see what might have been a lava bed, dark stone jumbled and sharp. And beyond that, set into the canyon wall maybe a third of the way down from the rim, a dark opening in the rock.
 
-My uncle didn't answer right away. He turned the arrow shaft in his hands, checking the straightness. "When he knows what he needs to know."
+The cave.
 
-"What if the soldiers find him?"
+My uncle went first, testing each step. Then my father. Then they called up the first group: three adults, strong and steady. They descended slowly, their bodies pressed close to the rock, hands gripping anything solid.
 
-"He's careful. He knows how to move without being seen."
+I watched them get smaller and smaller until they reached a wider ledge about halfway down. They waved. All clear.
 
-"But what if they do?"
+My mother adjusted her burden basket, redistributing weight. "You're next," she told me. "Stay close to the wall. Don't look down. If you need to stop, stop. No shame in being careful."
 
-My uncle looked at me then, really looked at me. "Then we'll know they're close. And we'll run."
+My throat was too dry to answer. I just nodded.
 
-"Where would we go?"
+When my turn came, I put my hands on the rock and started down.
 
-"There are places. Caves in the high country. Canyons where the soldiers' horses can't follow. We know this land. They don't. That's our strength."
+The first few steps were the worst. The cliff face dropped away beneath me, and for a heartbeat I couldn't move, couldn't breathe. The world tilted. My fingers dug into stone.
 
-I thought about that. About running. About leaving this camp where I'd climbed mesquite trees and learned to pound meal and watched my uncle's arrow fly true. The thought of leaving made my throat tight, but I didn't cry. I just kept working the sinew around the arrow shaft, making the binding tight.
+"Keep going, Hoomothya." My uncle's voice floated up from below. "Just like climbing down from a mesquite tree. One step at a time."
 
-Nashta came running up, breathless. "Grandmother wants you."
+I made my feet move. Found a crack for my toes. Shifted my weight. Moved my hand to a new grip. The rock was cold under my fingers, rough and solid. I focused on that. On the texture of stone. On the next handhold.
 
-We followed her to where grandmother sat with the other elders near the cooking fire. They were talking in low voices, but they stopped when we approached.
+Don't look down. Don't think about the empty air behind you. Don't think about falling.
 
-"Hoomothya." Grandmother gestured me closer. "Sit."
+My foot slipped.
 
-I sat.
+For a terrible instant I swung out from the wall, one hand the only thing keeping me from falling. Pebbles scattered, clicking against stone as they tumbled into emptiness. I heard my mother gasp above me.
 
-She studied my face for a moment, then said, "Your mother tells me you've been asking questions. About the soldiers. About what might happen."
+Then my uncle's hand closed around my ankle, steadying me. "I've got you. Find your footing."
 
-I nodded.
+My toes scrabbled against rock. Found purchase. My weight came back onto the wall.
 
-"Good. A boy who asks questions learns to see what's coming." She paused. "I'm going to tell you something, and I want you to remember it. Can you do that?"
+"Good. Keep coming."
 
-"Yes, grandmother."
+I kept coming.
 
-"The white men who come to our land, they don't see it the way we do. To them, it's empty. They think because we move with the seasons, because we don't build stone houses and cut the earth with plows, that we don't belong here. That the land belongs to no one."
+When I finally reached the ledge where my uncle waited, my legs were shaking so hard I could barely stand. He pulled me close, his hand on the back of my head.
 
-She picked up a handful of dirt and let it sift through her fingers.
+"You did well. Brave."
 
-"But we've been here since the beginning. Since the First People emerged from the underworld. This desert, these mountains, these rivers—they know our names. The mesquite recognizes our hands. The deer know our prayers. We belong to this land the way the saguaro belongs to it. We're rooted here."
+I didn't feel brave. I felt like crying. But I swallowed it down and nodded.
 
-She looked at me hard. "The soldiers don't understand that. They can't. So they see us as something in the way. Something to be moved."
+One by one, the others descended. Some sure-footed, some terrified but determined. The women came down with burden baskets still on their backs, their balance perfect despite the weight. Grandmother came last among the elders, moving slowly but steadily, her old hands finding holds I couldn't see.
 
-"But we won't move," I said. "Will we?"
+When everyone was on the ledge, we started across the lava bed.
 
-Grandmother's face softened. "We'll do what we must to survive. Sometimes that means staying. Sometimes it means running. Sometimes it means fighting. But no matter what happens, you remember: you are Yavapai. You are Kwevkepaya. This land is your blood. Even if they force us away, even if they try to make us forget, you carry it inside you. They can't take that."
+The dark stone was razor-sharp in places, broken and jumbled like some ancient violence had shattered the earth and left the pieces where they fell. We picked our way through, trying not to cut our feet on the edges, trying not to turn an ankle in the gaps between rocks.
 
-I didn't understand everything she meant. I was too young. But I felt the weight of it, the importance. So I nodded.
+I heard one of the babies crying, the sound thin and lost in the vast space of the canyon. A mother hushed it, but the crying didn't stop. Just got softer, more resigned.
 
-"Say it," she said. "Tell me who you are."
+From the far side of the lava bed, we could finally see the cave clearly. It sat in the cliff face about a hundred and seventy feet above where we stood, a dark semicircle carved into pale stone. To reach it we'd have to climb again, up a steep slope of loose rock and dirt, then scramble up the last section to the cave's opening.
 
-"I'm Hoomothya. I'm Yavapai."
+My father studied the approach, then looked back at all of us. Tired people. Scared people. Women and children and elders who'd already climbed more today than they should have to.
 
-"Again."
+"Rest here," he said. "Drink. Eat something. Then we make the last climb."
 
-"I'm Hoomothya. I'm Yavapai. I'm Kwevkepaya."
+I found a flat rock and sat, my legs grateful for stillness. My mother sat beside me and handed me the waterskin. The water was warm but I drank it anyway, feeling it ease my dry throat.
 
-"Good. Don't forget."
+Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade—precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition, counted what little we had.
+
+Preparing for siege.
+
+Because that's what this was, I realized. We weren't just hiding. We were preparing to be trapped. To wait out whatever was coming.
+
+I looked up at the cave mouth, dark against the pale cliff. From here it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend.
+
+But something about it made my skin prickle. Something about the way it gaped open, like a mouth waiting to swallow us.
+
+"Hoomothya." My father crouched beside me. "When we get to the cave, you stay near your mother. Stay quiet. If I tell you to do something, you do it immediately. Understand?"
+
+"Yes, father."
+
+He studied my face. "You're doing well. Being strong. I'm proud of you."
+
+The words made my chest tight. I wanted to be strong. Wanted to make him proud. But I was also terrified, and the effort of hiding it was exhausting.
+
+"I'm scared," I said quietly.
+
+"Good. Fear keeps you alert. Just don't let it make you freeze."
+
+"How do you not freeze?"
+
+He was quiet for a moment. Then he said, "You remember what you're protecting. You think about the people you love. And you decide their lives matter more than your fear."
+
+I looked over at my mother, at grandmother, at Nashta sitting nearby with her mother. All of them trusting my father, trusting the men, trusting that this cave would keep them safe.
+
+"Will the soldiers find us here?" I asked.
+
+My father's jaw tightened. "I don't know. Maybe. But if they do, they'll have to come up that same cliff we just climbed. They'll have to cross that lava bed. They'll have to climb to the cave entrance while we're above them." He paused. "If they come, we have the advantage."
+
+If. The word was supposed to be reassuring. But I heard what lay beneath it.
+
+When.
 
 ---
 
-My father came back on the fifth day.
+We started the final climb as the sun began its descent toward the western rim. The slope was steep, the footing treacherous. Loose rock skittered away under our feet, tumbling down the incline and clattering against the lava bed below.
 
-He looked exhausted. Dust covered him from head to foot, and there were dark circles under his eyes like he hadn't slept. But it was his face that scared me. The hardness in it. The way his mouth was a thin line.
+I climbed on my hands and knees in places, grabbing at scrub brush for handholds, digging my toes into the soft dirt. My breath came hard. The bundle grandmother had given me kept slipping, and I had to stop twice to retie it.
 
-The men gathered immediately. The women pulled the children close but didn't send us away. We needed to hear this.
+Above me, I could see people disappearing into the dark mouth of the cave. Their silhouettes vanished into shadow, swallowed by the stone.
 
-"There are soldiers," my father said. "Many of them. Camped three days' walk from here, maybe less on horseback. I counted more than a hundred soldiers. Maybe one hundred twenty. And they have Native scouts with them—many scouts. Pima. Maricopa. Maybe some Apache. As many scouts as soldiers, maybe more. They're organizing for something. Preparing."
+When I finally pulled myself over the lip and into the cave, I had to stop and let my eyes adjust. After the bright canyon, the interior was almost black. Gradually, shapes emerged. People moving in the dimness. The curve of the cave ceiling, lower than I'd expected. The rough floor, uneven and dusty.
 
-"For what?" someone asked, though we all knew.
+The space was bigger than it had looked from below—maybe sixty or seventy paces wide, but not deep. Forty feet at most from the entrance to the back wall. An alcove, really. A shelter, not a true cave.
 
-"For us."
+But it would hold us all. That was something.
 
-"Our own people," my uncle said bitterly. "Pima and Maricopa, working for the Army against us."
+People were already organizing the space. The back wall for the elders and youngest children, the warmest spot farthest from the wind. The sides for families. The front, near the entrance, for the men who would keep watch.
 
-"Old enemies," an elder said quietly. "The soldiers use our conflicts against us. Promise them payment, food, weapons. Turn tribe against tribe."
+My mother found a spot for us along the right wall. She set down her burden basket and immediately started arranging our belongings, creating a small territory in the larger space. My grandmother settled nearby, her back against the stone, her breathing labored from the climb.
 
-My father nodded. "I saw them training together. The soldiers and the scouts. They're preparing to sweep the territory. Looking for every band, every camp."
+I stood at the cave entrance and looked out.
 
-My mother's hand tightened on my shoulder.
+The view was enormous. The canyon spread below, all red and gold stone layered like time itself. The river was a dark line far below, barely visible in the late afternoon shadows. The opposite rim caught the last sunlight, glowing like embers.
 
-"There's talk in the settlements," my father continued. "I listened outside a trading post, heard men talking. They say the Yavapai have been raiding. Killing settlers. Stealing cattle. They say General Crook has orders to pacify the territory. That means kill or capture anyone who won't go to the reservation."
+It was beautiful.
 
-"We haven't raided," my uncle said.
+It was a trap.
 
-"Doesn't matter. Some band did, somewhere. Or they say some band did. To them, we're all the same. All hostile. All Apache."
+I could see the whole approach from here—the lava bed we'd crossed, the ledge where we'd rested, even part of the rim trail we'd descended. Anyone coming would be visible long before they arrived. We'd see them from miles away.
 
-"We're not Apache," someone said angrily.
+But they would see the cave too. A dark mark on the cliff face. Obvious, if you knew to look.
 
-"They don't care about the difference."
+"Come away from the edge," my mother called. "Help me with this."
 
-The silence that followed felt like the air before lightning strikes. Heavy. Electric.
+I turned back to the interior gloom and went to help her spread our blankets. Behind me, the canyon darkened as the sun fell. By the time full dark came, we'd made the space as livable as we could.
 
-Finally, one of the elders spoke. "What do you think they'll do?"
+No fire tonight either. Too visible. So we sat in the cold and the dark and ate dried food and tried not to think about how exposed we were. How visible. How easy to find if someone was looking.
 
-My father looked around at all of us. At the wickiups and the grinding stones and the children sitting close to their mothers. At the life we'd built here in this canyon.
+Around me, I could hear the sounds of seventy-six people trying to settle into stone. Babies fussing. Adults murmuring. The shuffle of bodies finding comfortable positions on hard ground. Someone coughing, the sound echoing off the cave walls.
 
-"I think they'll come looking. I think they'll sweep through the territory, checking every canyon, every water source, every place we might camp. And when they find us..." He stopped. "We can't be here when they come."
+I lay between my parents, wrapped in my blanket, and stared at the cave ceiling just barely visible above me. The stone was pale where the rock had flaked away, darker where smoke from old fires had stained it.
 
-"Where do we go?"
+Other people had used this cave before us. Other Yavapai families, fleeing other dangers. I wondered if they'd felt this same fear. This same sense of being hunted.
 
-"The cave."
+I wondered if they'd survived.
 
-Everyone knew which cave he meant. The one in Salt River Canyon, high on the north wall. Difficult to reach, easy to defend. A place we'd used before when danger came.
+"Sleep," my mother whispered, the same word she'd said every night of this journey.
 
-"It's defensible," my uncle said, nodding slowly. "They can't approach without us seeing them. Can't bring horses up that climb. If we have enough food and water, we can wait them out."
+I closed my eyes.
 
-"Or they'll trap us there," an aunt said quietly.
+Outside, the canyon filled with darkness and silence. The kind of silence that feels like waiting. Like the whole world holding its breath before something terrible happens.
 
-"Better than being caught in the open."
+I slept fitfully, waking often to the sound of nothing. To the weight of stone above me. To the knowledge that we'd run as far as we could run, climbed as high as we could climb.
 
-The adults argued for a while, their voices rising and falling. But I could tell the decision was already made. We were going to the cave. We were going to hide.
+There was nowhere left to go.
 
-I looked at Nashta. Her eyes were wide, scared. I reached over and took her hand again, the way she'd taken mine that first night when we listened to the adults talking about running.
+This cave was our last refuge.
 
-My mother knelt beside me. "It's going to be all right," she said.
+And in the darkness, I dreamed of soldiers climbing toward us, their boot prints clear in the soft earth, their rifles gleaming in the dawn light.
 
-I wanted to believe her. Wanted to feel safe in the certainty of her voice. But I'd seen my father's face. I'd heard what he wasn't saying.
-
-Nothing was going to be all right.
+I dreamed of being found.
 
 ---
 
-We started packing before dawn.
+**[End Chapter 4]**
 
-The wickiup came down fast, the poles and brush that had been our home for three moons reduced to bare earth in less than an hour. My mother moved through the space where our sleeping area had been, her hands quick and sure, gathering what we'd take and leaving what we couldn't carry.
-
-"Only what you can hold," she told me. "Your blanket. Your second pair of sandals. The small waterskin."
-
-I looked at the bow my father had been making for me. It wasn't finished yet, the wood still pale and rough in places. But it was mine. Or would have been.
-
-My father saw me looking. He picked it up, ran his hand along the shaft. "Next time," he said. "When we come back, I'll finish it."
-
-"When will we come back?"
-
-He didn't answer.
-
-Around us, the whole camp was dissolving. Burden baskets appeared, quickly filled. The grinding stones were too heavy to take, so the women wrapped them in brush and buried them in shallow pits, marking the spots so we could find them again when we returned.
-
-When we returned. Everyone said it like it was certain. Like this was just another migration, another move from one camp to another following the seasons.
-
-But I knew it wasn't. This felt different. Felt permanent in a way that made my chest ache.
-
-Grandmother was wrapping dried meat, packing it carefully in layers with juniper leaves to keep it fresh. She worked steadily, her hands never stopping, but her face was distant. Remembering, maybe. Or praying.
-
-"Can I help?" I asked.
-
-She looked up. "Take this." She handed me a small bundle wrapped in hide. "Carry it carefully. It's precious."
-
-I took it. Light, but something hard inside. "What is it?"
-
-"Seeds. Mesquite, agave, squawberry. If we have to plant new, somewhere else, we'll have them."
-
-Somewhere else. The words hung in the air between us.
-
-"Grandmother, are we coming back?"
-
-She stopped working. For a long moment she just looked at me, and I saw something in her face I'd never seen before. Uncertainty. Fear.
-
-Then she reached out and touched my cheek. "I don't know, child. I don't know."
-
-That scared me more than anything else. More than the talk of soldiers. More than my father's hard face. Because grandmother always knew. She knew when rain was coming. Knew which plants would bear heavy. Knew the stories and the songs and the way things should be.
-
-If she didn't know, we were truly lost.
-
-By the time the sun cleared the eastern peaks, we were ready to go. Thirty-seven people: men, women, children, elders. Everything we owned on our backs. Everything we couldn't carry left behind.
-
-My father stood at the front, his bow across his shoulders, his face set toward the north. Toward the Salt River Canyon. Toward the cave that might save us or trap us or both.
-
-"We move fast," he said. "We rest when we must, but we don't stop for long. Stay together. Stay quiet. If I signal, everyone drops and hides. Understood?"
-
-We understood.
-
-My mother adjusted the burden basket on her back, the tumpline across her forehead. Nashta would walk beside her, holding the edge of her skirt. I would walk with the other boys my age, old enough to keep pace, young enough that we didn't carry as much.
-
-My uncle came to stand beside my father. Together they looked north, toward the canyon that would be our refuge. Or our grave.
-
-"Ready?" my father asked.
-
-My uncle nodded.
-
-We started walking.
-
-Behind us, the camp sat empty. The cleared ground where our wickiups had been. The cold fire pits. The grinding stones buried like secrets. Everything we'd built, everything we'd been, reduced to marks on the earth that the next rain would erase.
-
-I looked back once. Only once. Then I turned and followed my father north, toward the canyon, toward the cave, toward whatever was waiting for us there.
-
-The whispers had become shouts. The fear had become flight.
-
-And somewhere behind us, I knew, the soldiers were coming.
-
----
-
-**[End Chapter 3]**
-
-*Word count: ~2,550*
-*Scene location: Salt River region camp, fleeing north to Salt River Canyon*
-*Approximate timeframe: Early December 1872, days before the massacre*
+*Word count: ~2,650*
+*Scene location: Journey from desert camp to Skeleton Cave, Salt River Canyon*
+*Approximate timeframe: Mid-December 1872, days before December 28 massacre*
 *Age: Hoomothya approximately 7-8 years old*
 
-**Historical notes:**
-- General Crook's 1872 Tonto Basin Campaign involved coordinated sweeps through Yavapai/Apache territory
-- Multiple bands were being pursued simultaneously
-- Apache and Pima scouts were employed by the U.S. military
-- Many Yavapai families fled to remote caves and high country for protection
-- The military strategy was to deny Yavapai access to traditional seasonal camps and resources
+**Geographic notes:**
+- Cave location: North wall of Salt River Canyon, 1,200 feet above river
+- Access: Rim descent, lava bed crossing, steep slope, then cliff climb (170-foot cliff base)
+- Cave dimensions: Approximately 118 feet wide, 40 feet deep, elliptical rock shelter
+- Terrain accurately reflects historical accounts of difficult access
+- December weather: Cold nights at elevation, clear days typical
+
+**Historical context:**
+- Multiple Yavapai bands were fleeing to remote locations during this period
+- Skeleton Cave was chosen for defensibility—difficult approach, commanding view
+- The very features that made it defensible also made it a trap when surrounded
+- Historical accounts confirm ~76 people (some sources say up to 225) were in the cave during the attack
+- Mike Burns was not yet with his family at the cave—he was captured December 22, six days before the massacre

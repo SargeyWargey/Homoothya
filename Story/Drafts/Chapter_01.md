@@ -1,10 +1,10 @@
-# CHAPTER 1: LEARNING TO BE AMERICAN
+# CHAPTER 1: MICKEY
 
 ## 1873-1874
 
 The uniform scratched. Mrs. Burns had sewn it herself from blue wool cloth, copying the soldiers' uniforms but making it small enough to fit a boy. She said I looked handsome in it. She said I looked like a proper young man. She did not say I looked like myself, because I no longer looked like myself at all.
 
-I stood in the parlor of the quarters at Fort Whipple, trying not to scratch where the wool rubbed against my neck. Captain Burns sat at his desk reviewing papers. His daughter Katie played with a doll on the floor. Mrs. Burns—Annie, she insisted I call her Annie—was teaching me to set the table for supper.
+I stood in the parlor of the quarters at Fort Whipple, trying not to scratch where the wool rubbed against my neck. Captain Burns sat at his desk reviewing papers. His daughter Katie played with a doll on the floor. Mrs. Burns, who insisted I call her Annie, was teaching me to set the table for supper.
 
 "Fork on the left, Mickie," she said gently. "Knife and spoon on the right."
 
@@ -30,9 +30,7 @@ At night, in the small room they gave me off the kitchen, I would lie awake and 
 
 Sometimes the words came easily. Sometimes they slipped away and I chased them, repeating them until they stayed. Letting them fade frightened me more than anything.
 
----
-
-Captain Burns took me with him sometimes when he went about his duties at the fort. I would walk beside his horse, carrying his saddlebag, trying to match his stride. The soldiers would look at me. Some of them looked with pity. Some with curiosity. Some with the same look they gave the captured Apache scouts—a look that said I was a thing, not a person. A possession. A pet.
+Captain Burns took me with him sometimes when he went about his duties at the fort. I would walk beside his horse, carrying his saddlebag, trying to match his stride. The soldiers would look at me. Some of them looked with pity. Some with curiosity. Some with the same look they gave the captured Apache scouts, a look that said I was a thing, not a person. A possession. A pet.
 
 "That's the Yavapai boy Burns took in," I heard one soldier say to another as we passed.
 
@@ -48,13 +46,11 @@ I would nod and say, "Yes, ma'am," because that was what she needed to hear.
 
 At night I practiced the same discipline. If memories clawed at the edges of sleep, I pushed them away before morning. In the daylight I wore the uniform, followed the rules, and pretended the past was sealed shut.
 
----
-
 In the spring of 1874, Captain Burns told me we were going to Ireland.
 
 "To meet my parents," he said. "They'll want to see the fine young man I've taken under my wing."
 
-I did not know what Ireland was. He showed me on a map—a green island across a vast ocean. So far from the land that would become Arizona it might as well have been the moon. I tried to imagine getting on a ship and sailing across all that water to a place where everyone would be white and Irish and I would be even more alone than I already was.
+I did not know what Ireland was. He showed me on a map, a green island across a vast ocean. So far from the land that would become Arizona it might as well have been the moon. I tried to imagine getting on a ship and sailing across all that water to a place where everyone would be white and Irish and I would be even more alone than I already was.
 
 But Captain Burns was excited about it, so I tried to be excited too.
 
@@ -66,8 +62,6 @@ But I did not tell him that. I just nodded and said, "Yes, sir. It sounds wonder
 
 I was learning to tell people what they wanted to hear. It was another kind of survival.
 
----
-
 We never went to Ireland.
 
 In June of 1874, Captain Burns rode out with his troop on patrol. I stayed behind with Mrs. Burns and Katie, helping around the quarters, studying my letters. He promised he would return in a week.
@@ -78,7 +72,7 @@ Word came that he had died at a place called Navajo Springs. Fever, they said. O
 
 Mrs. Burns wept. Katie wept. I stood in the parlor in my blue wool uniform and did not know what to feel.
 
-This man who had taken me in, who had given me his name, who had taught me to read, who had promised to take me to Ireland—this man was dead.
+The man who had taken me in, given me his name, taught me to read, and promised to take me to Ireland. This man was dead.
 
 Should I grieve for him? Should I feel relieved? Should I feel anything at all?
 
@@ -98,19 +92,17 @@ Hall S. Bishop was a different kind of man than Captain Burns. Younger, louder, 
 
 "Can you shoot?"
 
-I hesitated. I could shoot. I had been taught by—I stopped the thought. "A little, sir."
+I hesitated. I could shoot. I had been taught by someone I refused to name. I stopped the thought. "A little, sir."
 
 "We'll improve that," Bishop said. "A man needs to know how to handle a weapon. Even an Indian boy who's learning to be civilized."
 
 He said it without malice, almost cheerfully, as if becoming civilized were a game we were playing together. I would come to understand that Bishop meant well. He treated me like a younger brother or a favorite nephew. He was never deliberately cruel.
 
-But he also never asked me what I wanted. None of them did. They decided what was best for me—what name I should have, what language I should speak, what god I should worship, what future I should want. They decided, and I obeyed, because I was a child and alone and had no other choice.
+But he also never asked me what I wanted. None of them did. They decided what was best for me: what name I should have, what language I should speak, what god I should worship, what future I should want. They decided, and I obeyed, because I was a child and alone and had no other choice.
 
-Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left the land that would become Arizona—left the red rocks and the saguaros and the mountains whose Yavapai names I was trying not to forget, and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
+Bishop took me with him when the Fifth Cavalry transferred east in the summer of 1875. We left the land that would become Arizona, leaving the red rocks and the saguaros and the mountains whose Yavapai names I was trying not to forget, and traveled to Camp Supply in Indian Territory. Everything was different there. The land was flatter, the sky bigger, the people stranger. I was even more lost than I had been at Fort Whipple.
 
 But I adapted. That was what I was good at. Adapting. Surviving. Becoming whatever I needed to be.
-
----
 
 The soldiers taught me things they thought were useful. How to care for horses. How to polish leather until it shone. How to stand at attention. How to pray to the white man's god, who apparently cared very much about whether you knelt or stood, whether you said the words right, whether you believed the correct things about a man named Jesus who died on a cross.
 
@@ -118,11 +110,9 @@ I learned it all. I became fluent in their customs, their expectations, their go
 
 Almost.
 
-But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and test myself. The Yavapai words for grandmother, for the river, for home—I repeated them under my breath until exhaustion settled in. If I stumbled, I began again, determined not to let them vanish.
+But at night, in whatever tent or barracks or temporary quarters I was given, I would lie awake and test myself. I repeated the Yavapai words for grandmother, for the river, for home under my breath until exhaustion settled in. If I stumbled, I began again, determined not to let them vanish.
 
 I lived in terror of the day when I would reach for a word and find nothing there, when the Yavapai language would be gone and I would have nothing left to hold.
-
----
 
 In the summer of 1876, I was eleven years old, and Lieutenant Bishop took me north with the Fifth Cavalry to fight the Sioux.
 
@@ -142,23 +132,19 @@ I wept for the Yavapai boy they expected to forget.
 
 And then I wiped my face and went back to being Mike Burns.
 
----
-
 They were teaching me to be American. They were teaching me that Yavapai ways were savage and wrong. They were teaching me that the language I spoke as a child was inferior to English, that the god I had prayed to was false, that the land I loved belonged to someone else now.
 
 They were teaching me to forget.
 
 And I was learning.
 
-But I was also learning something they did not intend to teach me. I was learning to watch, to listen, to remember. I was learning to carry two selves inside one body—the self they could see, and the self I kept hidden. I was learning that survival sometimes meant pretending to be what you were not.
+But I was also learning something they did not intend to teach me. I was learning to watch, to listen, to remember. I was learning to carry two selves inside one body: the self they could see, and the self I kept hidden. I was learning that survival sometimes meant pretending to be what you were not.
 
-I was learning that you could lose everything—your name, your family, your language, your home—and still, somehow, survive.
+I was learning that you could lose everything: your name, your family, your language, your home, and still, somehow, survive.
 
 Whether that survival was worth the cost, I did not yet know.
 
----
-
-In early 1880, Lieutenant Bishop—now Captain Bishop—sat me down and told me I was going to school.
+In early 1880, Lieutenant Bishop, now Captain Bishop, sat me down and told me I was going to school.
 
 "Real school," he said. "Back East. A place called Carlisle, in Pennsylvania. They teach Indian children there. Make something of them."
 
@@ -178,8 +164,6 @@ I would make them proud.
 
 That was what I was for.
 
----
-
 In September of 1880, Captain Bishop put me on a train heading east. We stood on the platform at Fort Laramie, and he shook my hand like I was a man, not a boy.
 
 "This is your chance," he said. "Your chance to make something of yourself."
@@ -190,13 +174,13 @@ But I could not say any of that. The words were locked too deep, buried under to
 
 So I just said, "Thank you, sir. I'll do my best."
 
-And I climbed onto the train that would take me away from the only world I knew—the Army world that had replaced the Yavapai world—and carry me to yet another place where I would have to learn to be someone new.
+And I climbed onto the train that would take me away from the only world I knew, the Army world that had replaced the Yavapai world, and carry me to yet another place where I would have to learn to be someone new.
 
 The train pulled away from the platform. Captain Bishop raised his hand in farewell. I watched him grow smaller and smaller until he was just a speck on the horizon, and then he was gone.
 
 I was alone again.
 
-I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country that had swallowed the my people whole.
+I pressed my forehead against the train window and watched the landscape roll by. Mountains and plains and rivers whose names I did not know. America. This vast, beautiful, terrible country had swallowed my people whole.
 
 Somewhere in my chest, in the place I kept locked and silent, I felt something stir. Not quite anger. Not quite grief. Something older and harder and more patient than either.
 
@@ -212,18 +196,10 @@ First, I had to survive. First, I had to learn everything they wanted to teach m
 
 The train rattled eastward. I was fifteen years old, going to a school designed to kill the Indian and save the man.
 
-They did not know that every word of English I learned was a tool I would someday use to tell the Yavapai story. They did not know that you could teach someone to speak like you, dress like you, pray like you—and still not own what lived inside their heart.
+They did not know that every word of English I learned was a tool I would someday use to tell the Yavapai story. They did not know that you could teach someone to speak like you, dress like you, pray like you, and still not own what lived inside their heart.
 
 I would learn to be American. I would learn it perfectly.
 
 And then, someday, I would use everything they taught me to tell them what they did to us.
 
-That was my plan, formed on a train heading east, carried by a boy trying to survive.
-
-I would remember. I would learn. I would survive.
-
-And someday, though it would take forty more years, I would tell.
-
-The train carried me away from everything I had known, into a future I could not imagine.
-
-
+That was my plan, formed on a train heading east, carried by a boy trying to survive, into a future I could not imagine.

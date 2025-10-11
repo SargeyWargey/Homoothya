@@ -1,169 +1,170 @@
-# Chapter 20: Taken
+# Chapter 20: The Guide
 
-The knife was cold against my throat.
+The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited—the main force, converging from different directions.
 
-My uncle lay dead three feet away, his eyes still open, looking at nothing. The blood on the snow-dusted ground looked black in the firelight.
+The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way. No tricks. Or die."
 
-The Pima scout holding me said something I didn't understand. His hand was clamped over my mouth. I couldn't breathe. Couldn't scream. Could barely think through the terror.
+I walked.
 
-There were five or six soldiers around our small fire. White men with rifles and those leather-brimmed hats. Behind them, more Native scouts—Pima, maybe Maricopa. Enemies of my people who wore pieces of Army uniforms and carried Army rifles.
+I walked through country I'd only seen once before. Last night. Following my uncle's footsteps in darkness.
 
-They'd come out of the darkness while my uncle and I huddled by the fire. We'd been too cold, too exhausted from the hunt. The fire had been a mistake. The warmth had made us careless.
+Now, in daylight, I could see it all. The rocks. The juniper. The turn of the path.
 
-Now my uncle was dead and I was going to die too.
+Now I was retracing those steps to bring death to my family.
 
-The tallest soldier stepped closer. He had markings on his shoulders that meant something I didn't understand. He crouched down and looked at my face. His eyes were tired. Old.
+The Pima scout kept his hand on my shoulder. Not gentle. A reminder that I was his prisoner, his tool. Behind us, the soldiers followed quietly. Professional. Efficient.
 
-He said something in English. The Pima scout holding me responded, his knife still at my throat.
+The officers walked near the front, watching me. Watching the land. Occasionally they'd signal the column to stop while they studied the terrain.
 
-The white officer shook his head and said something sharp. An order.
+We were getting closer. I could feel it in my bones. See it in the shape of the hills. The way the land folded toward the canyon.
 
-The knife moved away from my throat but the scout's grip on me didn't loosen.
+Every step was a betrayal.
 
-The officer studied me for a long moment. Then he stood and spoke to his men. Orders. Decisions being made about my life while I trembled in the scout's grip.
+Every step took me closer to the moment when everything would end.
 
-One of the soldiers brought rope. They tied my hands in front of me. Not tight enough to cut off blood, but firm. Permanent.
+The sun rose higher. The December morning grew warmer. Beautiful weather for the end of the world.
 
-I was a prisoner now.
+At midday, one of the officers called a halt. We stopped in a draw, hidden from view. The soldiers passed around canteens, ate cold rations. One offered me water.
 
-They sat me down away from the fire, away from my uncle's body. Two soldiers stood guard while the others gathered around the officer, looking at something—a map, maybe. Planning something.
+I drank because my throat was dust. But I couldn't eat.
 
-Every few minutes one of them would glance at me. Calculating. Deciding what I was worth.
+One of the scouts came over and spoke to me in broken Yavapai with gestures. How much farther?
 
-I didn't understand the words but I understood enough. They wanted something from me. Information. The cave. My people.
+I gestured. Close. Not far.
 
-But I wouldn't tell them. I would be like my uncle—silent even with a knife at my throat. I would die before I betrayed my family.
+The scout nodded and communicated this to the officers. They spoke among themselves, then one of them gestured through the scout: When we get close, I show them from a distance. Point it out. Then they take me to a safe position. Wait there.
 
-The officer came over and crouched in front of me again. He said something in slow, careful English. Pointed at the darkness around us. Made a gesture like people hiding in a cave.
+Safe position. As if anywhere would be safe when what was about to happen happened.
 
-They already knew we were hiding somewhere. They just didn't know where.
+I didn't respond.
 
-I shook my head. Said nothing.
+We walked on through the afternoon. The land grew more recognizable with every step. That outcropping I'd passed in darkness. That stand of juniper barely visible by moonlight.
 
-He sighed and stood. Spoke to the scouts. One of them—not the one who'd held the knife—came over and tried speaking in broken Yavapai.
+Everything looked different in daylight. But the path was the same.
 
-"Where. Your. People."
+Only what I was doing in it had changed.
 
-I looked at my uncle's body and said nothing.
+As the sun began its descent toward evening, I recognized the final approaches. We were less than a mile from the canyon now. From the cave.
 
-The scout grabbed my arm, squeezed hard enough to hurt. Asked again.
+From my family.
 
-I stayed silent.
+My steps slowed. The scout's hand tightened on my shoulder. Through gestures: "Keep walking."
 
-This went on for a long time. Questions I didn't answer. Threats I didn't understand. The cold seeping deeper into my bones. My uncle's blood freezing on the ground.
+But my legs wouldn't move. Couldn't. To go farther would be to...
 
-I would not tell them. Would not betray my family. Would die first.
+The scout shoved me forward. I stumbled, fell to my knees.
 
-But then one of the Pima scouts drew his knife again. Put it back against my throat. And I felt the blade—cold, sharp, real.
+One of the officers was there quickly. He said something sharp to the scout, who backed off muttering. Then the officer pulled me to my feet through another scout's translation and gestures, his grip firm but not cruel.
 
-I was eight years old. Maybe ten. Just a child.
+Through broken words and gestures, they made me understand: almost over. Show them where. Then rest.
 
-And I was so afraid.
+Rest. As if I would ever rest again after this.
 
-The white officer said something. The scout with the knife answered. They argued—I could hear it in their tones even though I didn't know the words.
+But I got to my feet. Kept walking. Because what choice did I have? The knife was always there. Death was always the alternative.
 
-Finally the officer made a sharp gesture. The knife came away from my throat.
+And I'd already chosen life.
 
-But the scout still held me. Still waited for an answer.
+We crested a low rise and there it was. The canyon. The cliffs rising on the far side. And somewhere in those cliffs, hidden high above, the cave where my family slept.
 
-And in that moment, with my uncle dead and the knife still close and the cold and the terror filling everything, I broke.
+Where everyone I loved waited, unknowing.
 
-"Cave," I whispered in Yavapai. So quiet I could barely hear myself.
+The officer saw me freeze. Saw me staring at the canyon. He raised his hand and the column stopped.
 
-The scout smiled. Said something to the officer in English.
+Through a scout, the officer asked: "There?"
 
-The officer nodded. Asked a question.
+I nodded.
 
-The scout turned back to me. "Where. Cave."
+More gestures: "Where exactly? Show."
 
-I pointed. Toward where the canyon lay hidden in the darkness. Toward where my father and mother and sisters slept.
+I raised my hand slowly. Pointed at the north wall. At the section of cliff where, if you knew what to look for, you could just barely see the dark shadow that meant cave entrance.
 
-Toward everyone I loved.
+"There," I whispered.
 
-The officer spoke to his men. Two of them immediately moved off into the darkness—runners, going to bring the main force to converge on this area.
+The officer pulled out his brass tube. Studied the cliff for a long time. Then he nodded, satisfied.
 
-I'd saved my life.
+He said something to his other officers. They looked through the tube, nodded agreement. High up. Defensible from below. But they could get above it.
 
-And doomed everyone else.
+He turned to one of his men. The soldier saluted and rode off—going to bring up the main force. They'd confirmed the location. Would position tonight, attack at dawn.
 
-But I wasn't done. The Pima scout grabbed me by the arm, hauled me to my feet. Spoke to the officer, gesturing at me, then at the darkness where I'd pointed.
+Through the scouts, they told me: "You did well. Now you rest."
 
-The officer nodded. Said something sharp in English.
+But I wasn't done. Not yet. Because as the afternoon wore into evening, more soldiers arrived. More than I'd ever seen. They spread out through the draws and arroyos, staying hidden from the canyon, positioning themselves.
 
-The scout turned to me. Gestures: pointing at me, then sweeping his hand toward the darkness. You. Show. Take us.
+And they kept me with them. Close enough to answer questions through the scouts. Close enough to confirm details. Close enough to watch as they planned how to kill my family most efficiently.
 
-Terror flooded through me. Pointing from a distance wasn't enough. They wanted me to lead them. To take them right to my family.
+I watched the officers studying a map, pointing, tracing routes. The scouts translated some of it, explaining to each other in broken Yavapai what was being planned. The approach from above. Along the rim. Men positioned directly above the cave mouth before dawn. When the sun rises, anyone in the entrance will be silhouetted. Easy targets.
 
-I shook my head violently. "No. No, I told you. I showed you. No more."
+And below—sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
 
-The scout backhanded me across the face. The world exploded in stars and pain. When my vision cleared, he had the knife out again.
+I understood enough from the scouts' broken words and gestures. Understood they were planning to trap my family. To surround them.
 
-One of the scouts gestured at me—hands tracing a path, then pointing at his chest, then at me. Show us. Path. Then safe. Live.
+Only one way out. The main entrance. If they position men above and below, trapped.
 
-I understood through their gestures. They were going to make me betray my family twice. Once with my words. Now with my feet.
+Trapped. In the cave they'd chosen for safety.
 
-They untied my hands but the Pima scout kept hold of my arm.
+Because I'd told the soldiers where it was.
 
-I looked at my uncle's body. He'd stayed silent. Died with honor.
+That night they made me sleep near the main camp. Not tied anymore—where would I run?—but guarded. Always watched.
 
-I'd told them where the cave was. And now I was going to lead them there.
+I lay wrapped in a blanket and stared at stars. The same stars shining down on the cave where my family slept.
 
-Hours passed in a nightmare. More soldiers arrived—a few at first, then more. They gathered in the darkness, quiet and efficient. Officers issued orders through the scouts. Weapons checked. Equipment readied.
+Did my mother dream of me? Did she think I was dead? Did my father plan to search for me when it was safer?
 
-As dawn approached, a different officer arrived—more markings on his shoulders than the others. The scouts seemed to defer to him more. They spoke briefly, the new officer looking at me once.
+Did little Nashta cry for her big brother who'd promised to always protect her?
 
-He looked at me like I was a tool. Something to be used and discarded.
+I'd broken every promise. Every bond. Every obligation.
 
-They gave me a blanket as the temperature dropped toward dawn. I wrapped it around my shoulders but couldn't stop shivering. From cold. From knowing what came next.
+All to save my own life.
 
-I thought about running. But the scout's hand never left my arm. Thought about refusing. But the knife was always there, visible threat.
+Around midnight, I heard movement. Soldiers moving out in the darkness. Taking their positions above the cave. Getting ready.
 
-I was eight years old. Just a child who wanted to live.
+I tried to pray. Tried to send warnings across the distance. Tried to imagine some way this wouldn't happen.
 
-Even if living meant this.
+But it was going to happen. At dawn. In a few hours.
 
-As gray light touched the eastern sky, one of the scouts came over. Through gestures, he made me understand: I would show them the way. Walk. They follow. When close, I stop. Stay back. Won't be hurt.
+And I had led them here.
 
-I understood. They were offering me a fiction. A story I could tell myself. That I was forced. That I had no choice.
+As the sky began to lighten—gray, then pink, then gold—a soldier came and pulled me to my feet.
 
-But I'd already chosen. When I whispered "cave" instead of staying silent.
+Through one of the scouts, he said the officer wanted me moved forward.
 
-Now I just had to live with it.
+I was led down from the mesa camp toward a position closer to the canyon—close enough to see the assault. The officer who would command the attack was there, checking positions, giving orders.
 
-As the full light of morning came, I realized what would happen next.
+He saw me approach and spoke to one of his men through gestures. They positioned me nearby where I could see. Where I would have to watch.
 
-They would make me take them there. Make me guide them to the cave.
+They positioned me on a small rise. Not far back—close enough to see the cave entrance clearly across the canyon. Close enough to see everything.
 
-Make me lead them to my family.
+I looked through the morning light toward the cave. I could see the dark opening in the cliff face. Could see the approach. Could see soldiers positioned above on the rim. Below on the slopes.
 
-The scout pulled me to my feet. Gestures: Time to go. Show the way.
+My family was waking up in that cave. Starting their day. Thinking they were safe.
 
-I looked one last time at my uncle's body. At the man who'd taught me to hunt. Who'd died with honor.
+Not knowing that above them, below them, all around them, hundreds of armed men waited for the signal.
 
-Then I turned toward where the canyon lay in the distance.
+Not knowing their son and grandson and nephew had led them here.
 
-Toward my family.
+The sun rose higher. Full light now.
 
-Toward everyone I loved.
+And then, so faint at first, movement at the cave entrance. A figure appeared. One of the sentries. Looking out at the morning. Seeing nothing wrong.
 
-I was about to become their guide. Their betrayer.
+The officer commanding the attack raised his hand. Held it. Waiting for the perfect moment.
 
+Then dropped it.
+
+Somewhere on the rim above the cave, soldiers saw the signal.
+
+The attack began.
 
 ***
 
-**[End Chapter 7]**
+**[End Chapter 8]**
 
-*Word count: ~1,200*
-*Scene location: Mesa above Salt River Canyon - capture site*
-*Approximate timeframe: December 27, 1872 (night before massacre)*
+*Word count: ~1,350*
+*Scene location: Approaching and reaching Salt River Canyon*
+*Approximate timeframe: December 27-28, 1872*
 *Age: Hoomothya approximately 8-10 years old*
 
 **Historical notes:**
-- Mike Burns's testimony states Army scouts captured him and forced him to reveal the cave location
-- His uncle was killed during or near the time of capture
-- The scouts were likely Pima (Akimel O'odham) and Maricopa auxiliaries
-- Captain William H. Brown commanded the attack operation
-- Captain James Burns remained on the mesa and never went down to the cave site
-- Mike's burden of having revealed the cave location, even under threat of death, haunted him his entire life
-- He was approximately 7-10 years old—accounts vary
-- Hoomothya did not speak English at this time; all communication was through scouts using broken Yavapai and gestures
+- Mike Burns was forced to guide soldiers to the cave location
+- He was present during the attack, watching from a nearby position
+- The deliberate positioning of forces above and below the cave was part of the tactical plan
+- The attack began at dawn when defenders would be silhouetted at the cave entrance

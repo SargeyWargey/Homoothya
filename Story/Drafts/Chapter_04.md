@@ -1,10 +1,10 @@
-# CHAPTER 6: THE CHOICE
+# CHAPTER 4: THE CHOICE
 
 ## July 1885
 
 The last missionary I heard at Highland traced Arizona Territory on a map hung behind the pulpit. He smudged chalk across the Salt River and called it a land of empty mesas waiting for Christian plows. I sat in the back pew and kept my hands folded. I knew the names of the mesas he called empty.
 
-Two mornings later President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained I would need to pay my own board. If I could not, I was to report back to the agency in Arizona before the end of July. The words were clipped, the ink already fading along the fold.
+Two mornings later President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained I would need to pay my own board. If I could not, I was to report back to the agency in the Territory before the end of July. The words were clipped, the ink already fading along the fold.
 
 I had no savings beyond the few dollars I earned pruning trees. I sold my algebra text to a younger student, traded my winter coat to the farm foreman for a train voucher, and packed my trunk with the care one uses for a borrowed thing. That night I walked the crest of the hill and watched lightning split a bank of clouds far to the south. The air carried the smell of rain moving away from me.
 

@@ -1,170 +1,180 @@
-# Chapter 21: The Guide
+# Chapter 21: December 28, 1872
 
-The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited—the main force, converging from different directions.
+The first shot cracked across the morning like thunder.
 
-The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way. No tricks. Or die."
+From my position on the rise, I saw the sentry at the cave entrance drop. Just... drop. One moment standing, looking out at the peaceful dawn. The next moment gone.
 
-I walked.
+Then the world exploded.
 
-I walked through country I'd only seen once before. Last night. Following my uncle's footsteps in darkness.
+Gunfire erupted from everywhere at once. From above the cave. From the slopes below. From positions I hadn't even known the soldiers occupied. The sound was overwhelming, echoing off the canyon walls, multiplying until it seemed like the whole earth was screaming.
 
-Now, in daylight, I could see it all. The rocks. The juniper. The turn of the path.
+I could see the cave entrance clearly from where I stood. Could see people stumbling out, confused, terrified. Could see them fall as bullets found them.
 
-Now I was retracing those steps to bring death to my family.
+Could see them try to retreat back into the cave.
 
-The Pima scout kept his hand on my shoulder. Not gentle. A reminder that I was his prisoner, his tool. Behind us, the soldiers followed quietly. Professional. Efficient.
+Into the trap.
 
-The officers walked near the front, watching me. Watching the land. Occasionally they'd signal the column to stop while they studied the terrain.
+The officer beside me said something coldly in English. I didn't understand the words but I understood the tone. Keep firing. Don't stop.
 
-We were getting closer. I could feel it in my bones. See it in the shape of the hills. The way the land folded toward the canyon.
+The gunfire continued. Relentless. The soldiers above the cave were firing straight down into the entrance. I could see the muzzle flashes. Could see people trying to run, trying to hide, trying to protect their children.
 
-Every step was a betrayal.
+But it was too dark inside the cave to see faces. Too far to recognize individuals. Just shapes. Figures. People dying.
 
-Every step took me closer to the moment when everything would end.
+My people.
 
-The sun rose higher. The December morning grew warmer. Beautiful weather for the end of the world.
+A woman ran from the cave entrance, something bundled in her arms. A child. A baby maybe.
 
-At midday, one of the officers called a halt. We stopped in a draw, hidden from view. The soldiers passed around canteens, ate cold rations. One offered me water.
+She made it three steps before the bullets found her.
 
-I drank because my throat was dust. But I couldn't eat.
+She fell forward, her body curling around whatever she carried. Protecting it with her last breath.
 
-One of the scouts came over and spoke to me in broken Yavapai with gestures. How much farther?
+I couldn't see if it was my mother. Couldn't see if that was my sister.
 
-I gestured. Close. Not far.
+But someone's mother had just died. Someone's sister.
 
-The scout nodded and communicated this to the officers. They spoke among themselves, then one of them gestured through the scout: When we get close, I show them from a distance. Point it out. Then they take me to a safe position. Wait there.
+And I had led the soldiers here.
 
-Safe position. As if anywhere would be safe when what was about to happen happened.
+One of the soldiers near us said something. He sounded sick.
 
-I didn't respond.
+But the shooting didn't stop. Couldn't stop. Had its own momentum now.
 
-We walked on through the afternoon. The land grew more recognizable with every step. That outcropping I'd passed in darkness. That stand of juniper barely visible by moonlight.
+I sank to my knees, my hands over my ears, but I couldn't block out the sounds. The gunfire. The screams. The ricochets singing off stone.
 
-Everything looked different in daylight. But the path was the same.
+And then a new sound. A deep grinding. Cracking.
 
-Only what I was doing in it had changed.
+Through eyes blurred with tears, I saw soldiers on the rim above the cave. They were prying at something. Pushing.
 
-As the sun began its descent toward evening, I recognized the final approaches. We were less than a mile from the canyon now. From the cave.
+A boulder.
 
-From my family.
+It teetered at the edge. Then fell.
 
-My steps slowed. The scout's hand tightened on my shoulder. Through gestures: "Keep walking."
+It didn't fall straight down. It bounced off the cliff face, shattering into fragments. The pieces rained down on the cave entrance like deadly hail. I heard the impacts. Heard screaming that might have been my imagination or might have been real.
 
-But my legs wouldn't move. Couldn't. To go farther would be to...
+More boulders followed. The soldiers above had found an efficient method. Why waste bullets when gravity would do the work?
 
-The scout shoved me forward. I stumbled, fell to my knees.
+The rocks fell. Bounced. Shattered. Crushed anything below.
 
-One of the officers was there quickly. He said something sharp to the scout, who backed off muttering. Then the officer pulled me to my feet through another scout's translation and gestures, his grip firm but not cruel.
+Anyone below.
 
-Through broken words and gestures, they made me understand: almost over. Show them where. Then rest.
+"Make them stop," I begged in Yavapai. "Please. Make them stop. Please."
 
-Rest. As if I would ever rest again after this.
+No one answered. The soldiers' faces were gray. But no one gave the order to cease fire.
 
-But I got to my feet. Kept walking. Because what choice did I have? The knife was always there. Death was always the alternative.
+Maybe they couldn't. Maybe this thing they'd started had to run its course. Had to burn itself out like wildfire, consuming everything before it died.
 
-And I'd already chosen life.
+The gunfire began to slow. Not because the soldiers were stopping, but because there were no more targets. No more movement at the cave entrance. No more people trying to escape.
 
-We crested a low rise and there it was. The canyon. The cliffs rising on the far side. And somewhere in those cliffs, hidden high above, the cave where my family slept.
+Just silence punctuated by occasional shots. Soldiers making sure.
 
-Where everyone I loved waited, unknowing.
+And then even those stopped.
 
-The officer saw me freeze. Saw me staring at the canyon. He raised his hand and the column stopped.
+The silence that followed was worse than the noise had been.
 
-Through a scout, the officer asked: "There?"
+Smoke drifted across the canyon. From guns. From fires started inside the cave—I could see smoke coming from the entrance.
 
-I nodded.
+The officer stood watching, his face hard. Then he nodded.
 
-More gestures: "Where exactly? Show."
+He said something in English. His voice was flat. Empty. Orders to send men in to count the dead. Secure the area.
 
-I raised my hand slowly. Pointed at the north wall. At the section of cliff where, if you knew what to look for, you could just barely see the dark shadow that meant cave entrance.
+I watched soldiers scramble down to the cave. Watched them disappear into that dark entrance where my family had died.
 
-"There," I whispered.
+Where my mother had probably died.
 
-The officer pulled out his brass tube. Studied the cliff for a long time. Then he nodded, satisfied.
+Where my father had tried to protect everyone.
 
-He said something to his other officers. They looked through the tube, nodded agreement. High up. Defensible from below. But they could get above it.
+Where Grandmother had prayed.
 
-He turned to one of his men. The soldier saluted and rode off—going to bring up the main force. They'd confirmed the location. Would position tonight, attack at dawn.
+Where everyone I'd ever loved had been slaughtered in a stone box with nowhere to run.
 
-Through the scouts, they told me: "You did well. Now you rest."
+Because I'd led the soldiers here.
 
-But I wasn't done. Not yet. Because as the afternoon wore into evening, more soldiers arrived. More than I'd ever seen. They spread out through the draws and arroyos, staying hidden from the canyon, positioning themselves.
+The soldiers began emerging from the cave. Some looked shaken. One stumbled away and vomited. Another sat down hard, his head in his hands.
 
-And they kept me with them. Close enough to answer questions through the scouts. Close enough to confirm details. Close enough to watch as they planned how to kill my family most efficiently.
+The officer walked down toward the cave to inspect. When he returned, his uniform was dusty but his face showed satisfaction. A job completed.
 
-I watched the officers studying a map, pointing, tracing routes. The scouts translated some of it, explaining to each other in broken Yavapai what was being planned. The approach from above. Along the rim. Men positioned directly above the cave mouth before dawn. When the sun rises, anyone in the entrance will be silhouetted. Easy targets.
+I heard him report to his other officers. Numbers. All women, children, and old men. A few were still alive when they went in. The scouts finished them.
 
-And below—sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
+Finished them. Crushed their skulls with rifle butts and rocks, I would later learn. Making sure.
 
-I understood enough from the scouts' broken words and gestures. Understood they were planning to trap my family. To surround them.
+Making sure there were no survivors.
 
-Only one way out. The main entrance. If they position men above and below, trapped.
+Except me.
 
-Trapped. In the cave they'd chosen for safety.
+I didn't remember falling. Didn't remember hitting the ground. But suddenly I was lying in the dirt, my face pressed against stone, and I couldn't breathe. Couldn't think. Couldn't do anything but feel the world ending.
 
-Because I'd told the soldiers where it was.
+A soldier pulled me up. Not roughly, but not gently either. Just doing his job.
 
-That night they made me sleep near the main camp. Not tied anymore—where would I run?—but guarded. Always watched.
+Through one of the scouts, the officer said to take me back up to the mesa camp.
 
-I lay wrapped in a blanket and stared at stars. The same stars shining down on the cave where my family slept.
+They put me on a horse. My hands weren't tied but they might as well have been. I had nowhere to go. No one to go to.
 
-Did my mother dream of me? Did she think I was dead? Did my father plan to search for me when it was safer?
+Everyone was dead.
 
-Did little Nashta cry for her big brother who'd promised to always protect her?
+As they led me away from the canyon, back toward the mesa camp, I looked back once.
 
-I'd broken every promise. Every bond. Every obligation.
+Smoke still rose from the cave entrance. I'd heard numbers through the scouts' broken Yavapai. Over seventy bodies, they said.
 
-All to save my own life.
+Seventy souls. Men and women and children and elders.
 
-Around midnight, I heard movement. Soldiers moving out in the darkness. Taking their positions above the cave. Getting ready.
+All dead because an eight-year-old boy had whispered "cave" when a knife was at his throat.
 
-I tried to pray. Tried to send warnings across the distance. Tried to imagine some way this wouldn't happen.
+All dead because I'd chosen life over honor.
 
-But it was going to happen. At dawn. In a few hours.
+When we reached the mesa camp, a white officer was waiting. I'd never seen him before—he must have stayed up here during the attack. He looked older than the others. The lines in his face were deep. His eyes tired.
 
-And I had led them here.
+He came over as they lifted me down from the horse. Looked at me for a long moment.
 
-As the sky began to lighten—gray, then pink, then gold—a soldier came and pulled me to my feet.
+"It's done," he said quietly in English. More to himself than to me.
 
-Through one of the scouts, he said the officer wanted me moved forward.
+I said nothing. Had no words left.
 
-I was led down from the mesa camp toward a position closer to the canyon—close enough to see the assault. The officer who would command the attack was there, checking positions, giving orders.
+Through the scouts, he told me: I would come with him. He would take responsibility for me. See me cared for. Educated. Given a chance.
 
-He saw me approach and spoke to one of his men through gestures. They positioned me nearby where I could see. Where I would have to watch.
+A chance. At what? At forgetting? At becoming someone else?
 
-They positioned me on a small rise. Not far back—close enough to see the cave entrance clearly across the canyon. Close enough to see everything.
+At living with what I'd done?
 
-I looked through the morning light toward the cave. I could see the dark opening in the cliff face. Could see the approach. Could see soldiers positioned above on the rim. Below on the slopes.
+I didn't answer. Just stood there, hollow and empty, while he made arrangements through the scouts.
 
-My family was waking up in that cave. Starting their day. Thinking they were safe.
+As the sun set that day—December 28, 1872—painting the sky in colors Grandmother would have loved, I looked back toward the canyon one last time.
 
-Not knowing that above them, below them, all around them, hundreds of armed men waited for the signal.
+The canyon was just a dark line on the horizon. You wouldn't know anything terrible had happened there. Wouldn't know the world had ended in stone and gunfire and falling rocks.
 
-Not knowing their son and grandson and nephew had led them here.
+But I knew. Would always know.
 
-The sun rose higher. Full light now.
+The sight of people falling at the cave entrance.
 
-And then, so faint at first, movement at the cave entrance. A figure appeared. One of the sentries. Looking out at the morning. Seeing nothing wrong.
+The sound of boulders crushing bone.
 
-The officer commanding the attack raised his hand. Held it. Waiting for the perfect moment.
+The ricochets singing off stone deep in the cave where it was too dark to see but not too dark to die.
 
-Then dropped it.
+The silence that followed.
 
-Somewhere on the rim above the cave, soldiers saw the signal.
+And the knowledge that I had guided them there. Had brought death to my people. Had walked at the front of the column showing soldiers the way.
 
-The attack began.
+I was Hoomothya. The only survivor. The witness.
+
+Trying to carry the unbearable weight of being the only one living to tell.
 
 ***
 
-**[End Chapter 8]**
+**[End Chapter 9]**
 
-*Word count: ~1,350*
-*Scene location: Approaching and reaching Salt River Canyon*
-*Approximate timeframe: December 27-28, 1872*
+*Word count: ~1,500*
+*Scene location: Salt River Canyon, witnessing Skeleton Cave Massacre*
+*Approximate timeframe: December 28, 1872*
 *Age: Hoomothya approximately 8-10 years old*
 
 **Historical notes:**
-- Mike Burns was forced to guide soldiers to the cave location
-- He was present during the attack, watching from a nearby position
-- The deliberate positioning of forces above and below the cave was part of the tactical plan
-- The attack began at dawn when defenders would be silhouetted at the cave entrance
+- Mike Burns witnessed the Skeleton Cave Massacre from a nearby position
+- Army reported 76 dead; Mike recalled around 225 people in the cave—a historically documented discrepancy
+- Many deaths resulted from ricocheting bullets and rock fragments inside the stone cave
+- Soldiers on the rim above pushed boulders down onto people at the cave entrance
+- Approximately 120 soldiers and 100+ Pima and Maricopa auxiliaries participated
+- Captain William H. Brown commanded the attack from a position near the canyon
+- Captain James Burns remained on the mesa and never physically went to the cave site
+- Captain Burns took custody of Mike after the massacre
+- Survivors found alive in the cave were killed by the auxiliary scouts
+- Mike was renamed "Mike Burns" and became Captain Burns's ward/adoptive son
+- This massacre effectively ended Yavapai resistance in the region
+- Hoomothya did not speak English at this time; all communication was through the Native scouts

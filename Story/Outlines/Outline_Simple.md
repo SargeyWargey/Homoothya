@@ -1,6 +1,6 @@
 # Mike Burns Novel - Simplified Outline
 
-**Structure**: Prologue + 37 Chapters + Epilogue
+**Structure**: Prologue + 34 Chapters + Epilogue
 
 **Recent Changes**:
 - Chapters 8, 9, and 10 from previous outline condensed into new Chapter 8: "Broken Promises - A Witness Account"
@@ -18,7 +18,7 @@
 ## ACT I: MIKE BURNS'S LIFE (Chapters 1-12)
 *Mike's partial life story and Carlos's intervention*
 
-### CHAPTER 1: LEARNING TO BE AMERICAN
+### CHAPTER 1: MICKEY
 **Date**: 1873-1874 (ages 8-9)
 **Location**: With Burns family as servant
 **POV**: First-person (Mike)
@@ -82,125 +82,121 @@
 
 ---
 
-## ACT II: HOOMOTHYA'S STORY (Chapters 13-21)
-*Mike writes Hoomothya's manuscript in third person; mystery deepens*
+## ACT II: HOOMOTHYA'S STORY (Chapters 13-22)
+*Mike records Hoomothya's life in first person; the witness voice drives toward the massacre*
 
 ### CHAPTER 13: THE MESQUITE HARVEST (Manuscript Chapter 1)
 **Date**: Late spring/summer, c. 1870-1871
 **Location**: Salt River region
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+**POV**: First-person (Hoomothya)
 
 ### CHAPTER 14: THE LESSONS (Manuscript Chapter 2)
 **Date**: c. 1870-1871
 **Location**: Hunting grounds
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 15: MOTHER'S DEATH (Manuscript Chapter 3)
-**Date**: Before December 1872
-**Location**: Near Mormon Flat
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
 
-### CHAPTER 16: THE WHISPERS (Manuscript Chapter 4)
+### CHAPTER 15: THE WHISPERS (Manuscript Chapter 3)
 **Date**: Early December 1872
 **Location**: Yavapai camp
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 17: THE CLIMB (Manuscript Chapter 5)
+### CHAPTER 16: THE CLIMB (Manuscript Chapter 4)
 **Date**: Mid-December 1872
 **Location**: Journey to Skeleton Cave
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 18: DECEMBER 22, 1872 (Manuscript Chapter 6)
-**Date**: December 22, 1872 (morning)
-**Location**: Near Skeleton Cave
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+### CHAPTER 17: THE CAVE (Manuscript Chapter 5)
+**Date**: Late December 1872
+**Location**: Skeleton Cave interior
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 19: SIX DAYS (Manuscript Chapter 7)
+### CHAPTER 18: SIX DAYS (Manuscript Chapter 6)
 **Date**: December 22-27, 1872
-**Location**: With soldiers, approaching canyon
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+**Location**: Skeleton Cave and surrounding canyon
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 20: DECEMBER 28, 1872 (Manuscript Chapter 8)
-**Date**: December 28, 1872 (massacre)
-**Location**: Skeleton Cave
-**POV**: Third-person limited (Hoomothya)—Mike's manuscript
+### CHAPTER 19: TAKEN (Manuscript Chapter 7)
+**Date**: Evening of December 27, 1872
+**Location**: Rim above Salt River Canyon
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 21: BROUGHT TO BURNS (Manuscript Chapter 9)
-**Date**: Late December 1872 - Early 1873
-**Location**: With Captain Burns
-**POV**: Third-person limited (Hoomothya)—manuscript
+### CHAPTER 20: THE GUIDE (Manuscript Chapter 8)
+**Date**: December 28, 1872 (pre-dawn to midday)
+**Location**: March to Skeleton Cave
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 22: THE REVEAL - "I WAS HOOMOTHYA"
-**Date**: July 1934
-**Location**: Fort McDowell, completing manuscript
-**POV**: First-person (Mike)
+### CHAPTER 21: DECEMBER 28, 1872 (Manuscript Chapter 10)
+**Date**: December 28, 1872
+**Location**: Rim above Skeleton Cave
+**POV**: First-person (Hoomothya)
 
-### CHAPTER 23: THE JOURNEY TO THE CAVE
-**Date**: Early 1923 (January)
-**Location**: Fort McDowell, journey to Skeleton Cave
-**POV**: First-person (Mike, age ~57-58)
+### CHAPTER 22: ONLY ONE (Manuscript Chapter 9)
+**Date**: December 28, 1872 – early January 1873
+**Location**: Army column moving north
+**POV**: First-person (Hoomothya)
 
 ---
 
-## ACT III: THE WITNESS (Chapters 24-35)
+## ACT III: THE WITNESS (Chapters 23-34)
 *Publication journey, death, posthumous triumph - post-reveal*
 
-### CHAPTER 24: THE LETTER
+### CHAPTER 23: THE LETTER
 **Date**: January 6, 1910
 **Location**: Phoenix, Arizona
 **POV**: First-person (Mike)
 
-### CHAPTER 25: REJECTION
+### CHAPTER 24: REJECTION
 **Date**: 1910-1920s
 **Location**: Arizona
 **POV**: First-person (Mike)
 
-### CHAPTER 26: CARLOS'S RETURN
+### CHAPTER 25: CARLOS'S RETURN
 **Date**: Early 1923
 **Location**: Fort McDowell
 **POV**: First-person (Mike)
 
-### CHAPTER 27: THE BURIAL
+### CHAPTER 26: THE BURIAL
 **Date**: January 31, 1923
 **Location**: Fort McDowell Cemetery (Ba Dah Mod Jo Cemetery)
 **POV**: First-person (Mike)
 
-### CHAPTER 28: TWENTY-FOUR YEARS
+### CHAPTER 27: TWENTY-FOUR YEARS
 **Date**: 1910-1934 (with focus on 1923-1934 post-Carlos)
 **Location**: Arizona, various
 **POV**: First-person (Mike)
 
-### CHAPTER 29: COMPLETION
+### CHAPTER 28: COMPLETION
 **Date**: September 1934
 **Location**: Fort McDowell
 **POV**: First-person (Mike)
 
-### CHAPTER 30: AUTUMN
+### CHAPTER 29: AUTUMN
 **Date**: October-November 1934
 **Location**: Fort McDowell
 **POV**: First-person (Mike)
 
-### CHAPTER 31: NOVEMBER 26, 1934
+### CHAPTER 30: NOVEMBER 26, 1934
 **Date**: November 26, 1934
 **Location**: Fort McDowell
 **POV**: First-person → third-person at death
 
-### CHAPTER 32: SILENCE
+### CHAPTER 31: SILENCE
 **Date**: 1934-2000s
 **Location**: Sharlot Hall Museum archives
 **POV**: Third-person omniscient
 
-### CHAPTER 33: REDISCOVERY
+### CHAPTER 32: REDISCOVERY
 **Date**: 2000s-2010
 **Location**: Sharlot Hall Museum, editorial offices
 **POV**: Third-person (following scholars)
 
-### CHAPTER 34: THE SECOND BOOK
+### CHAPTER 33: THE SECOND BOOK
 **Date**: 2005-2012
 **Location**: University of Arizona Press
 **POV**: Third-person
 
-### CHAPTER 35: READERS
+### CHAPTER 34: READERS
 **Date**: 2010-present
 **Location**: Various (people reading)
 **POV**: Third-person omniscient
@@ -225,5 +221,5 @@
 **Act III (12 chapters)**: Journey to Cave + Publication journey, death, legacy (1923-present)
 **Epilogue**: Present day
 
-**Total**: 35 chapters + Prologue + Epilogue
+**Total**: 34 chapters + Prologue + Epilogue
 **Target Word Count**: ~98,500 words
