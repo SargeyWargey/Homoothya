@@ -8,7 +8,7 @@ The Prescott courthouse smelled of furniture oil and old tobacco. I stood at the
 
 "I've come to register," I said.
 
-He glanced at my clothes—clean shirt, hat in hand—then at my face. His pen hovered above the page while he calculated something behind his eyes.
+He glanced at my clothes, noting the clean shirt and hat in hand, then at my face. His pen hovered above the page while he calculated something behind his eyes.
 
 "Under the Burke Act?"
 
@@ -40,7 +40,7 @@ The word sat in the air between us. I could feel it pulling at the careful dista
 
 He blinked. His pen dipped again into the inkwell. "You'll need to provide evidence you've severed tribal relations. Can you do that?"
 
-I nodded. The words I carried inside—*I severed nothing. They severed me*—stayed behind my teeth.
+I nodded. The words I carried inside, *I severed nothing. They severed me*, stayed behind my teeth.
 
 "And you've been deemed competent by the Department of the Interior?"
 
@@ -64,7 +64,7 @@ He copied information from the certificate onto the registration form. His handw
 
 He wrote it down. Then he turned the ledger toward me and offered the pen. "Sign here."
 
-The nib felt light in my fingers. I had signed government papers before—enlistment forms, discharge documents, land agreements that dissolved like smoke the moment they became inconvenient. This signature felt different. It was not permission to serve or permission to survive. It was a claim. A line drawn in ink that said I existed, I counted, my voice would be heard.
+The nib felt light in my fingers. I had signed government papers before: enlistment forms, discharge documents, land agreements that dissolved like smoke the moment they became inconvenient. This signature felt different. It was not permission to serve or permission to survive. It was a claim. A line drawn in ink that said I existed, I counted, my voice would be heard.
 
 I signed my name.
 
@@ -72,7 +72,7 @@ The clerk blotted the signature and closed the ledger. "You can vote in the next
 
 "I know him," I said. It was not quite true. I had met him once at a land hearing where he had listened more than he spoke. That was enough to call him a friend in a territory where most men did not bother listening at all.
 
-The clerk handed me a registration card. My name, my age, my occupation, all reduced to a few lines of type. Proof that Mike Burns—former scout, former student, former prisoner—was now a citizen with the right to cast a ballot.
+The clerk handed me a registration card. My name, my age, my occupation, all reduced to a few lines of type. Proof that Mike Burns, former scout, former student, former prisoner, was now a citizen with the right to cast a ballot.
 
 I folded the card into my pocket beside the certificate and walked out into the Prescott morning.
 
@@ -90,7 +90,7 @@ A man passed me on the steps, tipping his hat without meeting my eyes. Another c
 
 I thought of Chehata waiting at home. She would ask how it went, and I would tell her I was registered. She would nod and say it was good, that our children would remember their father was the first. She would not ask what it cost to be first, because she already knew.
 
-The cost was written into every requirement of the Burke Act. To gain citizenship I had to prove I was competent—as if surviving Skeleton Cave, Carlisle, and two enlistments was not proof enough. I had to prove I lived apart from the tribe—as if the massacre that killed my family was a choice I made. I had to prove I had adopted "the habits of civilized life"—as if the Yavapai way of life I had known as a boy was something barbaric that needed replacing.
+The cost was written into every requirement of the Burke Act. To gain citizenship I had to prove I was competent, as if surviving the siege that took my family, Carlisle, and two enlistments was not proof enough. I had to prove I lived apart from the tribe, as if the losses forced on me had been my choice. I had to prove I had adopted "the habits of civilized life," as if the Yavapai way of life I had known as a boy was something barbaric that needed replacing.
 
 I had proven all of it. And in proving it, I had given the government exactly what it wanted: my silence.
 
@@ -124,7 +124,7 @@ He scribbled notes. "Where'd you learn English?"
 
 "And you severed tribal relations?"
 
-The question landed like a stone in still water. I could answer truthfully and tell him my relations were severed when soldiers killed them in a cave. Or I could answer carefully and give him the story he expected.
+The question landed like a stone in still water. I could answer truthfully and tell him my relations were severed when soldiers trapped them and ended their lives. Or I could answer carefully and give him the story he expected.
 
 I chose carefully.
 
@@ -140,13 +140,15 @@ He wrote it down without questioning what those words meant or what they cost. "
 
 The reporter nodded and closed his notepad. "This'll run in tomorrow's edition. First Indian voter in Arizona Territory. People will want to know about this."
 
-I thanked him and left before he could ask more questions. Outside, the sun had climbed higher. The street noise pressed against me—wagon wheels, voices, the clang of a blacksmith's hammer. I walked through it all feeling like a man caught between two truths.
+I thanked him and left before he could ask more questions. Outside, the sun had climbed higher. The street noise pressed against me: wagon wheels, voices, the clang of a blacksmith's hammer. I walked through it all feeling like a man caught between two truths.
 
 The first truth: I was now a citizen with the right to vote.
 
 The second truth: I had gained that right by denying the very people whose story I intended to tell.
 
 ---
+
+On the road out of Prescott I passed the weathered sign that pointed toward Fort Whipple. Seeing the name tightened something behind my ribs. I kept my horse aimed toward home. Some memories must wait until a man can lift them without breaking.
 
 The ride home took most of the afternoon. I followed familiar roads through high desert that had witnessed more broken promises than I could count. By the time I reached the house, shadows stretched long across the yard.
 
@@ -170,7 +172,7 @@ She crossed the room and took my hands. Her fingers were warm from the stove. "T
 
 She squeezed my hands. "And now you'll use the rights those words bought you. You'll vote for men who listen. You'll write letters they have to answer because you're a citizen. You'll speak for the people who can't speak for themselves yet."
 
-I looked at her and saw the same fierce certainty that had drawn me to her years ago. She had never doubted that I could live in both worlds without losing myself in either. She believed I could be Mike Burns the citizen and still honor Hoomothya the boy who died in a cave so Mike could survive.
+I looked at her and saw the same fierce certainty that had drawn me to her years ago. She had never doubted that I could live in both worlds without losing myself in either. She believed I could be Mike Burns the citizen and still honor the boy who had to disappear so Mike could survive.
 
 "What if it's not enough?" I asked.
 
@@ -194,7 +196,7 @@ Chehata looked up from her mending. "Apache Mohave?"
 
 "They always do."
 
-I folded the newspaper and set it aside. The reporter had recorded the facts but missed the truth. I was not Apache Mohave. I was Yavapai. My people had been slaughtered in a cave while the government called it a victory. My family had been erased while officers wrote reports praising their own efficiency. And now a newspaper celebrated my citizenship by erasing my identity one more time.
+I folded the newspaper and set it aside. The reporter had recorded the facts but missed the truth. I was not Apache Mohave. I was Yavapai. My people had been trapped and slaughtered while the government called it a victory. My family had been erased while officers wrote reports praising their own efficiency. And now a newspaper celebrated my citizenship by erasing my identity one more time.
 
 But I had the registration card. I had the right to vote. And I had the determination to use that right in service of the people the newspaper could not be bothered to name correctly.
 
@@ -202,7 +204,7 @@ But I had the registration card. I had the right to vote. And I had the determin
 
 I picked up the paper again and smoothed the creases. She was right. This was not the end of anything. It was a beginning.
 
-I had spent my childhood as Hoomothya, learning to track deer and gather mesquite and listen to the stories elders told by firelight. I had spent my youth as Mike Burns, learning English and mathematics and how to survive in a world that wanted to remake me in its own image. I had spent my adulthood trying to reconcile the two, trying to be both Yavapai and citizen, both witness and participant.
+I had spent my childhood under a name I no longer spoke, learning to track deer and gather mesquite and listen to the stories elders told by firelight. I had spent my youth as Mike Burns, learning English and mathematics and how to survive in a world that wanted to remake me in its own image. I had spent my adulthood trying to reconcile the two, trying to be both Yavapai and citizen, both witness and participant.
 
 Now I had the legal right to speak. The question was whether anyone would listen.
 
@@ -210,7 +212,7 @@ Now I had the legal right to speak. The question was whether anyone would listen
 
 In November I rode back to Prescott to cast my ballot. The courthouse was busier this time, crowded with men who took their citizenship for granted. I waited in line like everyone else. When my turn came, the clerk glanced at my registration card and handed me a ballot without comment.
 
-I marked my choice for Governor—Judge Ed. W. Wells, a man who had listened when others turned away—and folded the paper carefully. The ballot box was plain wood with a slot cut in the top. I slid the ballot through and heard it land softly on top of the others.
+I marked my choice for Governor, Judge Ed. W. Wells, a man who had listened when others turned away, and folded the paper carefully. The ballot box was plain wood with a slot cut in the top. I slid the ballot through and heard it land softly on top of the others.
 
 One vote among hundreds. One voice in a chorus that rarely made room for voices like mine.
 
@@ -218,18 +220,24 @@ But it was a start.
 
 Outside, the autumn air smelled of wood smoke and distant rain. I stood on the courthouse steps and looked out over Prescott's streets. Somewhere in this territory, Yavapai families were rebuilding lives on reservation land the government had promised them temporarily and would try to take away permanently. Somewhere, children were learning English in boarding schools designed to kill the Indian and save the man. Somewhere, elders were dying with stories no one had bothered to record.
 
-I could not save them all. I could not undo the massacre or bring back the dead or restore what had been stolen. But I could vote. I could write. I could witness.
+I could not save them all. I could not undo what had been done or bring back the dead or restore what had been stolen. But I could vote. I could write. I could witness.
 
 I could be the first.
 
 And if I was the first, others would follow. Slowly, painfully, against the current of a government that preferred us silent and invisible. But they would follow.
 
-I descended the steps and mounted my horse. The ride home would take hours, but Chehata would be waiting. She always was. And tonight, when the children asked what I had done, I would tell them I voted.
+I descended the steps and mounted my horse, the November sun warm across my shoulders. Beyond the edge of town the sign for Fort Whipple rose beside the road. In July I had ridden past and let the ache settle deeper. Today the lift in my chest from casting a ballot steadied me. I turned the reins toward the post.
+
+The road curved through granite outcroppings until the fort came into view with its whitewashed hospital and orderly rows of quarters. I left the horse near the parade ground and walked alone to the house where the Burnses had lived. The porch rail still bore the grooves of a boyhood spent learning how to stand straight, how to polish brass, how to live inside someone else's family. The windows stared back empty. I stayed on the path, close enough to feel the past rise but far enough to honor the distance time had put between us.
+
+Memories gathered like monsoon clouds. Annie correcting my place settings. Katie's doll abandoned on the steps. Captain Burns fastening my collar before inspection, his pride and my confusion braided together. Every kindness he had shown me was soldered to the violence that had made me his ward. Standing in that yard years later, I felt both at once, the love that kept me alive and the loss that shadowed it.
+
+I touched the porch post with my fingertips. "I made it this far, Captain," I whispered. I told him about the ledger, about the ballot slipped into the box, about the citizenship he had once promised would mean something. Ireland remained a dream neither of us reached, but I had kept moving, as he told me to.
+
+When the air grew cool, I returned to the horse and steered back toward the main road. The fort shrank behind me until it was only memory again.
+
+The ride home would take hours, but Chehata would be waiting. She always was. And tonight, when the children asked what I had done, I would tell them I voted.
 
 I would tell them their father was a citizen.
 
-And someday, when they were old enough to understand, I would tell them what that citizenship cost, and why it mattered anyway.
-
----
-
-**[End of Chapter 10: ~2,470 words]**
+And someday, when they were old enough to understand, I would tell them what that citizenship cost, and why it mattered.

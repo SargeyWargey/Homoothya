@@ -1,290 +1,177 @@
-# CHAPTER 9: THE LAND
+# CHAPTER 9: BROKEN PROMISES - A WITNESS ACCOUNT
 
-## 1903-1905
-
----
-
-The letter arrived in winter, carried by a Phoenix trader who knew I read English. The envelope bore my name in bold script. Inside, Carlos Montezuma's handwriting ran neat and urgent across the page.
-
-*Cousin,*
-
-*I am writing to warn you. The Interior Department intends to remove Fort McDowell's people to Salt River Reservation. They claim the land is needed for the city's growth. They will say it is for your benefit. Do not believe them.*
-
-*Keep McDowell land. Keep Verde River water. These are not theirs to take.*
-
-*I am fighting for you in Washington and Chicago. But you must fight there, on the ground. Organize. Refuse. Make them hear your voice.*
-
-*Your cousin,*
-*Carlos*
-
-I read the letter twice before folding it carefully and placing it in my ledger. Chehata looked up from the venison she was slicing for drying.
-
-"What does he say?"
-
-"They want to move us again."
-
-Her knife paused mid-cut. "Where?"
-
-"Salt River Reservation."
-
-The blade struck the cutting board hard enough to split the wood beneath. "Among the Pima?"
-
-I nodded.
-
-"No." Her voice was flat, final. "The Pima killed our people. Guided soldiers to the canyon. My grandmother remembers their faces."
-
-"I know."
-
-"Then you tell them no." She pointed the knife at the letter. "You tell Carlos we are not moving. And you tell the agent the same."
-
-I had never heard such steel in her voice. It steadied something inside me that had been wavering since the envelope arrived.
-
-"I will."
+## 1905-1909
 
 ---
 
-The agency superintendent arrived three weeks later with maps rolled beneath his arm and a smile that never reached his eyes. He spread the maps across the table at the community center while families gathered to hear what he called a "generous opportunity."
+The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
 
-"The Salt River Reservation offers superior farmland," he said, smoothing the corners with pale fingers. "More water. Better soil. Modern irrigation systems already in place."
+Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our grandparents' generation. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
 
-He did not mention that those modern systems served white farmers downstream first.
+I reached for the bundle of pages I had kept wrapped in oilcloth beneath our bedroll. The papers rustled as I unfolded them, edges worn from handling. They were the pages born from the ledger entries I'd begun after Carlos's last letter, testimonies gathered beside cook fires and irrigated fields. Each sheet pressed proof against my palm that the confidence I'd found before the committee had not faded. Chehata's needle paused mid-stitch.
 
-"You'll be neighbors with the Pima people," he continued. "They've been very successful. You could learn from their example."
+"Is that what you've been writing?" she asked.
 
-George Dickens, older than me by fifteen years and respected for his steady judgment, spoke first. "The Pima were scouts against us. They helped hunt our families."
+I nodded. My throat felt tight. "I need you to tell me if I captured it right." The words came out rougher than I intended. Power had come when I faced congressmen, but this felt more fragile; these pages held the memories of those who trusted me. "You know these stories. Your family lived through San Carlos. Your grandmother walked the March. Did I tell it true?"
 
-The superintendent's smile tightened. "That was long ago. We must move forward."
+She set the mending aside and straightened, giving me her full attention. The lamplight made shadows of the lines around her eyes, lines earned from raising six children, from years of drought and struggle, from carrying the weight of what our people had endured.
 
-"You're asking us to move forward by moving onto their land?" I kept my voice level, the way I had learned in Army service when addressing officers. "To leave our river for theirs?"
+"Read it to me," she said.
 
-"The government owns all reservation land, Mr. Burns. We're offering you a better location."
+I smoothed the first page against the table. My hands shook slightly. These were not just words. They were the testimony of elders who had trusted me with their memories, the accounting of promises broken and lives lost. If I had failed to honor them, I didn't know how I would face her.
 
-"This is not your land to offer." The words came before I could measure them. "President Roosevelt reserved Fort McDowell for Yavapai use. That order stands."
+"Mike." Chehata's voice was gentle. "Read."
 
-The superintendent folded his map with deliberate care. "Executive orders can be modified. The needs of Phoenix are growing. Water must be allocated efficiently."
+I took a breath and began.
 
-"Efficiently." I let the word hang in the air. "You mean given to white farmers."
-
-"I mean used productively." His tone hardened. "Fort McDowell struggles to maintain its ditches. Salt River has permanent infrastructure."
-
-"We struggle because you refuse to fund repairs." My hands remained flat on the table, but my pulse hammered in my throat. "Every petition we've sent requesting materials has been denied. Now you point to our broken ditches as proof we should abandon our homeland?"
-
-Several men murmured agreement. The superintendent's jaw tightened.
-
-"The decision isn't final. But I encourage you to consider carefully. Those who cooperate will receive priority in land assignments at Salt River. Those who resist..." He let the threat trail into silence.
-
-After he left, the room erupted in overlapping voices. Some families were frightened, remembering how resistance had ended before. Others were furious, ready to refuse immediately.
-
-George Dickens raised his hand for quiet. "Mike, you know the government's ways. What do we do?"
-
-All eyes turned to me. I felt the weight of their trust and the memory of every time I had failed to speak for my people when it mattered.
-
-"We document everything," I said. "Every broken promise. Every denied petition. Every acre we've cultivated without their help. We write it down, and we send it to Carlos in Chicago. He has connections in Washington. He can make noise where they have to listen."
-
-"And here?" asked Charles Dickens, George's younger brother. "What do we do here?"
-
-"We refuse. Together. If they come with papers, we don't sign. If they come with threats, we stand firm. And we keep farming. We keep our ditches running. We show them we belong to this land and it belongs to us."
-
-Chehata stood at the back of the room with our youngest daughter on her hip. When our eyes met, she nodded once. The other women saw her approval and added their voices to the agreement.
-
-That night I wrote to Carlos by lamplight while my family slept. I detailed everything the superintendent had said, every veiled threat, every broken promise that brought us to this moment. I listed the names of families who were ready to fight and those who were wavering. I described the fields we had planted without government seed, the ditches we had cleared without government tools, the homes we had built without government timber.
-
-*They want us to disappear quietly,* I wrote. *To accept relocation as inevitable. But we have already been moved once. We walked the trail to San Carlos in winter and buried our dead along the way. We will not walk another trail for their convenience.*
-
-*Tell them in Washington that we are not leaving.*
-
-*Tell them the Yavapai are home.*
-
-I sealed the letter and gave it to the Phoenix trader with coins earned from wood chopping. He promised delivery within the week.
+"I set this down so the world may know. The White People have heard only one side."
 
 ---
 
-Carlos's response arrived faster than I expected, accompanied by a bundle of newspapers. The *Chicago Tribune* carried an editorial about Indian affairs that quoted "Dr. Carlos Montezuma, a noted Yavapai physician." The *Arizona Republican* reprinted portions. Carlos had already begun making noise.
+"The first time General Crook spoke the words, I carried a pitcher of water taller than my forearm." I paused, remembering the weight of the ceramic, the way it sloshed against my chest. "The general stood in the parade ground at Camp Verde with officers clustered around him and Yavapai leaders gathered across the packed earth."
 
-His letter was longer than mine, filled with legal arguments and political strategy.
+Chehata leaned forward slightly.
 
-*I have written to the Commissioner of Indian Affairs,* he explained. *I have sent letters to every congressman on the Indian Affairs Committee. I have contacted reform organizations in Boston and New York. They cannot move you quietly if the newspapers are watching.*
+"He lifted his hands and told them they could live at Rio Verde as long as they lived." I looked up from the page. "I was just a boy. I was standing near the doorway of Captain Burns's office. But I heard him say it."
 
-*But you must hold firm. If even one family signs relocation papers, they will use it as proof of consent. Everyone must refuse. Can you keep them united?*
+"My grandmother told me about that promise," Chehata said quietly. "She said everyone believed it. They thought, finally, they could rest." Her jaw tightened. "They were wrong."
 
-I read that question three times. Could I?
+I continued reading. The words described the months that followed: the wagons arriving with flour and coffee, the fields planted, the reports of wheat and barley harvested. I read about Captain Burns's ledgers, the careful accounting of every pound issued, the officers praising the farming success.
 
----
+"I wrote here: 'They proved they could do everything asked. It didn't matter.'" I stopped, uncertain. "Did I say that too harshly?"
 
-The next Sunday I walked from home to home, carrying copies of Carlos's letter and the newspaper articles. I read them aloud to families who could not read English. I translated the legal arguments into plain language about water rights and federal obligations. I reminded them what Salt River Reservation meant: living among the Pima who had scouted against us, leaving the river our ancestors knew, abandoning graves we had only recently been able to tend again.
+Chehata's eyes flashed. "Not harsh enough. Say it again, louder. They did everything the Army asked. They surrendered. They farmed. They raised crops to feed themselves so the government wouldn't have to. And still..." She stopped, pressing her lips together. "Keep reading."
 
-Some families were convinced immediately. Others needed time. I visited them again the following week, and the week after that.
+I read about the sickness. About the epidemic that swept through Rio Verde in those first two years, killing nearly half the people gathered there. My voice caught when I reached the part about Dr. Williams.
 
-At night Chehata watched me copy petition drafts by lamplight. "You're becoming like Carlos," she said.
+"The people said Dr. Williams had poisoned them." I looked at the page, at my own handwriting documenting the accusation. "I heard the whispers in the officers' quarters. I was a child. I could not help my people. I could only watch them die from a distance."
 
-"Carlos has a medical degree and connections to powerful men. I have a pencil and anger."
+"You were a child," Chehata said. Her hand reached across the table and covered mine. "But now you're writing it down. That's how you help. Keep reading."
 
-"Anger can be enough." She placed her hand over mine, stilling the pencil. "But you have more than that. You have their trust. You lived what they lived. When you speak, they hear someone who understands."
+I read the names: Grandma Dashkoda, Uncle Wahya, Mary Johnson, John Williams. The survivors who had told me their stories by firelight, their voices threaded with grief even decades later. They had described the smell of orange blossoms before the sickness came, the taste of wheat they had grown themselves, the sound of children burning with fever through the night.
 
-I looked at the pages scattered across our table. Petitions. Letters. Lists of families who had agreed to refuse relocation. It wasn't much compared to Carlos's newspaper campaigns and congressional testimony. But it was something.
+"Close to half the people at Rio Verde were gone," I read. "Disease had done what bullets had not."
 
-"Do you think it will work?"
+Chehata's hand tightened on mine. I could feel the calluses on her palm, earned from years of grinding corn and hauling water. "My grandmother's sister died in that sickness," she said. "Her name was Kamala. She was fourteen."
 
-"I think it has to." She squeezed my hand. "Because there is nowhere left to go. This is our last stand."
+I picked up my pencil and wrote the name in the margin. Kamala. Another name for the accounting the government would never make.
 
----
+"What came next?" Chehata asked, though we both knew. The promise broken. The march.
 
-By spring the superintendent had visited three more times, each visit more insistent than the last. He brought maps showing Salt River's fertile fields and promises of new houses. He brought threats about withdrawing rations and closing the school. He brought individual offers to families he thought might break from the group.
-
-Every time, we refused.
-
-George Dickens became the unofficial spokesman, standing in council meetings to declare that Fort McDowell would not be abandoned. His younger brother Charles echoed the message to families who wavered. I wrote everything down and sent reports to Carlos with every trader heading to Phoenix.
-
-The letters flowed both directions. Carlos sent news of congressional hearings where Fort McDowell's case was raised. He sent copies of *Wassaja*, the newsletter he had started publishing, which featured articles about our fight. He sent encouragement and warnings in equal measure.
-
-*The Phoenix water interests are powerful,* he wrote in one letter. *They want the Verde River for their farms and the Salt River Project. They will not give up easily. You must be prepared for a long fight.*
-
-I read that letter to the community council. "Carlos says this won't be settled quickly. Can we hold out?"
-
-"We held out in the canyon," said an elder whose name was Yahya. "We can hold out here."
-
-The analogy sent a chill through me. The canyon had been a siege that ended in massacre. But the old man's eyes were clear and determined. He knew what he was saying.
-
-"Then we hold," I said.
+I turned the page.
 
 ---
 
-Summer brought federal inspectors. They measured our fields and counted our livestock. They interviewed families about water usage and crop yields. They took notes in leather-bound books and asked questions designed to prove we were struggling.
+"'As long as they lived' became two years."
 
-I guided them personally, making sure they saw our successes. The corn standing tall in fields we had cleared ourselves. The irrigation ditches running clean despite flooding that destroyed the headgates twice. The children learning to read in a schoolhouse built with lumber we had hauled from the mountains.
+The words hung between us like smoke. Chehata's face hardened.
 
-One inspector, younger than the others, seemed genuinely curious. He asked how we managed without government support.
+"The day the column formed, frost clung to the shaded side of the adobe wall," I read. "The people stood with bundles tied in blankets. Some carried clay pots, some carried tools, all carried the weight of disbelief."
 
-"We manage because we have to," I told him. "Your agency denies every funding request. So we do the work ourselves."
+I described the officer's announcement: the new order to march to San Carlos, the second promise that if they behaved they could return in five to seven years.
 
-"Why not accept relocation to a reservation with better resources?"
+"I knew, even at age ten, this was a lie."
 
-"Because this is our land." I gestured toward the Verde River, brown and swift in the summer heat. "Our people lived here before there was a United States. We were forced to leave in 1875. We came back in 1903 because this is home. Home isn't something you abandon because someone offers you resources elsewhere."
+I continued. The words described the morning the march began: the smell of cedar bundles and tanned hides, the soldiers reeking of oil and gunpowder. The wagons loaded with supplies but not carrying people. Everyone walked.
 
-He wrote that down. I don't know if it made any difference.
+My voice roughened as I read the next part.
 
----
+"I traveled with the soldiers who forced the march. I was fed while my people starved. I rode while they walked. I was warm while they suffered."
 
-In the fall Carlos wrote that he was planning a trip to Washington to testify before Congress. He wanted Fort McDowell representatives to come with him.
+I had to stop. The words blurred on the page. Twenty days. Snowmelt turning the road to mud. The rations dwindling. Children collapsing. The father who asked for wagon space for his dying son and was refused.
 
-*We need Yavapai voices in the hearing room,* he wrote. *Not just mine. Can you come? Can George or Charles?*
+"I could do nothing," I read, barely above a whisper. "I was ten years old, in the care of the men who were destroying my people's lives."
 
-The community raised money for travel. It wasn't much, but it was enough for train fare. George Dickens and I were chosen to go, along with Carlos's brother-in-law who lived near Phoenix.
+"But you remembered everything," Chehata finished for me. "You remembered, and now you're writing it down. Keep reading, Mike. This is important."
 
-I had never been to Washington. The city was larger than I imagined, full of marble buildings and crowds that moved like rivers. Carlos met us at the train station wearing a suit that made him look like the doctor he was. His hair was graying at the temples, and his face carried the weight of battles fought in committee rooms rather than canyons.
+I read about crossing the Verde River in water cold enough to numb feet. About the girl who nearly drowned. About rations spoiling, flour spilling into the dust, people chewing parched corn while soldiers drank coffee every morning.
 
-"Cousin." He embraced me, then George. "Thank you for coming."
+Then I reached the East Verde.
 
-"We're here to speak for our people," George said.
+"Tension had simmered for miles between Tonto families and the Apache Mojaves and Yumas," I read. "Old grievances rubbed raw under hunger and fatigue. As we halted to refill canteens, a shout cracked through the air."
 
-"Then let's make them listen."
+I described the fight that erupted: the chaos, the violence, soldiers trying to force separation. Al Sieber riding into the fray and taking a bullet that crippled him for life. The thirty or more Tontos who lay dead on the rocks by the time officers regained control.
 
----
+"We marched again before the earth could cool," I read.
 
-The hearing room was smaller than I expected but more intimidating. Congressmen sat in raised chairs behind a long desk. Their faces were stern, skeptical. I recognized the expression. It was the same one agency superintendents wore when they looked at Indians.
+Chehata had gone very still. "My uncle was there," she said finally. "He saw that fight. He said the blood ran into the river and the water turned red downstream. He said they didn't even have time to bury the bodies properly."
 
-Carlos testified first. He spoke with a precision that made me understand why he was respected in Chicago. He cited laws and precedents. He explained how the Kent Decree had violated the *Winters* decision. He detailed the government's pattern of denying infrastructure funding while blaming Fort McDowell for failing to thrive.
+I added another note to the margin. Her uncle's testimony. Another witness to add to the accounting.
 
-"You have systematically starved this reservation," he said, his voice rising with controlled anger. "Not with bullets this time, but with broken promises and bureaucratic neglect. And now you want to claim the land is better used for Phoenix's growth? This is theft dressed in administrative language."
+The pages described the rest of the journey: sleet that stung skin raw, children learning to walk in step with soldiers or risk a rifle butt to the shoulders, elders wrapped in every scrap of cloth they owned. The prayers whispered for mountains and rivers and ancestors.
 
-Some congressmen shifted uncomfortably. Others made notes.
+"The people walked across the boundary in silence," I read. "An official from the Indian Bureau stood waiting with a ledger. He counted heads as if the march had been an inventory exercise."
 
-Then George testified. He spoke in careful English about walking the trail to San Carlos as a young man, about burying relatives along the way, about returning decades later to find settlers on Yavapai land.
+Chehata made a sound low in her throat, anger and grief mixed together.
 
-"Fort McDowell is all we have left," he said. "You gave us Roosevelt's promise that we could stay. Now you want to break another promise? How many times will you move us before you're satisfied we've disappeared?"
+I reached the end of the march section, the words I had written from memory, from the ache that had lived under my ribs for thirty years.
 
-When my turn came, my mouth was dry. I had written testimony on the train, rehearsed it in the hotel. But sitting in that room, facing those powerful men who held our future in their hands, the words felt inadequate.
+"Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land."
 
-I spoke anyway.
+My voice broke on the last words. I had whispered them as a child standing on the dry ground of San Carlos, certain I would never see the Verde again.
 
-"My name is Mike Burns. I was born Hoomothya, Yavapai. I was present when General Crook promised the Yavapai they could live at Rio Verde as long as they lived. Two years later, they were marched to San Carlos in winter. I was there for that march too."
+"But I was wrong," I read through the tightness in my throat. "I did come back. And I am writing this so my people's suffering will not be forgotten."
 
-I paused, letting the weight of those facts settle.
+Silence filled the space between us. Outside, someone laughed at a neighboring fire. The ordinary sounds of life continuing felt strange against the weight of what I had just read.
 
-"I learned to read and write in your schools. I served as a scout in your Army. I did everything I was told would make me civilized. And now I am telling you: Fort McDowell is our home. We have rebuilt our lives there. We have planted crops and raised families and relearned how to be Yavapai after decades of being told we should disappear."
-
-My voice steadied as I continued.
-
-"You want the Verde River water for Phoenix. I understand that. Cities need water. But so do people. We are not asking for much. Just the small piece of land President Roosevelt set aside. Just enough water to sustain our fields. Just the chance to live where our ancestors lived before any of this happened."
-
-I met the eyes of the committee chairman.
-
-"If you move us to Salt River Reservation, some will go because they have no choice. But others will refuse. They will die on Fort McDowell land rather than walk another trail of tears. Is that what you want? More Yavapai graves to justify taking what remains?"
-
-Silence filled the room. The chairman cleared his throat.
-
-"Thank you for your testimony, Mr. Burns. We will take your concerns under advisement."
-
-It wasn't a promise. But it wasn't a dismissal either.
+"You came back," Chehata said finally. Her eyes were wet. "We came back. That's our victory."
 
 ---
 
-Back at Fort McDowell, I reported everything to the community. The hearing, the congressmen's reactions, Carlos's fierce advocacy. People listened with a mixture of hope and caution. They had heard government promises before.
+I read the final section, the testimonies I had gathered from survivors who had told me what I couldn't see as a child. The years at San Carlos. The starvation. The diseases. The families torn apart. The dead buried far from their homeland.
 
-"What do you think will happen?" Chehata asked later, when the crowd had dispersed.
+"I set down every name they gave me," I read. "Every person who died because of broken promises. This is the accounting the government will never make, so I make it."
 
-"I don't know." I stared at the Verde River, watching the current push steadily toward the Salt. "But I think they heard us. Maybe that's enough to make them pause."
+"My grandmother's sister," Chehata said again. "Kamala. She died at San Carlos in 1876. Add her name."
 
-"And if they don't pause?"
+I wrote it carefully below the others. The list grew longer with each conversation, each story shared, each memory entrusted to my keeping.
 
-"Then we keep fighting."
+"I witnessed the promises made," I read. "I witnessed the promises broken. I witnessed my people's exile. Now I witness their return to the Verde River. I am writing this because I am the only one living who was present at Rio Verde, present on the March, and present now at Fort McDowell."
 
-She leaned against me, and we stood together watching the water that had been the heart of this conflict. It flowed regardless of laws and hearings and broken promises. It had flowed before the Spanish came, before the Americans came, before any of this became necessary. It would flow after all of us were gone.
+I paused before reading the final line.
 
-But while we lived, we would fight to stay beside it.
+"This is my testimony. Let the White People read it and know what was done."
 
----
+I set the pages down. My hands were shaking again. The lamplight flickered, making shadows dance across Chehata's face.
 
-The answer came in early 1904, not with fanfare but with quiet bureaucratic retreat. The superintendent stopped visiting. The relocation maps disappeared from agency meetings. Rumors reached us through traders: Carlos's congressional testimony had embarrassed the Indian Bureau. The newspapers had picked up the story. Phoenix water interests were still circling, but the immediate threat had passed.
+"Did I tell it true?" I asked.
 
-We had won. Not permanently, but for now.
+For a long moment she didn't answer. She stared at the pages spread across the table, testimony written in English letters she couldn't read but knew in her bones. Every word represented someone she had lost, something taken, some promise broken. Finally she looked up and met my eyes.
 
-At the community gathering to celebrate, George Dickens raised his cup of coffee in a toast. "To Carlos Montezuma, fighting for us in Washington. And to Mike Burns, fighting for us here."
+"You told it true," she said. "This is what happened. This is what they did to us."
 
-I felt embarrassed by the recognition, but Chehata squeezed my hand. "Let them thank you," she whispered.
+Relief flooded through me so strongly I had to close my eyes. "I wanted to honor what they suffered. What we all suffered."
 
-Carlos's next letter arrived shortly after. It was brief, written in the tight script of a busy man with little time.
+"You did." Her voice was firm. "You witnessed it from a strange place, with the Army but not of them. Your heart with your people but your body with the enemy. That makes your testimony powerful. You saw both sides. You can tell the White People what they did because you stood beside them when they did it."
 
-*We stopped them, cousin. But stay vigilant. Phoenix's thirst won't diminish, and the government has a long memory. Document everything. Keep the community united. They will try again.*
+I hadn't thought of it that way. The shame of my position during the march and the guilt of being fed while my people starved were burdens I carried. But Chehata was right. My strange position gave my testimony weight. I could document what I witnessed from inside the Army's ranks, things the people being marched couldn't have seen or known.
 
-*For now, celebrate. You earned it.*
+"Without you and your family teaching me what I'd lost," I said, "I couldn't have written this. I wouldn't have known enough to tell it right. The language, the stories, the names: your grandmother gave me those. Your mother, your aunts. They filled in what the Army took from me."
 
-*I am proud to fight beside you.*
+"And now you're giving it back," Chehata said. She gathered the pages carefully, stacking them as if they were sacred objects. "This needs to be published, Mike. The White People need to read what they did to us. What they took from us. What we survived despite them."
 
-At the bottom, he had added a postscript:
+"I'll find a way," I said. "I have to. Carlos is shouting at Congress through his journal. We're proving ourselves here on this land. But someone needs to tell them what it cost us to get back here. What we lost. Who we lost."
 
-*Now write your story. Our people need the truth told. You have a voice. Use it.*
+"Write it all down," she said. "Every name. Every broken promise. Every mile of that march. And then make them publish it."
 
-I folded the letter and placed it in my ledger with all the others. The ledger had grown thick with petitions, testimonies, correspondence. It was a history of resistance written one page at a time.
+"I will." The determination settled into my chest, solid and sure. "I'll make them hear."
 
-Chehata saw me staring at it. "What are you thinking?"
+She rose and moved around the table, setting the pages carefully aside before resting her hand on my shoulder. "You're not just writing for the White People," she said quietly. "You're writing for our children. For Solomon and Carlos and Katie and Charlotte and Lula and Josie. So they'll know where they come from. What their grandparents survived. Why we fight so hard to stay here."
 
-"That Carlos is right. Someone needs to tell this story. All of it. Not just the victory, but everything that led to it. The broken promises. The march. The canyon."
+I covered her hand with mine. She was right. This testimony wasn't just about the past. It was about the future, about making sure our children and their children would know the truth. That they would understand why this land, this river, this home mattered enough to fight for.
 
-I paused, feeling the weight of that last word.
+Through the doorway, I could see the cook fires burning across Fort McDowell. Families gathered in the same spots where their grandparents had camped before the Army forced them away. The irrigation ditches we had cleared ran with water again, feeding fields of corn and wheat. The river that had called us home for generations still flowed through the desert, waiting for us to return to it.
 
-"The canyon," I said again, quieter.
+We had come back. Despite the broken promises, despite the disease and death and exile, despite everything the government had done to erase us, we had come back.
 
-"Can you write about that?"
+And I would write it all down so no one could ever say it didn't happen.
 
-I didn't know. The memories lived behind a wall I had built deliberately. To write them down meant tearing that wall apart stone by stone.
+"Come," Chehata said, pulling me to my feet. "The children will be home soon. Tomorrow you can add the names I gave you. Tonight, just rest."
 
-"Maybe not yet," I admitted. "But someday."
+But I knew I wouldn't rest. Not completely. The testimony sat on the table between us like a living thing, demanding to be finished, to be shared, to be heard.
 
-She nodded, understanding what I couldn't say. "When you're ready, you'll know. And when you write it, I'll make sure the children listen. They need to understand what their father fought for. What all of us fought for."
+I would rest when it was done. When every name was recorded, every broken promise documented, every mile of suffering accounted for.
 
-Outside, the Verde River continued its patient journey toward the confluence with the Salt. Families moved through their evening routines, cooking dinner, tending animals, gathering children for bed. The normalcy of it felt precious and fragile.
+I would rest when the White People could no longer pretend they didn't know what they had done.
 
-We had kept the land. For now, that was enough.
-
-But Carlos's warning echoed in my mind. They will try again.
-
-And when they did, we would be ready.
-
----
-
-**Historical Note:**
-
-The fight for Fort McDowell Reservation continued for decades after 1904. Despite the temporary victory described in this chapter, Phoenix's growing water demands kept the reservation under constant threat. The 1910 Kent Decree severely limited Fort McDowell's water allocation. The Orme Dam proposal in the 1970s threatened to flood the reservation entirely. The Yavapai people resisted every attempt, and the Fort McDowell Yavapai Nation exists today as testament to that sustained resistance.
-
-Dr. Carlos Montezuma continued his advocacy until his death in 1923. Mike Burns continued documenting Yavapai history and fighting for his community's rights until his death in 1934. Their partnership, spanning more than two decades, helped ensure the survival of the Fort McDowell Yavapai Nation.
+Not before.

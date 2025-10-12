@@ -24,7 +24,7 @@ We turned west into a canyon system I didn't know. The trails here were faint, b
 
 That's when I started to feel it. Real fear. Not the worried kind that came from hearing adults talk in the dark. But the kind that lived in your belly and made your breath come short. The kind that came from understanding, finally, that we were prey.
 
-Nashta felt it too. I could tell by the way she stayed close to her mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
+Nashta felt it too. I could tell by the way she stayed close to mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
 
 When we stopped that night, there was no fire. Too dangerous, my father said. The smoke could be seen from miles away. So we huddled in our blankets and ate cold food and shivered as the temperature dropped.
 
@@ -106,13 +106,13 @@ My father studied the approach, then looked back at all of us. Tired people. Sca
 
 I found a flat rock and sat, my legs grateful for stillness. My mother sat beside me and handed me the waterskin. The water was warm but I drank it anyway, feeling it ease my dry throat.
 
-Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade—precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition, counted what little we had.
+Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade, precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition, counted what little we had.
 
 Preparing for siege.
 
 Because that's what this was, I realized. We weren't just hiding. We were preparing to be trapped. To wait out whatever was coming.
 
-I looked up at the cave mouth, dark against the pale cliff. From here it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend.
+I looked up at the cave mouth, dark against the pale cliff. From here it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend. But even from this distance I could see the lie; it wasn't a cave so much as the mountain's cupped palm, a wide mouth with barely enough throat to swallow us. Shelter by name only, open to the sky, yet still the only ledge beyond the reach of horses.
 
 But something about it made my skin prickle. Something about the way it gaped open, like a mouth waiting to swallow us.
 
@@ -136,7 +136,7 @@ I looked over at my mother, at grandmother, at Nashta sitting nearby with her mo
 
 "Will the soldiers find us here?" I asked.
 
-My father's jaw tightened. "I don't know. Maybe. But if they do, they'll have to come up that same cliff we just climbed. They'll have to cross that lava bed. They'll have to climb to the cave entrance while we're above them." He paused. "If they come, we have the advantage."
+My father's jaw tightened. "I don't know. Maybe. But if they do, they'll have to come down that same cliff we just climbed. They'll have to cross that lava bed. They'll have to climb to the cave entrance while we're above them." He paused. "If they come, we have the advantage."
 
 If. The word was supposed to be reassuring. But I heard what lay beneath it.
 
@@ -166,9 +166,7 @@ The view was enormous. The canyon spread below, all red and gold stone layered l
 
 It was beautiful.
 
-It was a trap.
-
-I could see the whole approach from here—the lava bed we'd crossed, the ledge where we'd rested, even part of the rim trail we'd descended. Anyone coming would be visible long before they arrived. We'd see them from miles away.
+I could see the whole approach from here, the lava bed we'd crossed, the ledge where we'd rested, even part of the rim trail we'd descended. Anyone coming would be visible long before they arrived. We'd see them from miles away.
 
 But they would see the cave too. A dark mark on the cliff face. Obvious, if you knew to look.
 
@@ -201,26 +199,3 @@ This cave was our last refuge.
 And in the darkness, I dreamed of soldiers climbing toward us, their boot prints clear in the soft earth, their rifles gleaming in the dawn light.
 
 I dreamed of being found.
-
----
-
-**[End Chapter 4]**
-
-*Word count: ~2,650*
-*Scene location: Journey from desert camp to Skeleton Cave, Salt River Canyon*
-*Approximate timeframe: Mid-December 1872, days before December 28 massacre*
-*Age: Hoomothya approximately 7-8 years old*
-
-**Geographic notes:**
-- Cave location: North wall of Salt River Canyon, 1,200 feet above river
-- Access: Rim descent, lava bed crossing, steep slope, then cliff climb (170-foot cliff base)
-- Cave dimensions: Approximately 118 feet wide, 40 feet deep, elliptical rock shelter
-- Terrain accurately reflects historical accounts of difficult access
-- December weather: Cold nights at elevation, clear days typical
-
-**Historical context:**
-- Multiple Yavapai bands were fleeing to remote locations during this period
-- Skeleton Cave was chosen for defensibility—difficult approach, commanding view
-- The very features that made it defensible also made it a trap when surrounded
-- Historical accounts confirm ~76 people (some sources say up to 225) were in the cave during the attack
-- Mike Burns was not yet with his family at the cave—he was captured December 22, six days before the massacre

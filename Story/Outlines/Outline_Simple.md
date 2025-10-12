@@ -53,16 +53,15 @@
 **Location**: Arizona reservations (San Carlos area, later moving toward Fort McDowell region)
 **POV**: First-person (Mike)
 
-### CHAPTER 8: BROKEN PROMISES - A WITNESS ACCOUNT
-**Date**: 1905-1909 (writing present) documenting events from 1873-1875
-**Location**: Fort McDowell (present) / Rio Verde & March of Tears (memories)
-**POV**: First-person (Mike) - Memoir/testimony style
-**Note**: CONDENSED chapter combining former Chs 8, 9, 10 - Mike documents Rio Verde Reservation, the disease, and March of Tears as witness testimony, weaving between 1905-1909 present at Fort McDowell and his memories/documentation of 1873-1875 events
-
-### CHAPTER 9: THE LAND (Fort McDowell Reservation Fight)
+### CHAPTER 8: THE LAND (Fort McDowell Reservation Fight)
 **Date**: 1903-1905
 **Location**: Fort McDowell, Phoenix
 **POV**: First-person (Mike)
+
+### CHAPTER 9: BROKEN PROMISES - A WITNESS ACCOUNT
+**Date**: 1905-1909 (writing present) documenting events from 1873-1875
+**Location**: Fort McDowell (present) / Rio Verde & March of Tears (memories)
+**POV**: First-person (Mike) - Memoir/testimony style
 
 ### CHAPTER 10: FIRST CITIZEN
 **Date**: July 14-15, 1908
@@ -85,53 +84,52 @@
 ## ACT II: HOOMOTHYA'S STORY (Chapters 13-22)
 *Mike records Hoomothya's life in first person; the witness voice drives toward the massacre*
 
-### CHAPTER 13: THE MESQUITE HARVEST (Manuscript Chapter 1)
+### CHAPTER 13: THE MESQUITE HARVEST
 **Date**: Late spring/summer, c. 1870-1871
 **Location**: Salt River region
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 14: THE LESSONS (Manuscript Chapter 2)
+### CHAPTER 14: THE LESSONS
 **Date**: c. 1870-1871
 **Location**: Hunting grounds
 **POV**: First-person (Hoomothya)
 
-
-### CHAPTER 15: THE WHISPERS (Manuscript Chapter 3)
+### CHAPTER 15: THE WHISPERS
 **Date**: Early December 1872
 **Location**: Yavapai camp
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 16: THE CLIMB (Manuscript Chapter 4)
+### CHAPTER 16: THE CLIMB
 **Date**: Mid-December 1872
 **Location**: Journey to Skeleton Cave
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 17: THE CAVE (Manuscript Chapter 5)
+### CHAPTER 17: THE CAVE
 **Date**: Late December 1872
 **Location**: Skeleton Cave interior
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 18: SIX DAYS (Manuscript Chapter 6)
+### CHAPTER 18: THE HUNT
 **Date**: December 22-27, 1872
 **Location**: Skeleton Cave and surrounding canyon
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 19: TAKEN (Manuscript Chapter 7)
+### CHAPTER 19: TAKEN
 **Date**: Evening of December 27, 1872
 **Location**: Rim above Salt River Canyon
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 20: THE GUIDE (Manuscript Chapter 8)
+### CHAPTER 20: THE GUIDE
 **Date**: December 28, 1872 (pre-dawn to midday)
 **Location**: March to Skeleton Cave
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 21: DECEMBER 28, 1872 (Manuscript Chapter 10)
+### CHAPTER 21: DECEMBER 28, 1872
 **Date**: December 28, 1872
 **Location**: Rim above Skeleton Cave
 **POV**: First-person (Hoomothya)
 
-### CHAPTER 22: ONLY ONE (Manuscript Chapter 9)
+### CHAPTER 22: ONLY ONE
 **Date**: December 28, 1872 – early January 1873
 **Location**: Army column moving north
 **POV**: First-person (Hoomothya)

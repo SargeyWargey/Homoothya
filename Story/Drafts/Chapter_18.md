@@ -1,4 +1,4 @@
-# Chapter 18: Six Days
+# Chapter 18: The Hunt
 
 The soldiers didn't leave.
 
@@ -32,7 +32,7 @@ My father looked at the children, at the elders, at the mothers nursing babies. 
 
 "It's riskier to starve."
 
-A long pause. Then my father nodded. "At dusk tomorrow. You take the boy. I'll stay here—someone needs to organize the defense if the soldiers come back while you're gone."
+A long pause. Then my father nodded. "At dusk tomorrow. You take the boy. I'll stay here, someone needs to organize the defense if the soldiers come back while you're gone."
 
 My uncle opened my mouth to protest, but my father cut him off. "You're the better tracker anyway. And Hoomothya is old enough to help carry game. Two hunters, less time exposed. In and out quickly."
 
@@ -44,7 +44,7 @@ I fell asleep that night with my stomach growling, dreaming of venison roasting 
 
 The fifth day passed in hungry anticipation.
 
-Everyone knew my uncle and I would hunt at dusk. The women prepared to process whatever game we brought back—even in the dark if necessary. The children were quieter, sensing the tension, the need for this hunt to succeed.
+Everyone knew my uncle and I would hunt at dusk. The women prepared to process whatever game we brought back, even in the dark if necessary. The children were quieter, sensing the tension, the need for this hunt to succeed.
 
 I watched my father throughout the day. He organized the men, checking weapons, discussing what to do if soldiers appeared while we were gone. He was staying to protect the family. To protect my mother and sisters.
 
@@ -80,7 +80,7 @@ Then my uncle and I started climbing.
 
 We climbed up from the cave to the mesa above, moving quietly through the growing dusk. The air was cooling rapidly, that sharp cold that comes to the desert when the sun drops. My breath made small clouds.
 
-Up on the mesa, the land was unfamiliar—I'd only been up here once before, on a hunt with my uncle seasons ago. The juniper and pinyon were dark shapes against the dimming sky. My uncle led us east, away from the canyon rim, toward where he said deer often fed on the brush in the evening.
+Up on the mesa, the land was unfamiliar. The juniper and pinyon were dark shapes against the dimming sky. My uncle led us east, away from the canyon rim, toward where he said deer often fed on the brush in the evening.
 
 We moved in silence, communicating only with hand signals. My uncle pointed: fresh tracks in the dust. Multiple deer, heading toward the valley. I nodded and we followed.
 
@@ -156,11 +156,11 @@ They were Natives. Like us, but different.
 
 Pima, I realized. Or maybe Maricopa. Enemies. Working with the Army as scouts.
 
-There were four of them, maybe five. They carried rifles—Army rifles. Wore cloth headbands and pieces of Army gear mixed with their own clothing. And behind them, emerging from the darkness, I saw white soldiers. A few of them.
+There were four of them, maybe five. They carried rifles, Army rifles. Wore cloth headbands and pieces of Army gear mixed with their own clothing. And behind them, emerging from the darkness, I saw white soldiers. A few of them.
 
 My uncle was already awake, already on his feet. His hand moved toward his knife.
 
-One of the scouts said something sharp in a language I didn't fully understand—some Pima mixed with Spanish. A warning.
+One of the scouts said something sharp in a language I didn't fully understand, some Pima mixed with Spanish. A warning.
 
 My uncle didn't stop.
 
@@ -259,21 +259,3 @@ And I would carry this weight forever, no matter what happened.
 December 27, 1872.
 
 The night the world began to end.
-
-***
-
-**[End Chapter 6]**
-
-*Word count: ~2,850*
-*Scene location: Mesa above Salt River Canyon*
-*Approximate timeframe: December 27, 1872, one day before the massacre*
-*Age: Hoomothya approximately 8-10 years old*
-
-**Historical notes:**
-- Mike Burns's own testimony states that "Army scouts—derisively called 'Tonto Apaches'—captured the terrified 8-10 year old boy and forced him to reveal his family's location"
-- The scouts were likely Pima (Akimel O'odham) and Maricopa auxiliaries working for the U.S. Army
-- Mike's father died IN the massacre at Skeleton Cave, not during the capture
-- Mike's uncle was killed near the time of Mike's capture (author's interpretation based on Mike carrying guilt about multiple family deaths)
-- The exact circumstances of Mike's capture are not fully documented in primary sources beyond the fact that Native scouts captured him and forced him to reveal the cave location
-- This version dramatizes a plausible scenario: a desperate hunting trip with his uncle while his father stayed to defend the cave, the fatal decision to build a fire, and a child's impossible choice under threat of death
-- The psychological burden of revealing the cave's location under duress would have been crushing for a child—especially knowing his father died there without ever knowing why Mike didn't return

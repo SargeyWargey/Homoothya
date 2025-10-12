@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Drafts/Chapter_08.md",
+                "file": "Story/Drafts/Chapter_10.md",
                 "mode": "preview",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter_08"
+              "title": "Chapter_10"
             }
           }
         ]
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Story/Drafts/Chapter_08.md",
+                "file": "Story/Drafts/Chapter_10.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Chapter_08"
+              "title": "Backlinks for Chapter_10"
             }
           },
           {
@@ -113,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Story/Drafts/Chapter_08.md",
+                "file": "Story/Drafts/Chapter_10.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Chapter_08"
+              "title": "Outgoing links from Chapter_10"
             }
           },
           {
@@ -142,13 +142,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Story/Drafts/Chapter_08.md",
+                "file": "Story/Drafts/Chapter_10.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Chapter_08"
+              "title": "Outline of Chapter_10"
             }
           }
         ]
@@ -172,8 +172,12 @@
   },
   "active": "1bac8068a1aca803",
   "lastOpenFiles": [
-    "Events/Fight_for_the_Fort.md",
     "Story/Drafts/Chapter_09.md",
+    "Story/Drafts/Chapter_08.md",
+    "Story/Drafts/Chapter_0N9.md",
+    "Story/Drafts/Chapter_12.md",
+    "Story/Drafts/Chapter_11.md",
+    "Events/Fight_for_the_Fort.md",
     "Story/Drafts/Chapter_10.md",
     "Story/Drafts/Chapter_22.md",
     "Story/Drafts/Chapter_21.md",
@@ -185,7 +189,6 @@
     "Story/Drafts/Chapter_15.md",
     "Story/Drafts/Chapter_14.md",
     "Story/Drafts/Chapter_13.md",
-    "Story/Drafts/Chapter_08.md",
     "Story/Drafts/Chapter_07.md",
     "Story/Drafts/Chapter_06.md",
     "Story/Drafts/Chapter_05.md",

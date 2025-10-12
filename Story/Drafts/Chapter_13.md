@@ -4,9 +4,11 @@ The earliest morning I remember best, I was small enough to climb.
 
 My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."
 
+Hoomothya means "Wet Nose" in our language. Grandmother named me that the day I was born, laughing that I cried so hard my whole face shone. Sometimes I wished for a fiercer name, but when she called up to me from the roots of the mesquite, the word felt like warm hands on my back.
+
 I stretched toward the golden clusters, my toes gripping bark worn smooth by summer heat. The mesquite tree swayed, and I swayed with it, the whole world tilting beneath me. Below, burden baskets waited like open mouths. My mother and aunts moved between the trees, their hands quick and sure, filling the baskets with the dry rustle of pods pulled from branches.
 
-"Not too high," my mother called, but she was smiling. I could hear it in her voice.
+"Not too high," my grandmother called, but she was smiling. I could hear it in her voice.
 
 I reached for a cluster just beyond my fingertips. The pods were fat and golden, darker than the others, and when I pulled them close they smelled sweet enough to make my mouth water. The branch dipped under my weight. For a heartbeat I hung there, suspended between earth and sky, the Salt River shining in the distance like a snake's skin catching light.
 
@@ -24,7 +26,9 @@ When I dropped to the ground my grandmother was watching me with eyes that saw e
 
 "Then who will get the high pods?"
 
-"Someone smaller." Her mouth curved. "The world keeps turning, child. That's how we know we're alive."
+"Maybe my cousin Wassaja can do it," I said. "His arms are already longer than mine."
+
+"Someone smaller." Her mouth curved. "The sky keeps turning, child. That's how we know we're alive."
 
 My mother held out the waterskin and I drank. The water tasted like the clay pot it had come from, cool despite the heat. She took it back and drank herself, then poured a little over her hands and wiped her face.
 
@@ -38,7 +42,7 @@ Grandmother took it and examined it like it was something precious. "The tree kn
 
 We worked until the sun sat lower, painting the canyon walls red and gold. My mother sang while she gathered, a song about the mesquite and how it had saved the people in the hungry time. My aunts joined in, their voices braiding together. I didn't know all the words yet, but I hummed along, the melody familiar as my own heartbeat.
 
-When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my mother in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
+When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my aunt in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
 
 Ahead, smoke rose from the cooking fires. I could smell rabbit roasting and my stomach woke up all at once, growling. Nashta giggled behind me.
 
@@ -83,4 +87,3 @@ I was just a boy, pounding mesquite, learning the work of my people.
 I was Hoomothya.
 
 And I was home.
-

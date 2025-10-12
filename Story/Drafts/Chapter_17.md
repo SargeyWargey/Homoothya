@@ -2,17 +2,17 @@
 
 I woke to gray light filtering into the cave and voices whispering urgently near the entrance.
 
-For a moment I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back—the climb, the cave, the first night sleeping on hard stone with all my people breathing in the darkness around me.
+For a moment I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back, the climb, the cave, the first night sleeping on hard stone with all my people breathing in the darkness around me.
 
 So many of us crowded into this space. Families pressed close together. Children sleeping in tight clusters. Elders near the warmth of banked fires. More people than I could count in the dim light, but I knew we were many. More than the fingers and toes of three or four people. Many more.
 
-My father was already gone from beside me, his sleeping mat empty. My mother was awake too, sitting up with my baby sister—her daughter—in her arms, her face tight as she looked toward the cave mouth where the men had gathered.
+My father was already gone from beside me, his sleeping mat empty. My mother was awake too, sitting up with my baby sister, her daughter in her arms, her face tight as she looked toward the cave mouth where the men had gathered.
 
 "What is it?" I whispered.
 
 "Shh." She didn't look at me. "Stay quiet."
 
-I sat up slowly, careful not to make noise. Other children were awake too, pressed against their mothers, silent and watching. The elders sat near their fires, faces grave.
+I sat up slowly, careful not to make noise. Other children were awake too, pressed against their mothers, silent and watching. The elders sat together, faces grave.
 
 My uncle came back from the entrance and crouched by our fire. He kept his voice low.
 

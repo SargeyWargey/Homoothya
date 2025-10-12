@@ -12,7 +12,7 @@ I was awake before he spoke, had been waiting since first light turned the sky g
 
 She studied my face for a moment, then reached out and touched my cheek. "Then go. Listen well."
 
-My uncle waited while I tied my sandals. He carried his bow, the wood dark with use, the string taut. A quiver hung across his back. I had nothing but myself, small and quick, eager to follow.
+My uncle carried his bow, the wood dark with use, the string taut. A quiver hung across his back. I had nothing but myself, small and quick, eager to follow.
 
 We walked north from camp as the sun rose, painting the canyon walls copper and gold. My uncle moved like water, his feet finding the quiet places between stones, his passing barely disturbing the dust. I tried to copy him, to place my feet where his had been, but I was clumsy. Twigs snapped under my weight. Gravel shifted and clicked.
 
