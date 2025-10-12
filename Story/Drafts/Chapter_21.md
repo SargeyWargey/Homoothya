@@ -14,7 +14,7 @@ Could see them try to retreat back into the cave.
 
 Into the trap.
 
-The officer beside me said something coldly in English. I didn't understand the words but I understood the tone. Keep firing. Don't stop.
+Captain Brown beside me said something coldly in English. I didn't understand the words but I understood the tone. Keep firing. Don't stop.
 
 The gunfire continued. Relentless. The soldiers above the cave were firing straight down into the entrance. I could see the muzzle flashes. Could see people trying to run, trying to hide, trying to protect their children.
 
@@ -70,9 +70,9 @@ And then even those stopped.
 
 The silence that followed was worse than the noise had been.
 
-Smoke drifted across the canyon. From guns. From fires started inside the cave—I could see smoke coming from the entrance.
+Smoke drifted across the canyon. From guns. From fires started inside the cave, I could see smoke coming from the entrance.
 
-The officer stood watching, his face hard. Then he nodded.
+Captain Brown stood watching, his face hard. Then he nodded.
 
 He said something in English. His voice was flat. Empty. Orders to send men in to count the dead. Secure the area.
 
@@ -90,7 +90,7 @@ Because I'd led the soldiers here.
 
 The soldiers began emerging from the cave. Some looked shaken. One stumbled away and vomited. Another sat down hard, his head in his hands.
 
-The officer walked down toward the cave to inspect. When he returned, his uniform was dusty but his face showed satisfaction. A job completed.
+Captain Brown walked down toward the cave to inspect. When he returned, his uniform was dusty but his face showed satisfaction. A job completed.
 
 I heard him report to his other officers. Numbers. All women, children, and old men. A few were still alive when they went in. The scouts finished them.
 
@@ -104,15 +104,15 @@ I didn't remember falling. Didn't remember hitting the ground. But suddenly I wa
 
 A soldier pulled me up. Not roughly, but not gently either. Just doing his job.
 
-Through one of the scouts, the officer said to take me back up to the mesa camp.
+Through one of the scouts, Captain Brown said to take me back up to the mesa camp.
 
-They put me on a horse. My hands weren't tied but they might as well have been. I had nowhere to go. No one to go to.
+My hands weren't tied but they might as well have been. I had nowhere to go. No one to go to.
 
 Everyone was dead.
 
 As they led me away from the canyon, back toward the mesa camp, I looked back once.
 
-Smoke still rose from the cave entrance. I'd heard numbers through the scouts' broken Yavapai. Over seventy bodies, they said.
+Smoke still rose from the cave entrance.
 
 Seventy souls. Men and women and children and elders.
 
@@ -120,23 +120,7 @@ All dead because an eight-year-old boy had whispered "cave" when a knife was at 
 
 All dead because I'd chosen life over honor.
 
-When we reached the mesa camp, a white officer was waiting. I'd never seen him before—he must have stayed up here during the attack. He looked older than the others. The lines in his face were deep. His eyes tired.
-
-He came over as they lifted me down from the horse. Looked at me for a long moment.
-
-"It's done," he said quietly in English. More to himself than to me.
-
-I said nothing. Had no words left.
-
-Through the scouts, he told me: I would come with him. He would take responsibility for me. See me cared for. Educated. Given a chance.
-
-A chance. At what? At forgetting? At becoming someone else?
-
-At living with what I'd done?
-
-I didn't answer. Just stood there, hollow and empty, while he made arrangements through the scouts.
-
-As the sun set that day—December 28, 1872—painting the sky in colors Grandmother would have loved, I looked back toward the canyon one last time.
+As the sun set that day, December 28, 1872, painting the sky in colors Grandmother would have loved, I looked back toward the canyon one last time.
 
 The canyon was just a dark line on the horizon. You wouldn't know anything terrible had happened there. Wouldn't know the world had ended in stone and gunfire and falling rocks.
 
@@ -152,29 +136,6 @@ The silence that followed.
 
 And the knowledge that I had guided them there. Had brought death to my people. Had walked at the front of the column showing soldiers the way.
 
-I was Hoomothya. The only survivor. The witness.
+I was Hoomothya. The only survivor.
 
 Trying to carry the unbearable weight of being the only one living to tell.
-
-***
-
-**[End Chapter 9]**
-
-*Word count: ~1,500*
-*Scene location: Salt River Canyon, witnessing Skeleton Cave Massacre*
-*Approximate timeframe: December 28, 1872*
-*Age: Hoomothya approximately 8-10 years old*
-
-**Historical notes:**
-- Mike Burns witnessed the Skeleton Cave Massacre from a nearby position
-- Army reported 76 dead; Mike recalled around 225 people in the cave—a historically documented discrepancy
-- Many deaths resulted from ricocheting bullets and rock fragments inside the stone cave
-- Soldiers on the rim above pushed boulders down onto people at the cave entrance
-- Approximately 120 soldiers and 100+ Pima and Maricopa auxiliaries participated
-- Captain William H. Brown commanded the attack from a position near the canyon
-- Captain James Burns remained on the mesa and never physically went to the cave site
-- Captain Burns took custody of Mike after the massacre
-- Survivors found alive in the cave were killed by the auxiliary scouts
-- Mike was renamed "Mike Burns" and became Captain Burns's ward/adoptive son
-- This massacre effectively ended Yavapai resistance in the region
-- Hoomothya did not speak English at this time; all communication was through the Native scouts

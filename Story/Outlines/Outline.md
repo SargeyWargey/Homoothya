@@ -795,17 +795,21 @@ CATASTROPHIC LOSS + WITNESSING + TRAUMA IMPRINTED FOREVER
 **Word Count**: ~2,500 words
 
 ### Plot Function
-In the massacre's immediate aftermath, Hoomothya drifts through shock while the soldiers celebrate victory. Captain Burns claims responsibility for him and renames him Mike Burns, forcing the first fracture between who he was and who he must become.
+The morning after the massacre, Hoomothya wakes to solidiers breaking camp when a white horse bearing an officer with more gold bars on his uniform than Captain Brown arrives. The exchange between officers ends with Burns claiming the boy, introducing himself, and placing Hoomothya on his horse as their column rides north out of the desert towards Prescott.
 
 ### Key Scenes
-1. Riding through homeland in a daze, realizing he is the only survivor.
-2. Night campfires where Burns tries to offer comfort through interpreters.
-3. Internal vow to remember every name and story of the dead.
-4. Meeting the larger column that hails the campaign's "success."
-5. Burns presenting the new name “Mike Burns” and promising schooling.
+1. Hoomothya wakes to the rattle of gear as Brown's men pack up to leave.
+2. A cavalry officer on the familiar white horse arrives with fresh troopers, gold bars on his shoulders gleaming brighter than Brown’s insignia.
+3. Brown and the newcomer confer quietly, their men watching uniforms and body language as the chain of command shifts.
+4. Captain James Burns steps away from Brown, approaches Hoomothya, introduces himself, and promises he will see the boy safely north.
+5. Burns lifts Hoomothya onto the white horse behind him, and leads the column out while the boy tries to absorb the upheaval.
+6. They ride off past the the twisted juniper that looked like an old man bending. The red rocks stacked like a giant's cairn. The spring where we always stopped to fill waterskins (mentioned in chapter 16) and past the Cottonwood (mentioned in chapter 15)
+7. Hoomothya traveled past whole life and left his sole(Hoomothya's sole on those lands) 
+8. the chapter ends with Captain Burns giving him the name Mickey - and irish name. Thus killing the boy named Hoomothya 
+
 
 ### Emotional Beat
-SURVIVOR'S GUILT + IDENTITY FRACTURE + FORCED TRANSFORMATION
+STUNNED DISORIENTATION + DISTRUSTFUL HOPE + FORCED DEPENDENCE
 
 ---
 

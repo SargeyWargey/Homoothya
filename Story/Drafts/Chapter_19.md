@@ -1,82 +1,40 @@
 # Chapter 19: Taken
 
-The knife was cold against my throat.
+The scout who held me said something to the others. They laughed. One of them kicked my uncle's body to make sure he was dead.
 
-My uncle lay dead three feet away, his eyes still open, looking at nothing. The blood on the snow-dusted ground looked black in the firelight.
+Then a white officer stepped into the firelight. Tall, with markings on his shoulders that meant he commanded. He looked down at my uncle's body, then at me. Studied me. Made a decision.
 
-The Pima scout holding me said something I didn't understand. His hand was clamped over my mouth. I couldn't breathe. Couldn't scream. Could barely think through the terror.
-
-There were five or six soldiers around our small fire. White men with rifles and those leather-brimmed hats. Behind them, more Native scouts—Pima, maybe Maricopa. Enemies of my people who wore pieces of Army uniforms and carried Army rifles.
-
-They'd come out of the darkness while my uncle and I huddled by the fire. We'd been too cold, too exhausted from the hunt. The fire had been a mistake. The warmth had made us careless.
-
-Now my uncle was dead and I was going to die too.
-
-The tallest soldier stepped closer. He had markings on his shoulders that meant something I didn't understand. He crouched down and looked at my face. His eyes were tired. Old.
-
-He said something in English. The Pima scout holding me responded, his knife still at my throat.
-
-The white officer shook his head and said something sharp. An order.
-
-The knife moved away from my throat but the scout's grip on me didn't loosen.
-
-The officer studied me for a long moment. Then he stood and spoke to his men. Orders. Decisions being made about my life while I trembled in the scout's grip.
-
-One of the soldiers brought rope. They tied my hands in front of me. Not tight enough to cut off blood, but firm. Permanent.
-
-I was a prisoner now.
-
-They sat me down away from the fire, away from my uncle's body. Two soldiers stood guard while the others gathered around the officer, looking at something—a map, maybe. Planning something.
-
-Every few minutes one of them would glance at me. Calculating. Deciding what I was worth.
-
-I didn't understand the words but I understood enough. They wanted something from me. Information. The cave. My people.
-
-But I wouldn't tell them. I would be like my uncle—silent even with a knife at my throat. I would die before I betrayed my family.
-
-The officer came over and crouched in front of me again. He said something in slow, careful English. Pointed at the darkness around us. Made a gesture like people hiding in a cave.
-
-They already knew we were hiding somewhere. They just didn't know where.
-
-I shook my head. Said nothing.
-
-He sighed and stood. Spoke to the scouts. One of them—not the one who'd held the knife—came over and tried speaking in broken Yavapai.
+He said something to one of the scouts in English. The scout turned to me and spoke in broken Yavapai, words I could barely understand.
 
 "Where. Your. People."
 
-I looked at my uncle's body and said nothing.
+I shook my head. I didn't understand. Or maybe I understood too well and didn't want to answer.
 
-The scout grabbed my arm, squeezed hard enough to hurt. Asked again.
+The scout grabbed my arm, squeezed hard enough to hurt. Asked again. "Where. Your. People. Hide."
 
-I stayed silent.
+He pointed at the darkness around us, made a sweeping gesture. Made a gesture like people hiding in a cave.
 
-This went on for a long time. Questions I didn't answer. Threats I didn't understand. The cold seeping deeper into my bones. My uncle's blood freezing on the ground.
+They knew we were hiding somewhere nearby. The fire had drawn them. Now they wanted me to tell them where the others were.
 
-I would not tell them. Would not betray my family. Would die first.
+Where my father was. My mother. My sisters. Everyone.
 
-But then one of the Pima scouts drew his knife again. Put it back against my throat. And I felt the blade—cold, sharp, real.
+I looked at my uncle's body. At the soldiers surrounding us, five, maybe six of them with their rifles and their Native scouts who'd killed one of their own people.
 
-I was eight years old. Maybe ten. Just a child.
+I was eight years old. I didn't understand politics or war or the weight of the choice I was making.
 
-And I was so afraid.
+But I understood this: if I didn't tell them, they might kill me too. Just like they'd killed my uncle.
 
-The white officer said something. The scout with the knife answered. They argued—I could hear it in their tones even though I didn't know the words.
+The scout holding me drew a knife. Put it against my throat. Asked again. "Where."
 
-Finally the officer made a sharp gesture. The knife came away from my throat.
+I felt the blade. Cold. Sharp.
+
+The officer said something in English. The scout with the knife answered. They were arguing about something. About me.
+
+Finally the officer made a gesture and the knife came away from my throat.
 
 But the scout still held me. Still waited for an answer.
 
-And in that moment, with my uncle dead and the knife still close and the cold and the terror filling everything, I broke.
-
-"Cave," I whispered in Yavapai. So quiet I could barely hear myself.
-
-The scout smiled. Said something to the officer in English.
-
-The officer nodded. Asked a question.
-
-The scout turned back to me. "Where. Cave."
-
-I pointed. Toward where the canyon lay hidden in the darkness. Toward where my father and mother and sisters slept.
+"Cave," I whispered in Yavapai. My voice so small I could barely hear it myself. Then, not knowing if they understood, I pointed. Toward where the canyon lay in the darkness. Toward where my father and mother and sisters slept, unaware.
 
 Toward everyone I loved.
 
@@ -98,7 +56,7 @@ I shook my head violently. "No. No, I told you. I showed you. No more."
 
 The scout backhanded me across the face. The world exploded in stars and pain. When my vision cleared, he had the knife out again.
 
-One of the scouts gestured at me—hands tracing a path, then pointing at his chest, then at me. Show us. Path. Then safe. Live.
+One of the scouts gestured at me, hands tracing a path, then pointing at his chest, then at me. Show us. Path. Then safe. Live.
 
 I understood through their gestures. They were going to make me betray my family twice. Once with my words. Now with my feet.
 
@@ -147,23 +105,3 @@ Toward my family.
 Toward everyone I loved.
 
 I was about to become their guide. Their betrayer.
-
-
-***
-
-**[End Chapter 7]**
-
-*Word count: ~1,200*
-*Scene location: Mesa above Salt River Canyon - capture site*
-*Approximate timeframe: December 27, 1872 (night before massacre)*
-*Age: Hoomothya approximately 8-10 years old*
-
-**Historical notes:**
-- Mike Burns's testimony states Army scouts captured him and forced him to reveal the cave location
-- His uncle was killed during or near the time of capture
-- The scouts were likely Pima (Akimel O'odham) and Maricopa auxiliaries
-- Captain William H. Brown commanded the attack operation
-- Captain James Burns remained on the mesa and never went down to the cave site
-- Mike's burden of having revealed the cave location, even under threat of death, haunted him his entire life
-- He was approximately 7-10 years old—accounts vary
-- Hoomothya did not speak English at this time; all communication was through scouts using broken Yavapai and gestures

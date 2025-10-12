@@ -1,8 +1,8 @@
 # Chapter 20: The Guide
 
-The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited—the main force, converging from different directions.
+The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited, the main force, converging from different directions.
 
-The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way. No tricks. Or die."
+The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way."
 
 I walked.
 
@@ -30,12 +30,6 @@ I drank because my throat was dust. But I couldn't eat.
 
 One of the scouts came over and spoke to me in broken Yavapai with gestures. How much farther?
 
-I gestured. Close. Not far.
-
-The scout nodded and communicated this to the officers. They spoke among themselves, then one of them gestured through the scout: When we get close, I show them from a distance. Point it out. Then they take me to a safe position. Wait there.
-
-Safe position. As if anywhere would be safe when what was about to happen happened.
-
 I didn't respond.
 
 We walked on through the afternoon. The land grew more recognizable with every step. That outcropping I'd passed in darkness. That stand of juniper barely visible by moonlight.
@@ -54,7 +48,9 @@ But my legs wouldn't move. Couldn't. To go farther would be to...
 
 The scout shoved me forward. I stumbled, fell to my knees.
 
-One of the officers was there quickly. He said something sharp to the scout, who backed off muttering. Then the officer pulled me to my feet through another scout's translation and gestures, his grip firm but not cruel.
+One of the officers was there quickly. He said something sharp to the scout, who backed off muttering. Then the officer pulled me to my feet, his grip firm but not cruel.
+
+He tapped two fingers against his chest. "Captain Brown," he said slowly, the English name thick on his tongue. Then he pointed at me. "Hoomothya?" The way he shaped it was rough, but I nodded. For the first time the man giving orders had given me his name.
 
 Through broken words and gestures, they made me understand: almost over. Show them where. Then rest.
 
@@ -68,9 +64,9 @@ We crested a low rise and there it was. The canyon. The cliffs rising on the far
 
 Where everyone I loved waited, unknowing.
 
-The officer saw me freeze. Saw me staring at the canyon. He raised his hand and the column stopped.
+Captain Brown saw me freeze. Saw me staring at the canyon. He raised his hand and the column stopped.
 
-Through a scout, the officer asked: "There?"
+Through a scout, Captain Brown asked: "There?"
 
 I nodded.
 
@@ -80,11 +76,11 @@ I raised my hand slowly. Pointed at the north wall. At the section of cliff wher
 
 "There," I whispered.
 
-The officer pulled out his brass tube. Studied the cliff for a long time. Then he nodded, satisfied.
+Captain Brown pulled out his brass tube. Studied the cliff for a long time. Then he nodded, satisfied.
 
-He said something to his other officers. They looked through the tube, nodded agreement. High up. Defensible from below. But they could get above it.
+Captain Brown said something to his other officers. They looked through the tube, nodded agreement. High up. Defensible from below. But they could get above it.
 
-He turned to one of his men. The soldier saluted and rode off—going to bring up the main force. They'd confirmed the location. Would position tonight, attack at dawn.
+He turned to one of his men. The soldier saluted and rode off going to bring up the main force. They'd confirmed the location. Would position tonight, attack at dawn.
 
 Through the scouts, they told me: "You did well. Now you rest."
 
@@ -94,7 +90,7 @@ And they kept me with them. Close enough to answer questions through the scouts.
 
 I watched the officers studying a map, pointing, tracing routes. The scouts translated some of it, explaining to each other in broken Yavapai what was being planned. The approach from above. Along the rim. Men positioned directly above the cave mouth before dawn. When the sun rises, anyone in the entrance will be silhouetted. Easy targets.
 
-And below—sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
+And below sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
 
 I understood enough from the scouts' broken words and gestures. Understood they were planning to trap my family. To surround them.
 
@@ -104,7 +100,7 @@ Trapped. In the cave they'd chosen for safety.
 
 Because I'd told the soldiers where it was.
 
-That night they made me sleep near the main camp. Not tied anymore—where would I run?—but guarded. Always watched.
+That night they made me sleep near the main camp. Not tied anymore, but guarded. Always watched.
 
 I lay wrapped in a blanket and stared at stars. The same stars shining down on the cave where my family slept.
 
@@ -122,19 +118,17 @@ I tried to pray. Tried to send warnings across the distance. Tried to imagine so
 
 But it was going to happen. At dawn. In a few hours.
 
-And I had led them here.
+As the sky began to lighten gray, then pink, then gold, a soldier came and pulled me to my feet.
 
-As the sky began to lighten—gray, then pink, then gold—a soldier came and pulled me to my feet.
+Through one of the scouts, he said Captain Brown wanted me moved forward.
 
-Through one of the scouts, he said the officer wanted me moved forward.
+I was led down from the mesa camp toward a position closer to the canyon, close enough to see the assault. Captain Brown, who would command the attack, was there, checking positions, giving orders.
 
-I was led down from the mesa camp toward a position closer to the canyon—close enough to see the assault. The officer who would command the attack was there, checking positions, giving orders.
+He saw me approach. They positioned me nearby where I could see. Where I would have to watch.
 
-He saw me approach and spoke to one of his men through gestures. They positioned me nearby where I could see. Where I would have to watch.
+They positioned me on a small rise. Not far back, but close enough to see the cave entrance clearly across the canyon. Close enough to see everything.
 
-They positioned me on a small rise. Not far back—close enough to see the cave entrance clearly across the canyon. Close enough to see everything.
-
-I looked through the morning light toward the cave. I could see the dark opening in the cliff face. Could see the approach. Could see soldiers positioned above on the rim. Below on the slopes.
+I looked through the morning light toward the cave. On the rim above it, an officer I had never seen before sat calm in the saddle of the largest white horse I'd ever seen. The animal's coat caught the sun and turned to silver while its rider waited for orders that would decide my family's fate. I could see the dark opening in the cliff face. Could see the approach. Could see soldiers positioned above on the rim. Below on the slopes.
 
 My family was waking up in that cave. Starting their day. Thinking they were safe.
 
@@ -146,25 +140,10 @@ The sun rose higher. Full light now.
 
 And then, so faint at first, movement at the cave entrance. A figure appeared. One of the sentries. Looking out at the morning. Seeing nothing wrong.
 
-The officer commanding the attack raised his hand. Held it. Waiting for the perfect moment.
+Captain Brown raised his hand toward the officer on the rim astride the white horse. Held it. Waiting for the perfect moment.
 
 Then dropped it.
 
-Somewhere on the rim above the cave, soldiers saw the signal.
+The officer on the white horse saw the signal.
 
 The attack began.
-
-***
-
-**[End Chapter 8]**
-
-*Word count: ~1,350*
-*Scene location: Approaching and reaching Salt River Canyon*
-*Approximate timeframe: December 27-28, 1872*
-*Age: Hoomothya approximately 8-10 years old*
-
-**Historical notes:**
-- Mike Burns was forced to guide soldiers to the cave location
-- He was present during the attack, watching from a nearby position
-- The deliberate positioning of forces above and below the cave was part of the tactical plan
-- The attack began at dawn when defenders would be silhouetted at the cave entrance
