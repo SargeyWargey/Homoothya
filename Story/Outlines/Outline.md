@@ -7,28 +7,6 @@
 
 ---
 
-## NARRATIVE STRUCTURE
-
-**Core Concept**: Mike Burns tells his life story starting as Captain Burns's servant, then writes Hoomothya's story in third person. The connection between them is mysterious until the dramatic reveal at the end of Act II.
-
-**Structure**:
-- **Prologue**: 1920, Mike begins writing at Fort McDowell
-- **Act I (Chapters 1-12)**: Mike's life as servant through old age (1873-1922) - **NO mention he was Hoomothya** = 12 chapters total
-- **Act II (Chapters 13-22)**: Mike writing "Hoomothya's story" in third person (mysterious connection) = 10 chapters
-- **CHAPTER 22**: **THE REVEAL** - Mike was Hoomothya all along
-- **CHAPTER 23**: **JOURNEY TO THE CAVE** - After the reveal, Mike's 1923 pilgrimage takes on new meaning
-- **Act III (Chapters 23-34)**: Publication attempts, death, posthumous triumph = 12 chapters total
-- **Epilogue**: Present day, legacy affirmed
-
-**Total**: 34 chapters + Prologue + Epilogue
-
-**The Mystery**: Readers wonder throughout Acts I & II: Who is Hoomothya? How does Mike know his story so intimately? Why does he care so much about this boy?
-
-**The Reveal**: Chapter 22 - devastating realization that Mike Burns IS Hoomothya.
-**The Journey**: Chapter 23 - After readers know the truth, the cave journey becomes Mike's pilgrimage to honor himself and his lost family.
-
----
-
 ## PROLOGUE: THE WITNESS BEGINS (1920)
 
 **Time**: 1920, Fort McDowell Indian Reservation
@@ -813,150 +791,477 @@ STUNNED DISORIENTATION + DISTRUSTFUL HOPE + FORCED DEPENDENCE
 
 ---
 
-## ACT III: THE WITNESS (Chapters 24-34)
+## ACT III: THE WITNESS (Chapters 23-34)
 ### Publication journey, death, posthumous triumph - post-reveal
 
 **Note**: Readers now know Mike = Hoomothya. Act III shows his final mission: getting the truth published.
 
 ---
 
-## CHAPTER 23: THE LETTER (1910)
+## CHAPTER 23: THE BECOMING WHOLE (1922)
 
-**Time**: January 6, 1910
+**Time**: Late April 1922 (≈ one month after Chapter 12)
 **POV**: First-person (Mike)
-**Location**: Phoenix, Arizona
-**Word Count**: ~2,500 words
+**Location**: Phoenix, Arizona (Carlos's office/home)
+**Word Count**: ~3500 words
 
 ### Plot Function
-Mike writes to Sharlot Hall seeking publication. Now readers understand: he's trying to publish both his own story AND Hoomothya's (which are one story).
+Return to the frame narrative after the manuscript: Mike processes how brutal and liberating it was to write Hoomothya's truth, acknowledges Chehata's support, and entrusts the pages to Carlos. The chapter fulfills Carlos's challenge from Chapter 12, shows the immediate impact of the reveal on both men, and launches the closing movement by pointing them back toward the land of thier childhood and the cave.
 
 ### Key Scenes
-1. **Composing**: Writing to Hall
-2. **The Letter**: "Tell the White People they have heard only one side"
-3. **Two Manuscripts**: His life as Mike, and Hoomothya's story
-4. **Hope**: Someone might publish the truth
-5. **Mailing**: Sending the letter
+1. Dawn in the kitchen—Mike writes the final line, hands shaking as he finally spells his own name beside Hoomothya's; Chehata steadies him, reminding him why he kept going.
+2. Over breakfast they speak quietly about how raw the writing felt and how proud Chehata is that he claimed his whole self on the page, even as it reopened old wounds.
+3. Mike walks the manuscript across town to Carlos's house, leaving the bundle on his cousin's table with a promise to return in the afternoon so Carlos can read uninterrupted.
+4. Late afternoon: Mike arrives as Carlos is finishing the cave chapter, tears on the paper; Carlos names the passages that broke him open, tells Mike how proud he is that he pushed through the pain, and insists this manuscript can be published and carry their story forward for future generations.
+5. They revisit their shared memories of thier childhood, admit what they have never said aloud about survival and guilt, and embrace as kin who finally see each other whole.
+6. Closing moment: without fully formed plans yet, they agree they must return to their homeland before age or illness stops them, sketching out the first steps of a pilgrimage back to the cave.
 
 ### Emotional Beat
-HOPE + MISSION CLARITY + VULNERABILITY
+CATHARTIC RELIEF + SHARED GRIEF + RENEWED PURPOSE
 
 ---
 
-## CHAPTER 24: REJECTION
+## CHAPTER 24: PILGRAMAGE
 
-**Time**: 1910-1920s
+**Time**: January 1923
 **POV**: First-person (Mike)
-**Location**: Arizona
-**Word Count**: ~2,500 words
+**Location**: Fort McDowell & Salt River
+**Word Count**: ~4,500 words
 
 ### Plot Function
-Repeated rejections. No one wants Native perspective. Mike persists anyway.
+Mike and Carlos complete their pilgrimage to Skeleton Cave, honoring their people's dead while forcing Mike to walk the ground of his childhood as a grown man. The journey welds present duty to past trauma, propelling Mike toward the emotional breaking point that will define the closing act.
 
 ### Key Scenes
-1. **Hall's Response**: Kind but can't find publisher
-2. **Rejections**: Multiple publishers refusing
-3. **Silencing**: Truth unwelcome
-4. **Accumulating Pain**: Each rejection a wound
-5. **Determination**: Continue despite rejection
+1. Pre-dawn departure from Fort McDowell—Chehata bundles food, frost hardens the corrals, and Carlos steadies himself despite a worsening cough while Mike shouldering the blankets meant for the bones.
+2. Riding east through the winter desert: saguaros silhouetted against bruised clouds, creosote scent lifted by cold wind, both men quiet until the Dripping Springs quartzite begins catching pale sun along the Salt River rim.
+3. Standing over the canyon lip where Hoomothya once guided soldiers—diabase shadows pooling below, river roar rising, and Carlos murmuring a prayer before they begin the descent.
+4. The hazardous climb: crossing the black lava bed, edging along the narrow ledge, lowering bundles by rope while the wind scours their faces and Carlos nearly stumbles until Mike braces him.
+5. Inside Skeleton Cave: the dust, the smell of age, handling brittle bones with buckskin gloves, whispering names they remember, and wrapping remains in wool with ceremonial songs.
+6. Departure into a winter squall: sleet stinging skin, footing treacherous as they haul their burden upward, Mike recalling the same slope where his family once fled; a near fall underscores the stakes.
+7. On the return trail Mike asks to veer toward the place the cousins were separated—passing the twisted juniper shaped like an old man, the red-rock cairn, and the spring that tasted like metal in Chapter 16.
+8. Discovering the lone cottonwood still standing; Mike digs at its base with his hands, uncovering the smooth grinding stones polished by generations of women before him.
+9. Beneath the stones lies the unfinished bow he abandoned as a boy; Mike cradles the cracked stave, sees it as a life cut short like his people, collapses into sobs, and Carlos kneels, wiping his face and whispering “Homothya, Wet Nose,”.
 
 ### Emotional Beat
-DISAPPOINTMENT + PERSISTENCE + DEFIANCE
+SACRED DUTY + PERILOUS RETURN + CATHARTIC GRIEF
+
+### Notes
+- Keep the pilgrimage focused solely on Mike and Carlos; any logistical help happens off-page.
+- Reuse established landmarks (twisted juniper, red-rock cairn, metal-tasting spring, cottonwood) to tie back to Chapters 13, 16, 21.
+- Lean into storm imagery and the unfinished bow as metaphor for interrupted Yavapai lives, setting up Carlos's impending death in Chapter 25.
 
 ---
 
-## CHAPTER 25: CARLOS'S RETURN (1923)
+## CHAPTER 25: RETURN FROM PILGRAMAGE SHARLOT HALL
 
 **Time**: Early 1923
 **POV**: First-person (Mike)
 **Location**: Fort McDowell
-**Word Count**: ~2,500 words
-
-### Plot Function
-Dr. Carlos Montezuma returns to Arizona, dying of tuberculosis. Wants to die among his people at Fort McDowell. Mike's cousin and fellow survivor comes home. Their final conversations about witness, survival, the shared trauma readers now understand fully.
-
-### Key Scenes
-1. **News**: Carlos returning to Arizona, ill with tuberculosis
-2. **Arrival**: The doctor coming home to Fort McDowell to die among Yavapai
-3. **Reunion**: Two elderly survivors—Mike 58, Carlos 57—both knowing death approaches
-4. **Reflecting**: "We're the last ones who remember"—talking about Skeleton Cave openly now
-5. **Carlos's Regret**: Never returned to Yavapai life until dying—chose activism over community
-6. **Mike's Regret**: Never published—chose community over platform
-7. **Different Paths, Same Love**: Both served their people in their own ways
-8. **Carlos's Final Encouragement**: "Keep writing. Your witness will outlive both of us."
-9. **Chehata's Care**: She helps nurse Carlos in his final weeks—family caring for family
-10. **Shared Stories**: Mike and Carlos telling each other memories of families lost in 1872
-
-### Emotional Beat
-REUNION + MORTALITY + SHARED WITNESS + LOVE BETWEEN SURVIVORS
-
-### Notes
-- Full-circle moment: Carlos survived Skeleton Cave as infant under dead mother's body; now dying at Fort McDowell
-- Mike witnessing another death of family—but this time, peaceful, surrounded by love
-- Chehata's role as caregiver shows her central place in extended family network
-
----
-
-## CHAPTER 26: THE BURIAL (January 31, 1923)
-
-**Time**: January 31, 1923
-**POV**: First-person (Mike)
-**Location**: Fort McDowell Cemetery (Ba Dah Mod Jo Cemetery)
-**Word Count**: ~2,000 words
-
-### Plot Function
-Carlos Montezuma dies and is buried at Fort McDowell. Mike witnesses burial of his cousin, the other survivor. Reflects on survival, witness, legacy. Knows his own death approaches. Doubled determination to finish manuscript.
-
-### Key Scenes
-1. **Death**: Carlos dies January 31, 1923, age 57
-2. **The Funeral**: Yavapai community honoring the doctor who fought for them
-3. **Mike at Graveside**: Burying the infant who survived Skeleton Cave, now returned home
-4. **Same Cemetery**: This is where Skeleton Cave remains will be reinterred (1933); where Mike will be buried (1934)
-5. **Reflection**: "I'm the only one left now"—truly the only one living to tell
-6. **Promise**: Mike promises Carlos's grave he'll finish the manuscript
-7. **Chehata's Grief**: She lost cousin-in-law; Mike lost last direct link to that day
-8. **Renewed Mission**: Carlos's death makes Mike's witness even more urgent
-9. **Eleven More Years**: Mike will continue writing for 11 more years
-
-### Emotional Beat
-GRIEF + LAST SURVIVOR + RENEWED DETERMINATION + MORTALITY AWARENESS
-
-### Notes
-- Emphasize Mike is truly alone now—no one else living who was at Skeleton Cave
-- Carlos's grave waiting for Mike's (11 years later)
-- Foreshadow: this cemetery will unite all the massacre's victims and survivors
-
----
-
-## CHAPTER 27: TWENTY-FOUR YEARS
-
-**Time**: 1910-1934 (with focus on 1923-1934 post-Carlos)
-**POV**: First-person (Mike)
-**Location**: Arizona, various
 **Word Count**: ~3,000 words
 
 ### Plot Function
-Twenty-four years of writing, revising, seeking publication. Mike continues despite no success. **Now includes Chehata's role as sustaining force.** After Carlos's death (1923), Mike has 11 more years of solitary witness work.
+Portray the exhausted return from the cave, the communal act of laying the ancestors to rest, and Mike's renewed push to place his completed witness with Sharlot Hall while Carlos still lives—ending with the quiet news of Carlos's peaceful passing to bridge into the funeral of Chapter 26.
 
 ### Key Scenes
-1. **Revisions**: Improving manuscripts year after year
-2. **Hall's Support**: Sharlot Hall preserving his work at her museum
-3. **Oral Sharing**: Mike telling stories to Yavapai community, teaching young people
-4. **Chehata's Sacrifice**: Managing household, raising children, while Mike writes unpaid
-5. **Financial Strain**: "I have a large family and need help all the time"—writing takes time from paid work
-6. **Chehata's Belief**: "This matters. Keep writing. Our grandchildren need to know."
-7. **Children Growing**: Solomon, Carlos, Katie, Charlotte, Lula, Josie becoming adults—will they remember?
-8. **Mike Teaching Grandchildren**: Passing on Yavapai language, stories, cultural knowledge
-9. **Mission**: Writing for the dead, for future, not for publishers
-10. **Chehata Aging with Him**: Partners through poverty, rejection, persistence
-11. **Faith**: Truth will survive somehow
+1. **Homecoming Twilight**: Mike and Carlos reach Chehata's house at dusk; she embraces them, taking in Carlos's drain and the way Mike clutches the pilgrimage bundle.
+2. **Unspoken Bow**: Over stew Chehata gently asks what they found; Mike only says the old bow is "still hard to talk about," and she sees the depth without more words.
+3. **Carlos Fading, Spirit Brightening**: Night visit shows Carlos's coughing fits and failing appetite, yet he speaks with renewed serenity about the cave and their people, revealing how the pilgrimage lifted his spirit even as his body weakens.
+4. **Calling the People**: Within days Chehata gathers Yavapai families, preparing songs, cedar smoke, and grave cloths for a reburial rite.
+5. **Reburial Ceremony**: At sunrise they return the bones to warm earth, elders praying as Mike places the bundle and feels both release and fresh obligation.
+6. **Promise by the Fire**: That evening Carlos charges Mike to finish the manuscript and use the pilgrimage proof, pressing his physician's bag into Mike's hands.
+7. **Sharlot Hall Meeting**: Mike travels to Prescott, presents the complete story and relics; Sharlot is moved, promises to advocate, but warns she cannot guarantee publication.
+8. **News in the Night**: Nearly three weeks after their return, Chehata wakes Mike—Carlos slipped away peacefully while they slept.
 
 ### Emotional Beat
-QUIET PERSISTENCE + FAITH + DUTY + PARTNERSHIP + FAMILY AS LEGACY
+WEARY HOPE + SACRED CLOSURE + URGENT TESTIMONY + QUIET LOSS
 
 ### Notes
-- Expand Chehata's crucial role: she made this witness possible through her support
-- Show children as Mike's living legacy alongside manuscript
-- Emphasize: Mike isn't writing alone—Chehata's partnership sustains him
+- Entire chapter spans roughly three weeks between the pilgrimage homecoming and Carlos's death.
+- Thread in quiet moments—Carlos humming old songs, asking Chehata about traditional remedies, urging Mike to write—so readers feel the pilgrimage rekindled his spirit despite failing health.
+- Keep the bow mention minimal—simply that it is too painful for Mike to discuss, which Chehata understands.
+- Ground Sharlot Hall as compassionate yet realistic; she will try to help but cannot promise success.
+- Finish on the news of Carlos's passing; the death and burial rituals unfold in Chapter 26.
+
+---
+
+## CHAPTER 26: THE BURIAL
+
+**Time**: February 1923
+**POV**: First-person (Mike)
+**Location**: Fort McDowell Cemetery (Ba Dah Mod Jo Cemetery) and Mike's homestead
+**Word Count**: ~2,500 words
+
+### Plot Function
+Carry the reader from the moment news of Carlos's death spreads through Fort McDowell into the collective mourning that follows. Show the breadth of the lives Carlos saved, the return of Mike's far-flung family, and the way shared testimony reshapes Mike's understanding of his cousin's legacy. Close with Mike sealing that legacy by placing the beach shell on Carlos's grave and vowing to keep telling the story.
+
+### Key Scenes
+1. **Word Spreads**: Dawn messengers carry news of Carlos's passing to ranches, mining camps, and rail stops which sets riders, wagons, and trains in motion toward Fort McDowell.
+2. **House of Mourning**: Mike watches Chehata and the women preparing cedar smoke, traditional cloths, and the physician's coat while Mike's children, grandchildren, and in-laws arrive and fill the homestead with memory and grief.
+3. **Gathering Tide**: Neighbors from Fort McDowell join visitors from Phoenix, Prescott, and Chicago who share stories of how Carlos healed them or pulled their families through epidemics.
+4. **Testimonies**: During a vigil, patient after patient takes the floor and offers vivid reminders of surgeries in railroad towns, urgent house calls in snow, and years of pro bono care for Native families whom other doctors would not treat.
+5. **Mike's Turn**: Mike speaks after the visitors, sharing glimpses of their boyhood flight from thier homeland and the years of hardship that forged Carlos's compassion, allowing mourners to see the doctor through the lens of survivor and cousin.
+6. **Funeral Procession**: A long column of walkers, riders, and wagons moves toward the cemetery with songs rising in Yavapai and English while Mike steadies his grandchildren who carry baskets of desert flowers.
+7. **Graveside Moment**: As the coffin is lowered, Mike places the beach shell from their pilgrimage on top of Carlos's chest just before the first shovels of earth fall, promising aloud that he will keep their story alive. He will be buried next to the bones of his family that he brought home.
+8. **Family Vigil**: After the burial, Mike returns to a home packed with three generations where late-night conversation turns to legacy, ensuring his children and grandchildren understand the charge to bear witness with him.
+
+### Emotional Beat
+COMMUNAL GRIEF + LEGACY AFFIRMED + FAMILY REUNION + SWORN TESTIMONY
+
+### Notes
+- Use the spread of the news as engine for the chapter so the reader feels the widening circles of impact created by Carlos's life.
+- Make the return of Mike's children and grandchildren a point of pride and vulnerability as Mike confronts the years he spent writing instead of providing.
+- Let outside speakers highlight Carlos's medical heroism while Mike's family holds the quieter memories of his generosity and stubborn hope.
+- Highlight the beach shell as sacred evidence from the cave pilgrimage which becomes part of the burial rite.
+- Close on Mike's spoken promise and the shared resolve within the family to protect the story for future generations.
+
+---
+
+## CHAPTER 27: HISTORICAL WITNESS (Author's Note) - REVISED VERSION
+
+**INSTRUCTIONS**: This is a revised version of Chapter 27 based solely on verified historical facts from research files. Compare to current version in Outline.md and decide whether to replace.
+
+**Time**: 1923 to Present Day (2025)
+**POV**: Third-person historical narrative (Author's voice)
+**Location**: Arizona, Salt River Canyon, Sharlot Hall Museum, Fort McDowell
+**Word Count**: ~4,000 words
+
+---
+
+## Plot Function
+
+This chapter transitions from the novel's narrative to historical record, documenting what is known about the period after Carlos Montezuma's death in January 1923 through the present day. Written as an author's note rather than from Mike's perspective, it distinguishes verified historical facts from fictional elements created for the novel, traces the journey of Mike's manuscript from his death to publication, and connects the historical struggles of the Yavapai people to their ongoing fight for justice today.
+
+---
+
+## Key Scenes
+
+### PART I: CARLOS MONTEZUMA'S FINAL JOURNEY AND DEATH (January 1923)
+
+**1. The Pilgrimage to Skeleton Cave (Early January 1923)**
+
+In December 1922, Dr. Carlos Montezuma left Chicago and returned to Arizona for the final time, gravely ill with tuberculosis. In early January 1923, he may have led or joined an expedition to Skeleton Cave to retrieve the remains of massacre victims. Historical accounts vary on who accompanied him. Yavapai elder John Williams provided oral testimony in 1975 stating that he, Mike Burns, George Dickens, and Charles Dickens made the journey with Montezuma. The party climbed the difficult terrain to the cave site and recovered skeletal remains of Yavapai people killed on December 28, 1872.
+
+**2. What They Found**
+
+John Williams later recalled finding "many bones" including small bones of children, scattered where victims had fallen more than fifty years earlier. The cave walls and floor were stained with dried blood that looked like "oil" splattered on the rock.
+
+The discovery overwhelmed the group. Williams remembered Montezuma standing by the cave wall crying, and "we all start crying right there." They gathered the remains carefully for reburial.
+
+**3. Carlos Montezuma's Death (January 31, 1923)**
+
+Carlos died at Fort McDowell on January 31, 1923, less than a month after the possible pilgrimage, at approximately age 57. He was buried in the Fort McDowell cemetery.
+
+---
+
+### PART II: THE SKELETON CAVE REMAINS (1923-1985)
+
+**4. Reinterment Efforts (1925-1933)**
+
+In 1925, Mike Burns, along with a Maricopa County sheriff and several other Yavapai individuals, made a journey to Skeleton Cave to collect the bones that remained in the cave. This was a significant step in providing a proper burial for the victims.
+
+The main reinterment of the remains took place in 1933. The bones were laid to rest in a mass grave in the Ba Dah Mod Jo Cemetery at Fort McDowell.
+
+**5. The Mass Grave**
+
+The skeletal remains recovered from Skeleton Cave were interred in a mass grave at the Ba Dah Mod Jo Cemetery at Fort McDowell in 1933. A dedicated grave marker now commemorates the tragedy.
+
+**6. Memorial Dedication (1985)**
+
+On Memorial Day 1985, the Fort McDowell Yavapai Nation held a service and dedicated a tombstone over the mass grave. Norman Austin, then Fort McDowell tribal president, stated: "The record has never been set straight... the victims were Yavapais, not Apaches."
+
+---
+
+### PART III: MIKE BURNS'S FINAL YEARS AND DEATH (1923-1934)
+
+**7. Writing Through Loss (1923-1934)**
+
+After Carlos's death, Mike continued working on his manuscript. Historical records document his ongoing efforts to find a publisher:
+
+- 1922: He gave a manuscript draft to Dr. William H. Corbusier for editing. Corbusier edited it but removed Mike's "charges against Anglos." Publishers rejected it.
+- Spring 1929: Mike delivered a manuscript draft to Sharlot Hall. She edited a few pages but made no effort to publish it.
+
+Throughout the 1910s, 1920s, and early 1930s, Mike persisted in trying to get his testimony published, facing consistent rejection and indifference. A partial account was published in T. E. Farish's "History of Arizona" before World War I.
+
+**8. Move to Fort McDowell (May 28, 1934)**
+
+Mike moved to the Fort McDowell Indian Reservation at approximately age 69.
+
+**9. Death (November 26, 1934)**
+
+Mike Burns died on November 26, 1934, at the Fort Whipple hospital in Prescott, Arizona. He was approximately 69 years old.
+
+His wife Chehata (married c. 1888) and their six children (Solomon, Carlos, Katie, Charlotte, Lula, and Josie) survived him.
+
+**10. Burial**
+
+Mike Burns was buried in the Ba Dah Mod Jo Cemetery at Fort McDowell. The exact location of his grave and details of his burial are not fully documented in available sources.
+
+---
+
+### PART IV: CARLOS AND MIKE'S SHARED LEGACY
+
+**11. Two Paths, One Mission**
+
+Carlos Montezuma and Mike Burns represented complementary approaches to Indigenous advocacy:
+
+**Carlos Montezuma**: Educated as a physician at elite institutions (University of Illinois, Northwestern Medical School), he used his platform to publish Wassaja magazine (1916-1922), co-found the Society of American Indians (1911), and challenge federal Indian policy in public forums. He called for the abolition of the Bureau of Indian Affairs and advocated for Native American citizenship and self-determination.
+
+**Mike Burns**: Educated at Carlisle Indian School (1880-1885) and employed as an Army scout (1885-1888), he chose the path of witness, documentation, and testimony through his manuscript. He spent decades writing and revising his account, attempting to get it published so the Yavapai perspective would be heard.
+
+**12. Fort McDowell Reservation**
+
+Together with other Yavapai leaders including Charles Dickens and George Dickens, Carlos and Mike worked to establish Fort McDowell as permanent Yavapai land.
+
+The reservation was officially established by executive order on September 15, 1903 (signed by President Theodore Roosevelt), creating 24,680 acres from abandoned Fort McDowell Military Reserve land. This victory secured a land base for Yavapai people who had been imprisoned at San Carlos Reservation for 25 years following the 1875 March of Tears.
+
+The irony was stark: the reservation was carved from the military post that had served as a base for operations against the Yavapai, including the Skeleton Cave Massacre.
+
+---
+
+### PART V: THE MANUSCRIPT'S SILENCE (1934-2000s)
+
+**13. Preservation at Sharlot Hall Museum**
+
+After Mike's death in 1934, his manuscript was preserved in the archives of the Sharlot Hall Museum in Prescott, Arizona.
+
+Sharlot Hall, the Arizona territorial historian Mike had first contacted on January 6, 1910 seeking publication help, had kept his papers. She died in 1943. The manuscript remained in the museum's archives, occasionally consulted by researchers but unpublished.
+
+**14. Seventy-Six Years**
+
+From Mike's death in 1934 to the first publication in 2010, seventy-six years passed.
+
+During this time, mainstream Arizona histories continued to describe the Skeleton Cave incident (when mentioned at all) from the Army's perspective as a battle against hostile Indians. Mike's eyewitness testimony, the only firsthand survivor account, remained unknown to the general public.
+
+**15. The Cave's Name**
+
+After the 1872 massacre, the bodies of victims were left in the cave. Between 1905 and 1908, rancher Jack (Jefferson Davis) Adams led a group to the site and photographer Lubken took photographs of the remains still scattered in the cave.
+
+The site became known as "Skeleton Cave," entering maps and local lore. The name referred to the physical evidence of the massacre visible to visitors, but for decades the full story of what had happened there on December 28, 1872 remained obscure because Mike Burns's account was unpublished.
+
+**16. Looting and Desecration**
+
+From 1905-1911, during Roosevelt Dam construction, the site was looted. Artifacts and human remains were removed. In 1984, a Phoenix outdoor writer was pictured with illegally taken material. Metal detectors were used and the cave floor was dug down three or more feet.
+
+The site was not protected as a sacred place or massacre location until much later. This desecration continued for decades as another layer of violence against the Yavapai dead.
+
+---
+
+### PART VI: PUBLICATION (2010-2012)
+
+**17. Rediscovery (Early 2000s)**
+
+Around the turn of the twenty-first century, scholars working in the Sharlot Hall Museum archives recognized the extraordinary significance of Mike Burns's manuscript as a firsthand account of the Skeleton Cave Massacre, forced assimilation, and Indigenous survival.
+
+**18. First Publication (2010)**
+
+"All My People Were Killed: The Memoir of Mike Burns (Hoomothya) A Captive Indian" was published by Sharlot Hall Museum Press, edited by Dr. John Langellier and Dr. Sandra Lynch.
+
+The publication came exactly one hundred years after Mike first wrote to Sharlot Hall seeking publication help (January 6, 1910).
+
+**19. Second Publication (2012)**
+
+"The Only One Living to Tell: The Autobiography of a Yavapai Indian" was published by the University of Arizona Press. Gregory McNamee spent seven years compiling and editing the manuscript, providing historical context while centering Mike's own words.
+
+This comprehensive edition included Mike's full life story alongside his testimony about Skeleton Cave, the March of Tears at Rio Verde Reservation, and the broader history of Yavapai dispossession.
+
+**20. A Century of Waiting**
+
+Mike's children did not live to see his work published. Some of his grandchildren may have been alive in 2010-2012 to witness their grandfather's testimony finally reaching the public.
+
+His manuscript had waited a hundred years to be heard.
+
+---
+
+### PART VII: CHANGING THE RECORD
+
+**21. The Power of One Witness**
+
+Mike Burns had written in 1913: "I am the only one living to tell what happened to my people."
+
+As the only known firsthand survivor account of the Skeleton Cave Massacre, his testimony carries unique historical authority. His manuscript provides details unavailable in military records: the experience of being forced to guide soldiers to his family, witnessing the massacre, the brutality of Pima and Maricopa scouts afterward, and the human cost of the attack.
+
+**22. Rewriting History**
+
+With publication of Mike's testimony, historians and the public finally had access to the Yavapai perspective on Skeleton Cave.
+
+Military reports had claimed a justified engagement against hostile combatants, with casualty counts of 54-76 dead. Mike's account revealed families sheltering in a cave, women and children among the approximately 225 dead, soldiers using ricochet fire off cave walls to shatter bodies, and rolling boulders to crush those trying to escape.
+
+**23. From "Battle" to "Massacre"**
+
+The narrative has shifted in historical literature and public understanding. Museums, textbooks, and historical markers have begun to change. The Yavapai perspective, carried by Mike's testimony, has forced a reckoning with the reality of what happened on December 28, 1872.
+
+---
+
+### PART VIII: THE ONGOING STRUGGLE
+
+**24. Fort McDowell Yavapai Nation Today**
+
+The Fort McDowell Yavapai Nation continues on the reservation established in 1903. Current size is approximately 24,000 acres (40 square miles) with around 950 community members.
+
+The reservation represents only a fraction of the millions of acres of ancestral Yavapai territory, which stretched across central Arizona from the Verde Valley to the Salt River Canyon and the Superstition Mountains.
+
+**25. Water Rights**
+
+The Verde River and Salt River water sources remain contested. The Fort McDowell Indian Community Water Rights Settlement Act of 1990 was a major victory, but urban development in Phoenix, agricultural interests, and mining operations continue to threaten Yavapai water access.
+
+Legal battles over water rights continue more than a century after Mike and Carlos fought to preserve Fort McDowell, requiring constant defense of promises made in 1903.
+
+**26. Land and Sacred Sites**
+
+Surrounding the reservation, ancestral Yavapai lands remain in federal, state, or private hands. Sacred sites, including Skeleton Cave itself (located in Tonto National Forest and managed by the US Forest Service), are not under Yavapai control.
+
+Access to traditional sites requires negotiation with federal agencies. The people must continually negotiate access to places that were theirs for thousands of years before European contact.
+
+**27. Cultural Revitalization**
+
+The Fort McDowell Yavapai Nation maintains cultural programs, including language revitalization efforts, a tribal museum, and a youth drum group to reclaim what boarding schools like Carlisle attempted to erase.
+
+Traditional practices and ceremonies continue. The community honors its ancestors and asserts its continued presence on the land.
+
+**28. Contemporary Witness**
+
+Just as Mike Burns bore witness to the atrocities of his time, contemporary Yavapai people continue to document ongoing challenges: environmental destruction, bureaucratic neglect, and threats to sovereignty.
+
+New generations of Yavapai advocates, writers, and activists carry forward the work Mike began with his manuscript, refusing to let their history be erased.
+
+---
+
+### PART IX: FULL CIRCLE
+
+**29. Victory and Loss**
+
+Carlos Montezuma and Mike Burns achieved remarkable things:
+- They helped secure Fort McDowell as permanent Yavapai land (1903)
+- They documented their people's history in writing
+- Their advocacy created legal precedents and preserved cultural knowledge
+- Mike's manuscript eventually reached publication, forcing a reckoning with historical truth
+
+Yet both died before Mike's manuscript was published:
+- Carlos died January 31, 1923, at age 57
+- Mike died November 26, 1934, at age 69
+- Neither saw the vindication of Mike's witness reaching the world
+
+**30. The Work Continues**
+
+More than 150 years after the Skeleton Cave Massacre, the Yavapai people continue fighting for recognition, resources, and respect.
+
+Mike's story is finally told, but the conditions that made it necessary (dispossession, violence, erasure) have not been fully remedied. The witness continues because the injustice continues.
+
+**31. Why This Matters**
+
+Mike Burns wrote so that future generations would know the truth. That truth is not merely historical but present.
+
+It lives in ongoing Indigenous struggles for sovereignty, in fights to protect water and land, in efforts to preserve languages and cultures targeted for extinction. Mike's witness reminds us that genocide is not a single past event but an ongoing process requiring constant resistance.
+
+**32. At Fort McDowell Cemetery**
+
+Mike Burns is buried at the Ba Dah Mod Jo Cemetery at Fort McDowell, in the same cemetery where Carlos Montezuma was laid to rest in 1923 and where remains from Skeleton Cave were reinterred in a mass grave in 1933.
+
+The cemetery connects the cousins in death as they were connected in life and links them to the ancestors they fought to honor. Yavapai people continue to visit, remember, and carry forward the work of witness.
+
+---
+
+## Emotional Beat
+HISTORICAL ACCOUNTING + DELAYED JUSTICE + ONGOING STRUGGLE + TRIUMPH AND TRAGEDY + WITNESS FULFILLED + LEGACY HONORED + TRUTH PRESERVED
+
+---
+
+## Notes
+
+### PURPOSE OF THIS CHAPTER
+
+- Transitions from novel's narrative voice to author's historical note
+- Documents verified facts from 1923-present
+- Distinguishes historical record from fictional narrative elements
+- Traces manuscript's journey from Mike's death to publication
+- Connects historical injustices to present-day struggles
+- Honors both victories and ongoing challenges
+
+### VERIFIED HISTORICAL FACTS INCLUDED
+
+**1923**:
+- December 1922: Carlos Montezuma left Chicago, returned to Arizona
+- Early January 1923: Possible pilgrimage to Skeleton Cave by group including Carlos Montezuma, Mike Burns, John Williams, George and Charles Dickens (per John Williams 1975 oral testimony via Sigrid Khera)
+- January 31, 1923: Carlos Montezuma died at Fort McDowell, age ~57, from tuberculosis
+- Buried Fort McDowell cemetery
+
+**1920s-1930s**:
+- 1925: Second trip to cave with Mike Burns and Maricopa County sheriff.
+- 1933: Main reinterment of remains in a mass grave at the Ba Dah Mod Jo Cemetery at Fort McDowell.
+
+**1934**:
+- May 28, 1934: Mike moved to Fort McDowell
+- November 26, 1934: Mike Burns died, age ~69, at Fort Whipple hospital in Prescott.
+- Survived by wife Chehata and six children
+- Buried Ba Dah Mod Jo Cemetery at Fort McDowell
+
+**1934-2010**:
+- Manuscript preserved at Sharlot Hall Museum
+- Sharlot Hall died 1943
+- Manuscript occasionally consulted but unpublished for 76 years
+
+**1985**:
+- Memorial Day 1985: Tombstone dedicated over mass grave of Skeleton Cave victims
+- Fort McDowell Presbyterian Church service
+- Norman Austin (tribal president) statement
+
+**2010-2012**:
+- Early 2000s: Manuscript rediscovered by scholars
+- 2010: "All My People Were Killed" published (Sharlot Hall Museum Press, eds. Langellier & Lynch)
+- 2012: "The Only One Living to Tell" published (University of Arizona Press, ed. Gregory McNamee, 7 years compiling/editing)
+
+**Fort McDowell**:
+- September 15, 1903: Established by executive order (President Theodore Roosevelt)
+- 24,680 acres from abandoned military reserve
+- Current size ~24,000 acres, ~950 community members
+
+### UNCERTAINTIES AND GAPS CLEARLY NOTED
+
+- Exact participants in January 1923 cave trip (sources vary)
+- Whether Mike made additional solo trips to cave after Carlos's death
+- Mike's burial location details within cemetery
+- Relationship of Mike's grave to mass grave and Montezuma's grave
+- Exact circumstances of manuscript transfer to Sharlot Hall Museum
+- Identity of scholars who rediscovered manuscript in 2000s
+
+### FICTIONAL ELEMENTS EXCLUDED
+
+The following elements appear in the novel but are not historically verified:
+- Mike traveling alone to cave after Carlos's death
+- The unfinished bow recovered from beneath cottonwood (fictional narrative device)
+- Bow placed in Mike's grave
+- Specific details of Mike's burial arrangements
+- Bones buried in or with Mike's grave (sources indicate separate mass grave)
+- Mike being "keeper of bones" 1923-1934
+- Specific arrangements Mike made before death
+
+### TONE
+
+- Documentary and factual
+- Honors Mike's witness without romanticizing
+- Acknowledges both triumph and ongoing struggle
+- Clear-eyed about victories and losses
+- Respectful of Yavapai sovereignty and contemporary struggles
+- Positions story as living history, not closed chapter
+- Avoids em dashes (per project guidelines)
+
+### SOURCES FOR VERIFICATION
+
+- Mike Burns manuscripts and published works (2010, 2012)
+- John Williams oral testimony (1975, via Sigrid Khera)
+- Timothy Braatz, *Surviving Conquest: A History of the Yavapai Peoples*
+- Sharlot Hall Museum archives
+- Carlos Montezuma Papers (University of Arizona)
+- Fort McDowell Yavapai Nation historical records
+- National Park Service documentation
+
+### ADDITIONAL RESEARCH NEEDED
+
+See Research/CHAPTER_27_RESEARCH_GAPS.md for comprehensive list of items requiring verification through primary sources.
+
+---
+
+**END OF REVISED CHAPTER 27**
 
 ---
 
@@ -1158,187 +1463,3 @@ Present day. Skeleton Cave remembered. Fort McDowell thriving. Mike's books livi
 SURVIVAL + RESILIENCE + TRUTH ETERNAL
 
 ---
-
-## CHAPTER COUNT & WORD COUNT SUMMARY
-
-### Updated Structure (Chapters 13-14 Removed)
-
-**Prologue**: ~1,750 words
-
-**Act I (Chapters 1-12)**: Mike's partial life story + Carlos's intervention
-- Chapter 1: Learning to Be American (~2,500 words)
-- Chapter 2: Carlisle (~2,500 words)
-- Chapter 3: Highland (~2,500 words)
-- Chapter 4: The Choice (~2,500 words)
-- Chapter 5: Scout Service (~2,500 words)
-- Chapter 6: Chehata (~3,500 words)
-- Chapter 7: Family and Witness (~3,500 words)
-- **Chapter 8: Broken Promises - A Witness Account (~6,000 words)** [CONDENSED from former Chs 8, 9, 10]
-- Chapter 9: The Land (Fort McDowell Fight) (~2,500 words)
-- Chapter 10: First Citizen (~2,500 words)
-- **Chapter 11: The Manuscript (~2,000 words)** [Mike's publication attempts, Chehata encourages contacting Carlos]
-- **Chapter 12: The Cousin (Dr. Montezuma - ACT I CLIMAX)** (~3,000 words)
-**Act I Subtotal**: ~39,000 words (12 chapters)
-
-**Act II (Chapters 13-22)**: Hoomothya's Story + The Reveal
-- Chapters 13-22: Hoomothya Manuscript (10 chapters × ~2,500) = ~25,000 words
-- **Chapter 22: THE REVEAL - "I Was Hoomothya"** (~2,500 words)
-**Act II Subtotal**: ~25,000 words (10 chapters)
-
-**TRANSITION**: **Chapter 23: The Journey to the Cave** (~3,500 words) - After the reveal, the pilgrimage
-
-**Act III (Chapters 23-34)**: Publication Journey + Death + Posthumous Triumph
-- Chapter 23: The Letter (1910) (~2,500 words)
-- Chapter 24: Rejection (~2,500 words)
-- Chapter 25: Carlos's Return (1923) (~2,500 words)
-- Chapter 26: The Burial (~2,000 words)
-- Chapter 27: Twenty-Four Years (~3,000 words)
-- Chapter 28: Completion (~2,500 words)
-- Chapter 29: Autumn (~3,000 words)
-- Chapter 30: November 26, 1934 (~3,000 words)
-- Chapter 31: Silence (~2,500 words)
-- Chapter 32: Rediscovery (~2,500 words)
-- Chapter 33: The Second Book (~2,500 words)
-- Chapter 34: Readers (~2,500 words)
-**Act III Subtotal**: ~31,000 words (12 chapters)
-
-**Epilogue**: ~1,750 words
-
----
-
-**TOTAL STRUCTURE**:
-- Prologue: 1,750 words
-- Act I (Chapters 1-12): 39,000 words
-- Act II (Chapters 13-22): 25,000 words (includes The Reveal as Ch 22)
-- Chapter 23 (Transition): 3,500 words (Journey to the Cave - after reveal)
-- Act III (Chapters 23-34): 31,000 words
-- Epilogue: 1,750 words
-
-**GRAND TOTAL**: **~98,500 words** (34 chapters + Prologue + Epilogue)
-
-*Original target was 87,500 words. After removing Chapters 13 (Beginning Hoomothya's Story) and 14 (Hoomothya - Manuscript Chapter 1), the novel now totals ~98,500 words with 34 chapters. The structure flows directly from Carlos's intervention (Ch 12) into the Hoomothya manuscript chapters (Ch 13-22), building mystery to THE REVEAL (Ch 22). The Journey to the Cave (Ch 23) comes AFTER the reveal as a powerful transition—readers now understand the full emotional weight of Mike returning to Skeleton Cave. This creates maximum mystery buildup, devastating revelation, then cathartic pilgrimage. The novel sits at roughly 98,500 words—perfect for literary historical fiction (typically 90,000-110,000 words).*
-
-**KEY STRUCTURAL IMPROVEMENTS**:
-1. **The Reveal happens BEFORE the cave journey.** This creates a completely different emotional experience:
-   - **Act I (Ch 11-12)**: Mike tries to publish, Chehata suggests Carlos; Carlos plants the seed—"Write about Hoomothya"
-   - **Act II (Ch 13-22)**: Mike writes the manuscript in third person, building mystery, ending with THE REVEAL
-   - **Chapter 22**: AFTER readers know the truth, the cave journey becomes Mike's act of integration—honoring both Hoomothya and Mike Burns at the place where one died and the other was born
-   - **Act III**: With full integration achieved, Mike faces his final years and death as a whole person
-
-2. **CHAPTER 8 CONDENSATION RATIONALE**: The three former chapters (River of Return, The Promise, Good-bye My Homeland) are now woven into one powerful testimony chapter where Mike explicitly writes to document the broken promises and atrocities against the Yavapai people. This approach:
-   - Creates stronger narrative momentum by treating Rio Verde and March of Tears as one continuous betrayal
-   - Emphasizes Mike's role as witness/documentarian writing for the historical record
-   - Allows memoir-style testimony voice that explicitly states Mike's mission: "I set this down so the world may know"
-   - Maintains all historical content while eliminating repetitive framing
-
-3. **CHAPTER 11 (THE MANUSCRIPT) ADDITION**: Adds crucial bridge chapter showing:
-   - Mike's early witness mission (1910-1920) and publication attempts
-   - Chehata's active role as partner and advocate (she suggests contacting Carlos)
-   - Mike's awareness that "something is missing" from his manuscript
-   - Historical accuracy (Mike did write to Sharlot Hall in 1910)
-   - Better narrative flow into Carlos's intervention in Chapter 12
-
----
-
-## THE REVEAL STRUCTURE - KEY TO SUCCESS
-
-### Building Mystery (Acts I & II)
-1. **Act I (Ch 1-12)**: Mike tells his story but SKIPS his Yavapai childhood—starts as Captain Burns's servant, never names Hoomothya; the interlude (Ch 8) shows how hard he works to bridge present-day Mike to those buried memories.
-2. **Act I Climax (Ch 12)**: Carlos intervenes—"What about Hoomothya? What about that boy?"—readers still think it's someone else. NO cave journey yet—that comes after the reveal.
-3. **Act II (Ch 13-22)**: Hoomothya manuscript unfolds in third person—intimate details pile up. How does Mike know this so well?
-4. **Clues Accumulate**: Same events, phrases, tracking skills, trauma, dates—yet Mike maintains third-person distance.
-5. **Readers Realize**: Alert readers piece it together before the reveal.
-6. **Chapter 22 - THE REVEAL**: Mike finally admits the truth explicitly: "I was Hoomothya."
-7. **Chapter 23 - THE PILGRIMAGE**: NOW the cave journey—readers experience it with full knowledge of what it means to Mike
-
-### Why This Works
-- **Mystery drives reading**: Who is Hoomothya? Why does Carlos care so deeply about "that boy"? How does Mike know his story?
-- **Carlos as misdirection**: Fellow survivor pushing Mike to write "another survivor's" story—readers don't realize he already knows the truth.
-- **Clues satisfy**: Readers feel smart piecing it together ahead of the reveal.
-- **Official reveal pays off**: Even if guessed, Mike's admission is cathartic—especially after Carlos helped him reach this moment.
-- **Dissociation shown**: Writing in third person demonstrates trauma, not deceit.
-- **Integration**: Reveal is Mike finally claiming both identities—Carlos's gift to him.
-- **Emotional power**: 50+ years of carrying this secret; Carlos dies helping Mike face it; Mike finally speaks truth aloud.
-
-### Clues Planted Throughout
-
-**Act I (Mike's story, Ch 1-13)**:
-- Starts as servant to Burns, skips how he got there (Why?).
-- Hints at buried identity but never names it.
-- "They killed my family" (Who? Which family?).
-- Tracking skills (Where did he learn?).
-- "My own people" (Which people?).
-- Guilt, survivor's guilt (Survivor of what?).
-- Marriage to Chehata reconnects him to Yavapai culture.
-- Interlude (Ch 8) shows Chehata urging him while he still speaks in riddles about the past.
-- December 22-28, 1872 dates surface in memory fragments.
-- **Carlos intervention (Ch 12)**: "What about Hoomothya? That boy deserves to be remembered."—readers think it's another child, another survivor.
-- **Carlos's words**: "You are the only one living to tell"—tell WHAT? About whom?
-
-**Act II (Hoomothya manuscript, Ch 13-22)**:
-- Same dates as Mike's story (December 22-28, 1872).
-- Same captain (James Burns).
-- Same tracking skills learned.
-- Same "bitter vengeance" phrase.
-- Same massacre witnessed.
-- Same survival—only one living.
-- **Growing realization**: Every detail Mike "knows" about Hoomothya matches Mike's own experience.
-- **The question**: How does Mike know what Hoomothya felt, thought, experienced?
-
-**Accumulating Evidence**:
-- Chapter 17 (Capture): December 22—capturing Hoomothya.
-- Chapter 18 (Six Days): Hoomothya's captivity experience.
-- Chapter 19 (Massacre): Hoomothya witnessing Skeleton Cave.
-- Chapter 20 (Brought to Burns): Massacre survivor becomes Burns's ward—the reveal becomes undeniable.
-
-**Chapter 22 (After the Reveal)**:
-- The cave journey NOW—readers understand Mike is returning to the place where Hoomothya died
-- Integration moment: honoring both identities at the site of trauma
-- Cathartic pilgrimage with full emotional weight
-
----
-
-## EMOTIONAL JOURNEY
-
-### Reader Experience
-1. **Prologue**: Intrigued—Mike starting to write but avoiding something.
-2. **Act I (Ch 1-12)**: Engaged with Mike's struggle, wondering about his mysterious origins.
-3. **Act I Climax (Ch 12)**: Carlos intervention—"Who is Hoomothya? Why does this 'other boy' matter so much?"
-4. **Act II (Ch 13-22)**: Increasingly certain Mike = Hoomothya as clues pile up, but waiting for confirmation.
-5. **Chapter 22 - THE REVEAL**: Cathartic—Mike finally says "I was Hoomothya"—readers realize Carlos knew all along and was gently guiding Mike toward this integration.
-6. **Chapter 23 - THE PILGRIMAGE**: NOW the cave journey—devastating and beautiful because readers understand what it means
-7. **Act III (Ch 24+)**: Understanding Mike's mission with full context—including Carlos's role in making the manuscript possible.
-
-### Mike's Arc (with Carlos as Guide)
-1. **Prologue + Act I (Ch 1-12)**: Fragmented, carrying secret, dissociated from Hoomothya identity, writing only "safe" story.
-2. **Act I Climax (Ch 12)**: Carlos breaks through resistance—"That boy deserves to be remembered"—permission to face trauma.
-3. **Act II (Ch 13-22)**: Manuscript unfolds in third person—distance necessary for survival.
-4. **Chapter 22 - THE REVEAL**: Integration in writing—"I was Hoomothya. I am Hoomothya."—Carlos's final gift bearing fruit.
-5. **Chapter 23 - THE PILGRIMAGE**: Integration in action—returning to the cave as a whole person, honoring both identities.
-6. **Act III (Ch 24+)**: Complete witness, both identities claimed, Carlos honored, mission fulfilled.
-7. **Death**: Peace, integration, truth recorded—Carlos waiting for him.
-
----
-
-### Carlos Montezuma's Role in the Reveal Structure
-
-**Why Carlos as Catalyst Works Brilliantly**:
-
-1. **Survivor helping survivor**: Carlos (found under dead mother, age ~6) helps Mike (witnessed massacre, age 7-8) face shared trauma.
-2. **He knows the truth**: Carlos already knows Mike = Hoomothya, but lets Mike arrive at integration in his own time.
-3. **Permission giver**: "Write about him as someone else if you must"—validates Mike's need for distance.
-4. **Misdirection for readers**: Readers think Carlos is pushing Mike to write about a DIFFERENT child/survivor.
-5. **Emotional urgency**: Carlos dying (1920-1923) creates deadline—write before last fellow survivor is gone.
-6. **Thematic perfect**: Education and platform (Carlos) + community and witness (Mike) = two paths, same mission.
-7. **The reveal recontextualizes everything**: When Mike admits "I was Hoomothya," readers realize every word Carlos said was about MIKE, helping him toward wholeness.
-
-**Carlos's key lines that work as mystery clues**:
-- "What about Hoomothya? What about that boy?"—readers think: another child Carlos knows about.
-- "You remember everything. That's your burden. And your power."—readers think: Mike witnessed something Carlos didn't.
-- "You are the only one living to tell."—readers think: tell about others who died.
-- "That boy deserves to be remembered."—readers think: someone else, someone Mike failed to save.
-- **After reveal**: Readers realize Carlos meant Mike himself the whole time, gently guiding cousin toward self-reclamation.
-
----
-
-**This structure creates maximum mystery, emotional power, and reader satisfaction while honoring Mike Burns's dissociation and ultimate integration of his fractured identity. Carlos Montezuma's intervention transforms the narrative from a mystery about identity into a profound story about trauma, healing, and one survivor helping another toward wholeness.**

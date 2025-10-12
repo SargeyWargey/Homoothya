@@ -182,8 +182,6 @@ I lay between my parents, wrapped in my blanket, and stared at the cave ceiling 
 
 Other people had used this cave before us. Other Yavapai families, fleeing other dangers. I wondered if they'd felt this same fear. This same sense of being hunted.
 
-I wondered if they'd survived.
-
 "Sleep," my mother whispered, the same word she'd said every night of this journey.
 
 I closed my eyes.
