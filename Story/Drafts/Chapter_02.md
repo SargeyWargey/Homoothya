@@ -1,7 +1,7 @@
-# CHAPTER 2: CARLISLE
+# 2  |  CARLISLE
 
-## 1880-1885
-
+### 1880-1885
+### Carlisle, Pennsylvania 
 The train that took me from Fort Laramie rolled through country that did not belong to any map I carried in my memory. The prairie gave way to hills thick with trees. Rivers ran brown instead of red, and the air smelled of coal smoke that settled on the back of my tongue. At every station new passengers climbed aboard with trunks and stiff collars. They glanced at me as if I were a curiosity and then went back to their newspapers. I pressed my forehead to the glass and watched the landscape blur. The words I knew in the hidden language inside me had no shapes for what I saw. I tried to name the colors in English instead. That was the tongue I would need where the train was taking me.
 
 When we reached Pennsylvania the sky hung low and white. Rain blew sideways across the platform. Captain Bishop's letter had arranged for an agent from the school to meet me. The man held a slate that said Carlisle in chalk. He nodded when he saw the uniform the Army had given me and took my carpetbag without asking. We climbed into a wagon that rattled through streets lined with brick buildings and gas lamps. I had never seen so many chimneys. Smoke curled from them like warnings. The agent tried to make conversation. Where you from, son? How old are you? I answered with the facts he expected. Fifteen. Arizona Territory. My name is Mike Burns. The words felt practiced because they were. He smiled as if the answers pleased him and told me I would do fine. I kept my eyes on the windows and counted church steeples to steady myself.
