@@ -6,15 +6,15 @@ The earliest morning I remember best, I was small enough to climb.
 
 My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."
 
-Hoomothya means "Wet Nose" in our language. Grandmother named me that the day I was born, laughing that I cried so hard my whole face shone. Sometimes I wished for a fiercer name, but when she called up to me from the roots of the mesquite, the word felt like warm hands on my back.
+Hoomothya means "Wet Nose" in our language. Grandmother named me that the day I was born,  I cried so hard my whole face shone. Sometimes I wished for a fiercer name, but when she called up to me from the roots of the mesquite, the word felt like warm hands on my back.
 
 I stretched toward the golden clusters, my toes gripping bark worn smooth by summer heat. The mesquite tree swayed, and I swayed with it, the whole world tilting beneath me. Below, burden baskets waited like open mouths. My mother and aunts moved between the trees, their hands quick and sure, filling the baskets with the dry rustle of pods pulled from branches.
 
 "Not too high," my grandmother called, but she was smiling. I could hear it in her voice.
 
-I reached for a cluster just beyond my fingertips. The pods were fat and golden, darker than the others, and when I pulled them close they smelled sweet enough to make my mouth water. The branch dipped under my weight. For a heartbeat I hung there, suspended between earth and sky, the Salt River shining in the distance like a snake's skin catching light.
+I reached for a cluster just beyond my fingertips. The pods were fat and golden, darker than the others, and when I pulled them close, they smelled sweet enough to make my mouth water. The branch dipped under my weight. For a heartbeat, I hung there, suspended between earth and sky, the Salt River shining in the distance like a snake's skin catching light.
 
-Then my fingers closed around the pods and I dropped them down.
+Then my fingers closed around the pods, and I dropped them down.
 
 "Good," grandmother said as they landed in her basket. "You see? The tree gives what we need."
 
@@ -22,7 +22,7 @@ The sun stood high now, turning the desert white. Heat rose in waves from the ca
 
 I climbed down slow, the way my uncle had taught me. "Three points touching," he'd said, "always three." Hand, hand, foot. Hand, foot, foot. The bark warm against my palms.
 
-When I dropped to the ground my grandmother was watching me with eyes that saw everything. She reached out and brushed my hair back from my forehead, her fingers dry and light as milkweed silk.
+When I dropped to the ground, my grandmother was watching me with eyes that saw everything. She reached out and brushed my hair back from my forehead, her fingers dry and light as milkweed silk.
 
 "You're growing," she said. "Soon you'll be too big to climb."
 
@@ -32,11 +32,11 @@ When I dropped to the ground my grandmother was watching me with eyes that saw e
 
 "Someone smaller." Her mouth curved. "The sky keeps turning, child. That's how we know we're alive."
 
-My mother held out the waterskin and I drank. The water tasted like the clay pot it had come from, cool despite the heat. She took it back and drank herself, then poured a little over her hands and wiped her face.
+My mother held out the waterskin, and I drank. The water tasted like the clay pot it had come from, cool despite the heat. She took it back and drank herself, then poured a little over her hands and wiped her face.
 
 "Your father will be proud," she said. "Look how much we've gathered already."
 
-The baskets were half full, and the sun had barely begun its fall toward the western mountains. All morning we'd worked like this, the rhythm of it steady as breathing. Reach, pull, drop. The pods rattling into baskets. My hands sticky with mesquite sap, my legs scratched from bark, my heart full in a way I had no words for.
+The baskets were half full, and the sun had barely begun its fall toward the western mountains. All morning we'd worked like this, the rhythm of it steady as breathing. Reach, pull, drop. The pods rattled into baskets. My hands sticky with mesquite sap, my legs scratched from bark, my heart full in a way I had no words for.
 
 Nashta ran up holding a pod that had split open. "Look, grandmother, it's already sweet inside."
 
@@ -44,15 +44,15 @@ Grandmother took it and examined it like it was something precious. "The tree kn
 
 We worked until the sun sat lower, painting the canyon walls red and gold. My mother sang while she gathered, a song about the mesquite and how it had saved the people in the hungry time. My aunts joined in, their voices braiding together. I didn't know all the words yet, but I hummed along, the melody familiar as my own heartbeat.
 
-When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my aunt in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
+When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was the smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my aunt in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
 
-Ahead, smoke rose from the cooking fires. I could smell rabbit roasting and my stomach woke up all at once, growling. Nashta giggled behind me.
+Ahead, smoke rose from the cooking fires. I could smell rabbit roasting, and my stomach woke up all at once, growling. Nashta giggled behind me.
 
 "Someone's hungry," my aunt said.
 
 "I could eat a whole deer," I said, and everyone laughed.
 
-"First you have to help bring one down," my uncle's voice came from the trail ahead. He stood there with my father, both of them empty-handed but smiling. No deer today, then. But they looked happy anyway, the kind of happiness that came from being out on the land, from moving quiet through the world and seeing what there was to see.
+"First, you have to help bring one down," my uncle's voice came from the trail ahead. He stood there with my father, both of them empty-handed but smiling. No deer today, then. But they looked happy anyway, the kind of happiness that came from being out on the land, from moving quiet through the world and seeing what there was to see.
 
 My father reached out and steadied my burden basket when I stumbled on a root.
 
@@ -62,7 +62,7 @@ My father reached out and steadied my burden basket when I stumbled on a root.
 
 "I know you are." His hand rested on my shoulder for a moment, warm and heavy. "But even the strong rest."
 
-At camp, we set the baskets down in the shade of the ramada. My back sang with relief. Other families were returning too, their own baskets full. Tonight or tomorrow we would pound the pods into meal, the sound of stone on stone echoing through the canyon. We would press out the sweet juice and drink it, or make it into cakes that would keep when we moved to the higher country.
+At camp, we set the baskets down in the shade of the ramada. My back sang with relief. Other families were returning too, their own baskets full. Tonight or tomorrow, we would pound the pods into meal, the sound of stone on stone echoing through the canyon. We would press out the sweet juice and drink it, or make it into cakes that would keep when we moved to the higher country.
 
 The thought of moving made me both sad and excited. I loved this place, this camp by the river where the mesquite grew thick and the water ran even in the dry times. But the mountains were different, cool and green, and there would be walnuts to gather and new places to explore.
 

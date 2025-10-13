@@ -4,7 +4,7 @@
 ### Salt River Mesa
 The soldiers didn't leave.
 
-For three days we knew they were somewhere on the mesa above us. We couldn't see them from the cave, but we knew they were there, searching. We lived in whispers. Moved like shadows. The fires stayed cold.
+For three days, we knew they were somewhere on the mesa above us. We couldn't see them from the cave, but we knew they were there, searching. We lived in whispers. Moved like shadows. The fires stayed cold.
 
 On the fourth day, scouts reported they had moved.
 
@@ -24,7 +24,7 @@ I played with them for a while, a game of hiding and seeking among the rock form
 
 It never came.
 
-That evening the meat ran out.
+That evening, the meat ran out.
 
 My mother scraped the bottom of the storage basket, finding only a few dried strips. She made a thin stew with prickly pear pads and what little meat remained, cooking it in a basket by dropping hot stones into the water until it boiled. Everyone got a portion, but it was small. Not enough. My stomach was still hollow after I finished.
 
@@ -42,13 +42,13 @@ My uncle finally nodded, though his face showed he didn't like splitting up. "Du
 
 I fell asleep that night with my stomach growling, dreaming of venison roasting over fire.
 
-***
+---
 
 The fifth day passed in hungry anticipation.
 
 Everyone knew my uncle and I would hunt at dusk. The women prepared to process whatever game we brought back, even in the dark if necessary. The children were quieter, sensing the tension, the need for this hunt to succeed.
 
-I watched my father throughout the day. He organized the men, checking weapons, discussing what to do if soldiers appeared while we were gone. He was staying to protect the family. To protect my mother and sisters.
+I watched my father throughout the day. He organized the men, checked weapons, and discussed what to do if soldiers appeared while we were gone. He was staying to protect the family. To protect my mother and sisters.
 
 I watched the sun track across the sky, impatient for evening to come.
 
@@ -74,7 +74,7 @@ My mother pulled me close, her hands on my shoulders. My baby sister squirmed in
 
 She kissed my forehead, then let me go.
 
-My father stood with the other men near the cave entrance, watching us prepare to climb up to the mesa. He raised his hand once, a gesture that might have been goodbye or blessing or warning.
+My father stood with the other men near the cave entrance, watching us prepare to climb up to the mesa. He raised his hand once, a gesture that might have been goodbye, a blessing, or a warning.
 
 I raised mine back.
 
@@ -108,9 +108,9 @@ My uncle looked at me in the fading light. "That arrow will kill him within the 
 
 He stood there in the growing darkness, weighing his choice. The need for caution. The equal need for food.
 
-Finally he nodded, more to himself than to me. "We track him. Carefully. We find him, dress him, and head straight back. We won't go far."
+Finally, he nodded, more to himself than to me. "We track him. Carefully. We find him, dress him, and head straight back. We won't go far."
 
-We followed the blood trail as darkness fell completely. Dark drops on stone. A smear on brush. The deer was bleeding, but not as heavily as my uncle had hoped. It was still moving.
+We followed the blood trail as darkness fell completely. Dark drops on stone. A smear on the brush. The deer was bleeding, but not as heavily as my uncle had hoped. It was still moving.
 
 We tracked for an hour. Then another. The deer kept going, kept moving deeper into the broken country beyond the mesa, farther from the cave.
 
@@ -122,7 +122,7 @@ We found him in a small clearing, collapsed on his side, his breathing labored a
 
 My uncle dispatched him quickly with a knife. We stood in the darkness around the fallen deer, and I felt relief wash through me. We had meat. The group would eat. Father would be proud.
 
-But we'd gone much farther than planned. And it was fully dark now, the moon not yet risen. We'd have to dress the deer here and carry it back in darkness.
+But we'd gone much farther than planned. And it was fully dark now, the moon not yet risen. We'd have to dress the deer here and carry it back in the darkness.
 
 My uncle worked quickly, field-dressing the carcass by feel as much as by sight. I held the hunting bag, ready to collect the liver and heart—precious organs we'd eat first.
 
@@ -170,7 +170,7 @@ The gunshot was impossibly loud in the night.
 
 My uncle staggered backward, his hand going to his chest. Dark blood welled between his fingers, black in the firelight.
 
-"No!" I scrambled to my feet but hands grabbed me. Native hands. One of the scouts held me back while my uncle fell to his knees.
+"No!" I scrambled to my feet, but hands grabbed me. Native hands. One of the scouts held me back while my uncle fell to his knees.
 
 My uncle's eyes found mine across the firelight. Wide. Surprised. Already fading.
 
@@ -178,4 +178,4 @@ He tried to speak. Then he went still.
 
 I couldn't breathe. Couldn't move. Couldn't do anything but stare at my uncle lying dead on the ground, the firelight flickering across his open eyes.
 
-The shot still echoed inside me, a ringing that drowned out everything else. The cold didn't matter. The scouts' voices blurred. The world had split with that sound and nothing would ever fit back together.
+The shot still echoed inside me, a ringing that drowned out everything else. The cold didn't matter. The scouts' voices blurred. The world had split with that sound, and nothing would ever fit back together.

@@ -12,11 +12,11 @@ Gunfire erupted from everywhere at once. From above the cave. From the slopes be
 
 I could see the cave entrance clearly from where I stood. Could see people stumbling out, confused, terrified. Could see them fall as bullets found them.
 
-Could see them try to retreat back into the cave.
+I could see them trying to retreat back into the cave.
 
 Into the trap.
 
-Captain Brown beside me said something coldly in English. I didn't understand the words but I understood the tone. Keep firing. Don't stop.
+Captain Brown beside me said something coldly in English. I didn't understand the words, but I understood the tone. Keep firing. Don't stop.
 
 The gunfire continued. Relentless. The soldiers above the cave were firing straight down into the entrance. I could see the muzzle flashes. Could see people trying to run, trying to hide, trying to protect their children.
 
@@ -24,7 +24,7 @@ But it was too dark inside the cave to see faces. Too far to recognize individua
 
 My people.
 
-A woman ran from the cave entrance, something bundled in her arms. A child. A baby maybe.
+A woman ran from the cave entrance, something bundled in her arms. A child. A baby, maybe.
 
 She made it three steps before the bullets found her.
 
@@ -40,7 +40,7 @@ One of the soldiers near us said something. He sounded sick.
 
 But the shooting didn't stop. Couldn't stop. Had its own momentum now.
 
-I sank to my knees, my hands over my ears, but I couldn't block out the sounds. The gunfire. The screams. The ricochets singing off stone.
+I sank to my knees, my hands over my ears, but I couldn't block out the sounds. The gunfire. The screams. The ricochets singing off the stone.
 
 And then a new sound. A deep grinding. Cracking.
 
@@ -80,7 +80,7 @@ He said something in English. His voice was flat. Empty. Orders to send men in t
 
 I watched soldiers scramble down to the cave. Watched them disappear into that dark entrance where my family had died.
 
-Where my mother had probably died.
+Where my mother had died.
 
 Where my father had tried to protect everyone.
 
@@ -92,7 +92,7 @@ Because I'd led the soldiers here.
 
 The soldiers began emerging from the cave. Some looked shaken. One stumbled away and vomited. Another sat down hard, his head in his hands.
 
-Captain Brown walked down toward the cave to inspect. When he returned, his uniform was dusty but his face showed satisfaction. A job completed.
+Captain Brown walked down toward the cave to inspect. When he returned, his uniform was dusty, but his face showed satisfaction. A job completed.
 
 I heard him report to his other officers. Numbers. All women, children, and old men. A few were still alive when they went in. The scouts finished them.
 
@@ -108,7 +108,7 @@ A soldier pulled me up. Not roughly, but not gently either. Just doing his job.
 
 Through one of the scouts, Captain Brown said to take me back up to the mesa camp.
 
-My hands weren't tied but they might as well have been. I had nowhere to go. No one to go to.
+My hands weren't tied, but they might as well have been. I had nowhere to go. No one to go to.
 
 Everyone was dead.
 
@@ -116,9 +116,9 @@ As they led me away from the canyon, back toward the mesa camp, I looked back on
 
 Smoke still rose from the cave entrance.
 
-Seventy souls. Men and women and children and elders.
+Seventy souls. Men, women, children, and elders.
 
-All dead because an eight-year-old boy had whispered "cave" when a knife was at his throat.
+All were dead because an eight-year-old boy had whispered "cave" when a knife was at his throat.
 
 All dead because I'd chosen life over honor.
 
@@ -132,11 +132,11 @@ The sight of people falling at the cave entrance.
 
 The sound of boulders crushing bone.
 
-The ricochets singing off stone deep in the cave where it was too dark to see but not too dark to die.
+The ricochets singing off stone deep in the cave, where it was too dark to see but not too dark to die.
 
 The silence that followed.
 
-And the knowledge that I had guided them there. Had brought death to my people. Had walked at the front of the column showing soldiers the way.
+And the knowledge that I had guided them there. Had brought death to my people. Had walked at the front of the column, showing soldiers the way.
 
 I was Hoomothya. The only survivor.
 

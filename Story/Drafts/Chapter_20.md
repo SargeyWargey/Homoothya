@@ -2,13 +2,13 @@
 
 ### December 27, 1872
 ### Salt River Mesa
-The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited, the main force, converging from different directions.
+The column formed up in the gray dawn light. Officers, soldiers, and the Pima scouts. More men arrived as I waited, the main force converging from different directions.
 
 The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way."
 
 I walked.
 
-I walked through country I'd only seen once before. Last night. Following my uncle's footsteps in darkness.
+I walked through the country I'd only seen once before. Last night. Following my uncle's footsteps in darkness.
 
 Now, in daylight, I could see it all. The rocks. The juniper. The turn of the path.
 
@@ -16,7 +16,7 @@ Now I was retracing those steps to bring death to my family.
 
 The Pima scout kept his hand on my shoulder. Not gentle. A reminder that I was his prisoner, his tool. Behind us, the soldiers followed quietly. Professional. Efficient.
 
-The officers walked near the front, watching me. Watching the land. Occasionally they'd signal the column to stop while they studied the terrain.
+The officers walked near the front, watching me. Watching the land. Occasionally, they'd signal the column to stop while they studied the terrain.
 
 We were getting closer. I could feel it in my bones. See it in the shape of the hills. The way the land folded toward the canyon.
 
@@ -26,7 +26,7 @@ Every step took me closer to the moment when everything would end.
 
 The sun rose higher. The December morning grew warmer. Beautiful weather for the end of the world.
 
-At midday, one of the officers called a halt. We stopped in a draw, hidden from view. The soldiers passed around canteens, ate cold rations. One offered me water.
+At midday, one of the officers called a halt. We stopped in a draw, hidden from view. The soldiers passed around canteens and ate cold rations. One offered me water.
 
 I drank because my throat was dust. But I couldn't eat.
 
@@ -46,13 +46,13 @@ From my family.
 
 My steps slowed. The scout's hand tightened on my shoulder. Through gestures: "Keep walking."
 
-But my legs wouldn't move. Couldn't. To go farther would be to...
+But my legs wouldn't move. Couldn't. To go further would be to...
 
 The scout shoved me forward. I stumbled, fell to my knees.
 
 One of the officers was there quickly. He said something sharp to the scout, who backed off muttering. Then the officer pulled me to my feet, his grip firm but not cruel.
 
-He tapped two fingers against his chest. "Captain Brown," he said slowly, the English name thick on his tongue. Then he pointed at me. "Hoomothya?" The way he shaped it was rough, but I nodded. For the first time the man giving orders had given me his name.
+He tapped two fingers against his chest. "Captain Brown," he said slowly, the English name thick on his tongue. Then he pointed at me. "Hoomothya?" The way he shaped it was rough, but I nodded. For the first time, the man giving orders had given me his name.
 
 Through broken words and gestures, they made me understand: almost over. Show them where. Then rest.
 
@@ -62,11 +62,11 @@ But I got to my feet. Kept walking. Because what choice did I have? The knife wa
 
 And I'd already chosen life.
 
-We crested a low rise and there it was. The canyon. The cliffs rising on the far side. And somewhere in those cliffs, hidden high above, the cave where my family slept.
+We crested a low rise, and there it was. The canyon. The cliffs rising on the far side. And somewhere in those cliffs, hidden high above, was the cave where my family slept.
 
 Where everyone I loved waited, unknowing.
 
-Captain Brown saw me freeze. Saw me staring at the canyon. He raised his hand and the column stopped.
+Captain Brown saw me freeze. Saw me staring at the canyon. He raised his hand, and the column stopped.
 
 Through a scout, Captain Brown asked: "There?"
 
@@ -74,7 +74,7 @@ I nodded.
 
 More gestures: "Where exactly? Show."
 
-I raised my hand slowly. Pointed at the north wall. At the section of cliff where, if you knew what to look for, you could just barely see the dark shadow that meant cave entrance.
+I raised my hand slowly. Pointed at the north wall. At the section of the cliff where, if you knew what to look for, you could just barely see the dark shadow that meant cave entrance.
 
 "There," I whispered.
 
@@ -84,15 +84,15 @@ Captain Brown said something to his other officers. They looked through the tube
 
 He turned to one of his men. The soldier saluted and rode off going to bring up the main force. They'd confirmed the location. Would position tonight, attack at dawn.
 
-Through the scouts, they told me: "You did well. Now you rest."
+Through the scouts, they told me, "You did well. Now you rest."
 
-But I wasn't done. Not yet. Because as the afternoon wore into evening, more soldiers arrived. More than I'd ever seen. They spread out through the draws and arroyos, staying hidden from the canyon, positioning themselves.
+But I wasn't done. Not yet. Because as the afternoon wore into evening, more soldiers arrived. More than I'd ever seen. They spread out through the draws and arroyos, staying hidden from the canyon as they positioned themselves.
 
 And they kept me with them. Close enough to answer questions through the scouts. Close enough to confirm details. Close enough to watch as they planned how to kill my family most efficiently.
 
 I watched the officers studying a map, pointing, tracing routes. The scouts translated some of it, explaining to each other in broken Yavapai what was being planned. The approach from above. Along the rim. Men positioned directly above the cave mouth before dawn. When the sun rises, anyone in the entrance will be silhouetted. Easy targets.
 
-And below sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
+And below, sharpshooters on the slopes. Anyone who tries to escape runs into crossfire.
 
 I understood enough from the scouts' broken words and gestures. Understood they were planning to trap my family. To surround them.
 
@@ -102,13 +102,13 @@ Trapped. In the cave they'd chosen for safety.
 
 Because I'd told the soldiers where it was.
 
-That night they made me sleep near the main camp. Not tied anymore, but guarded. Always watched.
+That night, they made me sleep near the main camp. Not tied anymore, but guarded. Always watched.
 
 I lay wrapped in a blanket and stared at stars. The same stars shining down on the cave where my family slept.
 
 Did my mother dream of me? Did she think I was dead? Did my father plan to search for me when it was safer?
 
-Did little Nashta cry for her big brother who'd promised to always protect her?
+Did little Nashta cry for her big brother, who'd promised to always protect her?
 
 I'd broken every promise. Every bond. Every obligation.
 
@@ -136,7 +136,7 @@ My family was waking up in that cave. Starting their day. Thinking they were saf
 
 Not knowing that above them, below them, all around them, hundreds of armed men waited for the signal.
 
-Not knowing their son and grandson and nephew had led them here.
+Not knowing their son, grandson, and nephew had led them here.
 
 The sun rose higher. Full light now.
 
@@ -144,7 +144,7 @@ And then, so faint at first, movement at the cave entrance. A figure appeared. O
 
 Captain Brown raised his hand toward the officer on the rim astride the white horse. Held it. Waiting for the perfect moment.
 
-Then dropped it.
+Then, dropped it.
 
 The officer on the white horse saw the signal.
 

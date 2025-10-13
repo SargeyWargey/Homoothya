@@ -2,7 +2,7 @@
 
 ### 1905-1909
 ### Fort McDowell, Arizona Territory
-The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
+The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway, I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
 
 Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our grandparents' generation. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
 
@@ -24,8 +24,6 @@ I took a breath and began.
 
 "I set this down so the world may know. The White People have heard only one side."
 
-
-
 "The first time General Crook spoke the words, I carried a pitcher of water taller than my forearm." I paused, remembering the weight of the ceramic, the way it sloshed against my chest. "The general stood in the parade ground at Camp Verde with officers clustered around him and Yavapai leaders gathered across the packed earth."
 
 Chehata leaned forward slightly.
@@ -38,7 +36,7 @@ I continued reading. The words described the months that followed: the wagons ar
 
 "I wrote here: 'They proved they could do everything asked. It didn't matter.'" I stopped, uncertain. "Did I say that too harshly?"
 
-Chehata's eyes flashed. "Not harsh enough. Say it again, louder. They did everything the Army asked. They surrendered. They farmed. They raised crops to feed themselves so the government wouldn't have to. And still..." She stopped, pressing her lips together. "Keep reading."
+Chehata's eyes flashed. "Not harsh enough. Say it again, louder. They did everything the Army asked. They surrendered. They farmed. They raised crops to feed themselves, so the government wouldn't have to. And still..." She stopped, pressing her lips together. "Keep reading."
 
 I read about the sickness. About the epidemic that swept through Rio Verde in those first two years, killing nearly half the people gathered there. My voice caught when I reached the part about Dr. Williams.
 
@@ -46,7 +44,7 @@ I read about the sickness. About the epidemic that swept through Rio Verde in th
 
 "You were a child," Chehata said. Her hand reached across the table and covered mine. "But now you're writing it down. That's how you help. Keep reading."
 
-I read the names: Grandma Dashkoda, Uncle Wahya, Mary Johnson, John Williams. The survivors who had told me their stories by firelight, their voices threaded with grief even decades later. They had described the smell of orange blossoms before the sickness came, the taste of wheat they had grown themselves, the sound of children burning with fever through the night.
+I read the names: Grandma Dashkoda, Uncle Wahya, Mary Johnson, and John Williams. The survivors who had told me their stories by firelight, their voices threaded with grief even decades later. They had described the smell of orange blossoms before the sickness came, the taste of wheat they had grown themselves, the sound of children burning with fever through the night.
 
 "Close to half the people at Rio Verde were gone," I read. "Disease had done what bullets had not."
 
@@ -58,15 +56,13 @@ I picked up my pencil and wrote the name in the margin. Kamala. Another name for
 
 I turned the page.
 
-
-
 "'As long as they lived' became two years."
 
 The words hung between us like smoke. Chehata's face hardened.
 
 "The day the column formed, frost clung to the shaded side of the adobe wall," I read. "The people stood with bundles tied in blankets. Some carried clay pots, some carried tools, all carried the weight of disbelief."
 
-I described the officer's announcement: the new order to march to San Carlos, the second promise that if they behaved they could return in five to seven years.
+I described the officer's announcement: the new order to march to San Carlos, the second promise that if they behaved, they could return in five to seven years.
 
 "I knew, even at age ten, this was a lie."
 
@@ -76,7 +72,7 @@ My voice roughened as I read the next part.
 
 "I traveled with the soldiers who forced the march. I was fed while my people starved. I rode while they walked. I was warm while they suffered."
 
-I had to stop. The words blurred on the page. Twenty days. Snowmelt turning the road to mud. The rations dwindling. Children collapsing. The father who asked for wagon space for his dying son and was refused.
+I had to stop. The words blurred on the page. Twenty days. Snowmelt turning the road to mud. The rations dwindling. Children collapsing. The father, who asked for wagon space for his dying son and was refused.
 
 "I could do nothing," I read, barely above a whisper. "I was ten years old, in the care of the men who were destroying my people's lives."
 
@@ -92,7 +88,7 @@ I described the fight that erupted: the chaos, the violence, soldiers trying to 
 
 "We marched again before the earth could cool," I read.
 
-Chehata had gone very still. "My uncle was there," she said finally. "He saw that fight. He said the blood ran into the river and the water turned red downstream. He said they didn't even have time to bury the bodies properly."
+Chehata had gone very still. "My uncle was there," she said finally. "He saw that fight. He said the blood ran into the river, and the water turned red downstream. He said they didn't even have time to bury the bodies properly."
 
 I added another note to the margin. Her uncle's testimony. Another witness to add to the accounting.
 
@@ -104,7 +100,7 @@ Chehata made a sound low in her throat, anger and grief mixed together.
 
 I reached the end of the march section, the words I had written from memory, from the ache that had lived under my ribs for thirty years.
 
-"Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land."
+"Good-bye, my homeland, and water, and trees, and rocks. There is no chance that I shall live long enough to come back to this land."
 
 My voice broke on the last words. I had whispered them as a child standing on the dry ground of San Carlos, certain I would never see the Verde again.
 
@@ -114,9 +110,7 @@ Silence filled the space between us. Outside, someone laughed at a neighboring f
 
 "You came back," Chehata said finally. Her eyes were wet. "We came back. That's our victory."
 
-
-
-I read the final section, the testimonies I had gathered from survivors who had told me what I couldn't see as a child. The years at San Carlos. The starvation. The diseases. The families torn apart. The dead buried far from their homeland.
+I read the final section, the testimonies I had gathered from survivors who had told me what I couldn't see as a child. The years at San Carlos. The starvation. The diseases. The families are torn apart. The dead buried far from their homeland.
 
 "I set down every name they gave me," I read. "Every person who died because of broken promises. This is the accounting the government will never make, so I make it."
 
@@ -134,13 +128,13 @@ I set the pages down. My hands were shaking again. The lamplight flickered, maki
 
 "Did I tell it true?" I asked.
 
-For a long moment she didn't answer. She stared at the pages spread across the table, testimony written in English letters she couldn't read but knew in her bones. Every word represented someone she had lost, something taken, some promise broken. Finally she looked up and met my eyes.
+For a long moment, she didn't answer. She stared at the pages spread across the table, testimony written in English letters she couldn't read but knew in her bones. Every word represented someone she had lost, something taken, some promise broken. Finally, she looked up and met my eyes.
 
 "You told it true," she said. "This is what happened. This is what they did to us."
 
 Relief flooded through me so strongly I had to close my eyes. "I wanted to honor what they suffered. What we all suffered."
 
-"You did." Her voice was firm. "You witnessed it from a strange place, with the Army but not of them. Your heart with your people but your body with the enemy. That makes your testimony powerful. You saw both sides. You can tell the White People what they did because you stood beside them when they did it."
+"You did." Her voice was firm. "You witnessed it from a strange place, with the Army but not of them. Your heart with your people, but your body with the enemy. That makes your testimony powerful. You saw both sides. You can tell the White People what they did because you stood beside them when they did it."
 
 I hadn't thought of it that way. The shame of my position during the march and the guilt of being fed while my people starved were burdens I carried. But Chehata was right. My strange position gave my testimony weight. I could document what I witnessed from inside the Army's ranks, things the people being marched couldn't have seen or known.
 
@@ -164,7 +158,7 @@ We had come back. Despite the broken promises, despite the disease and death and
 
 And I would write it all down so no one could ever say it didn't happen.
 
-"Come," Chehata said, pulling me to my feet. "The children will be home soon. Tomorrow you can add the names I gave you. Tonight, just rest."
+"Come," Chehata said, pulling me to my feet. "The children will be home soon. Tomorrow, you can add the names I gave you. Tonight, just rest."
 
 But I knew I wouldn't rest. Not completely. The testimony sat on the table between us like a living thing, demanding to be finished, to be shared, to be heard.
 

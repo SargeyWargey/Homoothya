@@ -20,11 +20,11 @@ We walked north from camp as the sun rose, painting the canyon walls copper and 
 
 He didn't tell me to be quiet. He just kept walking, smooth and certain, and I kept trying to match him.
 
-The land rose as we climbed away from the river. Saguaros stood tall on the slopes, their arms reaching up like people frozen in prayer. A jackrabbit burst from behind a creosote bush and my uncle's hand touched my shoulder, holding me still until the animal disappeared over a rise in four great leaps.
+The land rose as we climbed away from the river. Saguaros stood tall on the slopes, their arms reaching up like people frozen in prayer. A jackrabbit burst from behind a creosote bush, and my uncle's hand touched my shoulder, holding me still until the animal disappeared over a rise in four great leaps.
 
 "Too fast," he said. "Too thin. We want deer."
 
-We walked for a long time. The sun climbed and the heat built and my legs began to ache. But my uncle showed no sign of stopping, so I didn't either. Pride kept my feet moving when tiredness pulled at them.
+We walked for a long time. The sun climbed, and the heat built, and my legs began to ache. But my uncle showed no sign of stopping, so I didn't either. Pride kept my feet moving when tiredness pulled at them.
 
 Finally, where a small canyon opened between red rock walls, he stopped. His hand rose, fingers spread. I froze.
 
@@ -32,7 +32,7 @@ He knelt and pointed to the ground.
 
 "Come. Quiet."
 
-I crept forward and knelt beside him. At first I saw nothing but dirt and scattered pebbles. Then his finger traced a shape in the dust and I saw it: a split heart pressed into the earth, the mark of something that had passed this way.
+I crept forward and knelt beside him. At first, I saw nothing but dirt and scattered pebbles. Then his finger traced a shape in the dust, and I saw it: a split heart pressed into the earth, the mark of something that had passed this way.
 
 "Deer," my uncle said. "A doe. See how the toes spread? She's heavy. Maybe carrying a fawn."
 
@@ -62,7 +62,7 @@ Fresh tracks everywhere, pressed into mud. Deer had come here this morning, mayb
 
 "She's close," my uncle said, his voice barely a breath. "Maybe bedded in shade. The sun is high. She'll be resting."
 
-He tested the air, wet his finger and held it up. "Wind is good. Coming toward us. She won't smell us if we're careful."
+He tested the air, wet his finger, and held it up. "Wind is good. Coming toward us. She won't smell us if we're careful."
 
 We moved like shadows then, slower than I'd ever moved. Each step took forever. My uncle's eyes swept the canyon ahead, reading the landscape the way my grandmother read the sky before rain. I tried to see what he saw: the dark spaces under overhanging rock, the thick brush where something might hide, the shimmer of heat on stone.
 
@@ -76,11 +76,11 @@ My uncle's bow came up in one smooth motion. He drew the string back, the moveme
 
 The arrow flew.
 
-It happened faster than I could follow. One moment my uncle's bow was drawn, the next the arrow was gone and the deer was on her feet, leaping. I saw the shaft buried behind her shoulder, saw her take three great bounds, then stumble. Then fall.
+It happened faster than I could follow. One moment, my uncle's bow was drawn, the next the arrow was gone, and the deer was on her feet, leaping. I saw the shaft buried behind her shoulder, saw her take three great bounds, then stumble. Then fall.
 
 Then stillness.
 
-My uncle lowered his bow. He stood for a long moment without moving, his eyes on the place where the deer had fallen. Then he walked forward and I followed, my heart hammering in my chest.
+My uncle lowered his bow. He stood for a long moment without moving, his eyes on the place where the deer had fallen. Then he walked forward, and I followed, my heart hammering in my chest.
 
 She lay on her side, the arrow deep, her eyes already glazing. She was beautiful. Her coat was smooth, the color of sunset on canyon walls. Her hooves were small and perfect. Blood darkened the earth beneath her.
 
@@ -100,7 +100,7 @@ I reached out and laid my hand on her side. Still warm. Still soft. I could feel
 
 He showed me how to work. How to pull the arrow free, careful not to break the shaft. How to begin the field dressing, opening her belly with his stone knife, removing the organs we wouldn't eat. He did most of it, his hands quick and sure, but I helped where I could. Holding, steadying, watching.
 
-The work was hard and bloody and necessary. This was how we survived. Not from stores or markets, but from the land itself, from animals who gave their lives so we could eat.
+The work was hard, bloody, and necessary. This was how we survived. Not from stores or markets, but from the land itself, from animals who gave their lives so we could eat.
 
 When the deer was field-dressed, my uncle tied her legs together and hoisted her across his shoulders. She was heavy. I could see the weight in the way he shifted, finding balance.
 
@@ -160,7 +160,7 @@ My father appeared, carrying the bow he'd been working on. It was smaller than m
 
 My uncle was surrounded by the other men now, telling the story of the hunt. I heard him describe the tracking, the careful stalk, the shot. He didn't mention me by name, but when he said, "The boy did well," my father's hand touched my shoulder.
 
-That night we ate deer meat roasted over the fire. The smell filled the canyon, rich and savory. My uncle got the heart, as was proper. The hunter who made the kill got first choice, though he could share it if he wished. He cut it in pieces and gave some to my father, some to the elders, some to me.
+That night we ate deer meat roasted over the fire. The smell filled the canyon, rich and savory. My uncle got the heart, as was proper. The hunter who made the kill got first choice, though he could share it if he wished. He cut it into pieces and gave some to my father, some to the elders, some to me.
 
 "Eat," he said. "It will make you strong. Make you brave."
 
@@ -168,7 +168,7 @@ The meat was dense and dark, iron-tasting, warm from the fire. I chewed slowly, 
 
 This was what the deer had given us. Not just food, but this: togetherness, story, life continuing.
 
-I fell asleep that night thinking about tracks in the dust, about the arrow flying true, about my hand on the deer's warm side. In my dreams I walked the canyon with my uncle, following signs only I could see. The land spoke and I understood its language. I was learning to see.
+I fell asleep that night thinking about tracks in the dust, about the arrow flying true, about my hand on the deer's warm side. In my dreams, I walked the canyon with my uncle, following signs only I could see. The land spoke and I understood its language. I was learning to see.
 
 I was learning to be Yavapai.
 

@@ -64,7 +64,7 @@ But I kept trying.
 
 
 
-Over the next decade I sent queries to publishers in New York, Boston, Chicago. Each letter was carefully composed, explaining my unique position as witness and my education that allowed me to write for white audiences. Each letter emphasized the historical importance of a Native account of events that had only been told from the Army perspective.
+Over the next decade, I sent queries to publishers in New York, Boston, Chicago. Each letter was carefully composed, explaining my unique position as witness and my education that allowed me to write for white audiences. Each letter emphasized the historical importance of a Native account of events that had only been told from the Army perspective.
 
 The rejections arrived with predictable regularity.
 

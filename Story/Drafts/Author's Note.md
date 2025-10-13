@@ -1,16 +1,16 @@
 # Author's Note
 
-The inspiration for this book came from my time living in Arizona, and yes, later a particular women I dated. I would often drive and hike through the mesas and the Bradshaw Mountains after work and on weekends, exploring the remnants of the past, whether from the Native American era or the mining era. There's something profound about seeing history carved in rock or stones stacked by people from so many years ago. These encounters inspired me to read their stories, to research and learn about the people who came before.
+The inspiration for this book came from my time living in Arizona, and yes, a particular woman I dated. I would often drive and hike through the mesas and the Bradshaw Mountains after work and on weekends, exploring the remnants of the past, whether from the Native American era or the mining era. There's something profound about seeing history carved in rock or stones stacked by people from so many years ago. These encounters inspired me to read their stories, to research and learn about the people who came before.
 
 During that research, I came across the manuscript of a Native American man named Mike Burns. His story immediately grabbed hold of me. I read everything I could about this man and the Yavapai people, and I came away with a conviction: this is a story that deserves to be told to a wider audience.
 
-I originally started working on this project in 2019 as an idea YouTube series, visiting these places, writing out scenes, and telling their stories. Over the years, it evolved into something more: this book. It's something I've worked on, on and off, for five years. What you're reading now is the first draft of that journey.
+I originally started working on this project in 2019 as an idea for a YouTube series, visiting these places, writing out scenes, and telling their stories. Over the years, it evolved into something more: this book. It's something I've worked on, on and off, for five years. What you're reading now is the first draft of that journey.
 
 ## Historical Fiction
 
-I want to make clear that this is a **historical fiction novel**. I conducted research and put tremendous effort into keeping this story weighted toward the historical side rather than the fictional. However, I didn't want this to read like a manuscript or a history textbook. I wanted it to read as the story of one man's life, with narrative flow and emotional impact that does my best to honor his experience.
+I want to make it clear that this is a **historical fiction novel**. I conducted research and put tremendous effort into keeping this story weighted toward the historical side rather than the fictional. However, I didn't want this to read like a manuscript or a history textbook. I wanted it to read as the story of one man's life, with narrative flow and emotional impact, doing my best to honor his experience.
 
-That said: nearly all the characters you'll meet are real people. Nearly all the events that take place are documented historical events. Where the historical record had gaps, I did my best to fill them in to create a cohesive narrative. There is a chapter at the end (don’t go read it yet!) where I explain the specific liberties I took for the sake of storytelling, what is documented historical record, and what I added to bridge the gaps.
+That said, nearly all the characters you'll meet are real people. Nearly all the events that take place are documented historical events. Where the historical record had gaps, I did my best to fill them in to create a cohesive narrative. There is a chapter at the end (don’t go read it yet!) where I explain the specific liberties I took for the sake of storytelling, what is documented historical record, and what I added to bridge the gaps.
 
 ## An Invitation for Honest Feedback
 

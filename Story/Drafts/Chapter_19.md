@@ -14,7 +14,7 @@ I shook my head. I didn't understand. Or maybe I understood too well and didn't 
 
 The scout grabbed my arm, squeezed hard enough to hurt. Asked again. "Where. Your. People. Hide."
 
-He pointed at the darkness around us, made a sweeping gesture. Made a gesture like people hiding in a cave.
+He pointed at the darkness around us and made a sweeping gesture. Made a gesture like people hiding in a cave.
 
 They knew we were hiding somewhere nearby. The fire had drawn them. Now they wanted me to tell them where the others were.
 
@@ -32,11 +32,11 @@ I felt the blade. Cold. Sharp.
 
 The officer said something in English. The scout with the knife answered. They were arguing about something. About me.
 
-Finally the officer made a gesture and the knife came away from my throat.
+Finally, the officer made a gesture, and the knife came away from my throat.
 
-But the scout still held me. Still waited for an answer.
+But the scout still held me. Still waiting for an answer.
 
-"Cave," I whispered in Yavapai. My voice so small I could barely hear it myself. Then, not knowing if they understood, I pointed. Toward where the canyon lay in the darkness. Toward where my father and mother and sisters slept, unaware.
+"Cave," I whispered in Yavapai. My voice was so small I could barely hear it myself. Then, not knowing if they understood, I pointed. Toward where the canyon lay in the darkness. Toward where my father, mother, and sisters slept, unaware.
 
 Toward everyone I loved.
 
@@ -62,21 +62,21 @@ One of the scouts gestured at me, hands tracing a path, then pointing at his che
 
 I understood through their gestures. They were going to make me betray my family twice. Once with my words. Now with my feet.
 
-They untied my hands but the Pima scout kept hold of my arm.
+They untied my hands, but the Pima scout kept hold of my arm.
 
 I looked at my uncle's body. He'd stayed silent. Died with honor.
 
 I'd told them where the cave was. And now I was going to lead them there.
 
-Hours passed in a nightmare. More soldiers arrived—a few at first, then more. They gathered in the darkness, quiet and efficient. Officers issued orders through the scouts. Weapons checked. Equipment readied.
+Hours passed in a nightmare. More soldiers arrived, a few at first, then more. They gathered in the darkness, quiet and efficient. Officers issued orders through the scouts. Weapons checked. Equipment readied.
 
 As dawn approached, a different officer arrived—more markings on his shoulders than the others. The scouts seemed to defer to him more. They spoke briefly, the new officer looking at me once.
 
 He looked at me like I was a tool. Something to be used and discarded.
 
-They gave me a blanket as the temperature dropped toward dawn. I wrapped it around my shoulders but couldn't stop shivering. From cold. From knowing what came next.
+They gave me a blanket as the temperature dropped toward dawn. I wrapped it around my shoulders, but couldn't stop shivering. From cold. From knowing what came next.
 
-I thought about running. But the scout's hand never left my arm. Thought about refusing. But the knife was always there, visible threat.
+I thought about running. But the scout's hand never left my arm. Thought about refusing. But the knife was always there, a visible threat.
 
 I was eight years old. Just a child who wanted to live.
 

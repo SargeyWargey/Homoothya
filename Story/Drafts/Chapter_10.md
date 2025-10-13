@@ -74,7 +74,7 @@ The clerk handed me a registration card. My name, my age, my occupation, all red
 
 I folded the card into my pocket beside the certificate and walked out into the Prescott morning.
 
----
+
 
 The street was busy with wagons and men conducting business they believed mattered. I stood on the courthouse steps and let the sun warm my face. Somewhere inside I expected to feel different. Transformed. Vindicated. Instead I felt the same weight I had carried into the building, only now it had a new name attached.
 
@@ -144,7 +144,7 @@ The first truth: I was now a citizen with the right to vote.
 
 The second truth: I had gained that right by denying the very people whose story I intended to tell.
 
----
+
 
 On the road out of Prescott I passed the weathered sign that pointed toward Fort Whipple. Seeing the name tightened something behind my ribs. I kept my horse aimed toward home. Some memories must wait until a man can lift them without breaking.
 
@@ -180,7 +180,7 @@ I sat at the table and watched her move through the kitchen with practiced effic
 
 This was the truth the Burke Act could not touch: I belonged here. Not because the government said I was competent, not because I had severed anything, but because Chehata and I had chosen each other and built a life that honored both who I had been and who I was becoming.
 
----
+
 
 The next morning a neighbor rode by with a copy of the *Prescott Weekly-Journal Miner*. The story ran on the second page under a headline that read: **FIRST INDIAN REGISTERS TO VOTE IN ARIZONA TERRITORY**.
 
@@ -208,7 +208,7 @@ Now I had the legal right to speak. The question was whether anyone would listen
 
 ---
 
-In November I rode back to Prescott to cast my ballot. The courthouse was busier this time, crowded with men who took their citizenship for granted. I waited in line like everyone else. When my turn came, the clerk glanced at my registration card and handed me a ballot without comment.
+In November, I rode back to Prescott to cast my ballot. The courthouse was busier this time, crowded with men who took their citizenship for granted. I waited in line like everyone else. When my turn came, the clerk glanced at my registration card and handed me a ballot without comment.
 
 I marked my choice for Governor, Judge Ed. W. Wells, a man who had listened when others turned away, and folded the paper carefully. The ballot box was plain wood with a slot cut in the top. I slid the ballot through and heard it land softly on top of the others.
 
@@ -224,7 +224,7 @@ I could be the first.
 
 And if I was the first, others would follow. Slowly, painfully, against the current of a government that preferred us silent and invisible. But they would follow.
 
-I descended the steps and mounted my horse, the November sun warm across my shoulders. Beyond the edge of town the sign for Fort Whipple rose beside the road. In July I had ridden past and let the ache settle deeper. Today the lift in my chest from casting a ballot steadied me. I turned the reins toward the post.
+I descended the steps and mounted my horse, the November sun warm across my shoulders. Beyond the edge of town the sign for Fort Whipple rose beside the road. In July, I had ridden past and let the ache settle deeper. Today, the lift in my chest from casting a ballot steadied me. I turned the reins toward the post.
 
 The road curved through granite outcroppings until the fort came into view with its whitewashed hospital and orderly rows of quarters. I left the horse near the parade ground and walked alone to the house where the Burnses had lived. The porch rail still bore the grooves of a boyhood spent learning how to stand straight, how to polish brass, how to live inside someone else's family. The windows stared back empty. I stayed on the path, close enough to feel the past rise but far enough to honor the distance time had put between us.
 

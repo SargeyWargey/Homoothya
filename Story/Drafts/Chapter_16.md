@@ -4,7 +4,7 @@
 ### Salt River Area, Arizona Territory
 We walked for two days before I understood what fear really meant.
 
-The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.
+The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks were stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.
 
 My legs ached from keeping pace, and the small bundle grandmother had given me grew heavier with each mile, but I didn't complain. No one complained. The adults set a steady rhythm and we followed it, children and elders alike, our feet finding the path by instinct.
 
@@ -26,9 +26,9 @@ We turned west into a canyon system I didn't know. The trails here were faint, b
 
 That's when I started to feel it. Real fear. Not the worried kind that came from hearing adults talk in the dark. But the kind that lived in your belly and made your breath come short. The kind that came from understanding, finally, that we were prey.
 
-Nashta felt it too. I could tell by the way she stayed close to mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
+Nashta felt it too. I could tell by the way she stayed close to Mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
 
-When we stopped that night, there was no fire. Too dangerous, my father said. The smoke could be seen from miles away. So we huddled in our blankets and ate cold food and shivered as the temperature dropped.
+When we stopped that night, there was no fire. Too dangerous, my father said. The smoke could be seen from miles away. So we huddled in our blankets, ate cold food, and shivered as the temperature dropped.
 
 I lay between my parents, listening to the darkness. Strange sounds carried in the cold air. The yip of coyotes. The hoot of an owl. Something larger moving through brush somewhere down-canyon, its passage marked by the crack of breaking branches.
 
@@ -36,11 +36,9 @@ I lay between my parents, listening to the darkness. Strange sounds carried in t
 
 I closed my eyes but didn't sleep. None of us really slept that night.
 
+The third day, we reached the rim of Salt River Canyon.
 
-
-The third day we reached the rim of Salt River Canyon.
-
-I'd never been here before. Never seen anything like it. The land just dropped away, the earth opening like a wound, revealing layered cliffs that fell hundreds of feet to the river below. The walls were gold and red and grey, ancient stone that made me feel small and temporary.
+I'd never been here before. Never seen anything like it. The land just dropped away, the earth opening like a wound, revealing layered cliffs that fell hundreds of feet to the river below. The walls were gold, red, and grey, ancient stone that made me feel small and temporary.
 
 "There," my father said, pointing north along the canyon wall. "The cave is there. Two hours' walk, maybe three with everyone together."
 
@@ -48,11 +46,11 @@ I couldn't see any cave. Just cliff face and empty sky and the distant thread of
 
 We followed the rim north, moving slower now. The terrain was treacherous, loose rock and sudden drops hidden by brush. My grandmother needed help over the rough spots, and the smallest children had to be carried.
 
-Finally we stopped. My father and uncle moved to the edge and looked down. When they came back, my father's face was grim.
+Finally, we stopped. My father and uncle moved to the edge and looked down. When they came back, my father's face was grim.
 
 "We have to descend here. The trail is steep. Everyone needs to be careful."
 
-Trail was a generous word for what we found. It was barely more than a series of ledges and handholds carved into the cliff face, dropping from the rim into a tilted landscape of broken rock and scattered vegetation. Below that, I could see what might have been a lava bed, dark stone jumbled and sharp. And beyond that, set into the canyon wall maybe a third of the way down from the rim, a dark opening in the rock.
+Trail was a generous word for what we found. It was barely more than a series of ledges and handholds carved into the cliff face, dropping from the rim into a tilted landscape of broken rock and scattered vegetation. Below that, I could see what might have been a lava bed, dark stone jumbled and sharp. And beyond that, set into the canyon wall, maybe a third of the way down from the rim, a dark opening in the rock.
 
 The cave.
 
@@ -76,7 +74,7 @@ Don't look down. Don't think about the empty air behind you. Don't think about f
 
 My foot slipped.
 
-For a terrible instant I swung out from the wall, one hand the only thing keeping me from falling. Pebbles scattered, clicking against stone as they tumbled into emptiness. I heard my mother gasp above me.
+For a terrible instant, I swung out from the wall, one hand the only thing keeping me from falling. Pebbles scattered, clicking against stone as they tumbled into emptiness. I heard my mother gasp above me.
 
 Then my uncle's hand closed around my ankle, steadying me. "I've got you. Always three."
 
@@ -100,21 +98,21 @@ The dark stone was razor-sharp in places, broken and jumbled like some ancient v
 
 I heard one of the babies crying, the sound thin and lost in the vast space of the canyon. A mother hushed it, but the crying didn't stop. Just got softer, more resigned.
 
-From the far side of the lava bed, we could finally see the cave clearly. It sat in the cliff face about a hundred and seventy feet above where we stood, a dark semicircle carved into pale stone. To reach it we'd have to climb again, up a steep slope of loose rock and dirt, then scramble up the last section to the cave's opening.
+From the far side of the lava bed, we could finally see the cave clearly. It sat in the cliff face about a hundred and seventy feet above where we stood, a dark semicircle carved into pale stone. To reach it, we'd have to climb again, up a steep slope of loose rock and dirt, then scramble up the last section to the cave's opening.
 
-My father studied the approach, then looked back at all of us. Tired people. Scared people. Women and children and elders who'd already climbed more today than they should have to.
+My father studied the approach, then looked back at all of us. Tired people. Scared people. Women, children, and elders who'd already climbed more today than they should have to.
 
 "Rest here," he said. "Drink. Eat something. Then we make the last climb."
 
-I found a flat rock and sat, my legs grateful for stillness. My mother sat beside me and handed me the waterskin. The water was warm but I drank it anyway, feeling it ease my dry throat.
+I found a flat rock and sat, my legs grateful for stillness. My mother sat beside me and handed me the waterskin. The water was warm, but I drank it anyway, feeling it ease my dry throat.
 
-Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade, precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition, counted what little we had.
+Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, and inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade, precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition and counted what little we had.
 
 Preparing for siege.
 
 Because that's what this was, I realized. We weren't just hiding. We were preparing to be trapped. To wait out whatever was coming.
 
-I looked up at the cave mouth, dark against the pale cliff. From here it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend. But even from this distance I could see the lie; it wasn't a cave so much as the mountain's cupped palm, a wide mouth with barely enough throat to swallow us. Shelter by name only, open to the sky, yet still the only ledge beyond the reach of horses.
+I looked up at the cave mouth, dark against the pale cliff. From here, it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend. But even from this distance, I could see the lie; it wasn't a cave so much as the mountain's cupped palm, a wide mouth with barely enough throat to swallow us. Shelter by name only, open to the sky, yet still the only ledge beyond the reach of horses.
 
 But something about it made my skin prickle. Something about the way it gaped open, like a mouth waiting to swallow us.
 
@@ -144,8 +142,6 @@ If. The word was supposed to be reassuring. But I heard what lay beneath it.
 
 When.
 
-
-
 We started the final climb as the sun began its descent toward the western rim. The slope was steep, the footing treacherous. Loose rock skittered away under our feet, tumbling down the incline and clattering against the lava bed below.
 
 I climbed on my hands and knees in places, grabbing at scrub brush for handholds, digging my toes into the soft dirt. My breath came hard. The bundle grandmother had given me kept slipping, and I had to stop twice to retie it.
@@ -158,7 +154,7 @@ The space was bigger than it had looked from below—maybe sixty or seventy pace
 
 But it would hold us all. That was something.
 
-People were already organizing the space. The back wall for the elders and youngest children, the warmest spot farthest from the wind. The sides for families. The front, near the entrance, for the men who would keep watch.
+People were already organizing the space. The back wall for the elders and youngest children, the warmest spot, farthest from the wind. The sides for families. The front, near the entrance, for the men who would keep watch.
 
 My mother found a spot for us along the right wall. She set down her burden basket and immediately started arranging our belongings, creating a small territory in the larger space. My grandmother settled nearby, her back against the stone, her breathing labored from the climb.
 
@@ -188,7 +184,7 @@ Other people had used this cave before us. Other Yavapai families, fleeing other
 
 I closed my eyes.
 
-Outside, the canyon filled with darkness and silence. The kind of silence that feels like waiting. Like the whole world holding its breath before something terrible happens.
+Outside, the canyon was filled with darkness and silence. The kind of silence that feels like waiting. Like the whole world holding its breath before something terrible happens.
 
 I slept fitfully, waking often to the sound of nothing. To the weight of stone above me. To the knowledge that we'd run as far as we could run, climbed as high as we could climb.
 

@@ -39,8 +39,6 @@ I had never heard such steel in her voice. It steadied something inside me that 
 
 "I will."
 
-
-
 The agency superintendent arrived three weeks later with maps rolled beneath his arm and a smile that never reached his eyes. He spread the maps across the table at the community center while families gathered to hear what he called a "generous opportunity."
 
 "The Salt River Reservation offers superior farmland," he said, smoothing the corners with pale fingers. "More water. Better soil. Modern irrigation systems already in place."

@@ -4,7 +4,7 @@
 ### Salt River Canyon, Arizona Territory
 I woke to gray light filtering into the cave and voices whispering urgently near the entrance.
 
-For a moment I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back, the climb, the cave, the first night sleeping on hard stone with all my people breathing in the darkness around me.
+For a moment, I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back, the climb, the cave, the first night sleeping on hard stone with all my people breathing in the darkness around me.
 
 So many of us crowded into this space. Families pressed close together. Children sleeping in tight clusters. Elders near the warmth of banked fires. More people than I could count in the dim light, but I knew we were many. More than the fingers and toes of three or four people. Many more.
 
@@ -30,7 +30,7 @@ My father's jaw tightened. "Looking for tracks. For signs of us."
 
 My father moved to the next family group, passing the word. Stay inside. Stay quiet. Don't show ourselves.
 
-I looked toward the cave entrance. In the growing daylight I could see more of the canyon—the far wall catching the first sun, the shadows still deep in the canyon bottom. Somewhere up there, on the mesa above us, soldiers were moving. Searching.
+I looked toward the cave entrance. In the growing daylight, I could see more of the canyon—the far wall catching the first sun, the shadows still deep in the canyon bottom. Somewhere up there, on the mesa above us, soldiers were moving. Searching.
 
 Maybe for us. Maybe just sweeping the country.
 
@@ -52,7 +52,7 @@ My father stood at the entrance for a long time, watching the sky, the canyon ri
 
 We ate cold food—dried meat, mescal, mesquite cakes. No fires to cook with, nothing hot. The water in our basket was getting low. Someone would have to go down to the river soon to refill the baskets, but not while soldiers might still be near.
 
-As the sun set and darkness came again, we rolled out our sleeping mats in the same places as the night before. But tonight felt different. Tonight the cave didn't feel like shelter.
+As the sun set and darkness came again, we rolled out our sleeping mats in the same places as the night before. But tonight felt different. Tonight, the cave didn't feel like shelter.
 
 It felt like a trap.
 

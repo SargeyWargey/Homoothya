@@ -2,7 +2,7 @@
 
 ### February 1922
 ### Fort McDowell, Arizona
-Carlos Montezuma looked older than I had expected. We were nearly the same age—he was fifty-seven, I was fifty-six—but the years had carved deeper into him. His face was lined and his hair had gone completely gray, but his eyes were alert, missing nothing. He stood when I approached his door, moving with the careful precision of a man learning to accommodate pain.
+Carlos Montezuma looked older than I had expected. We were nearly the same age; he was fifty-seven, I was fifty-six, but the years had carved deeper into him. His face was lined, and his hair had gone completely gray, but his eyes were alert, missing nothing. He stood when I approached his door, moving with the careful precision of a man learning to accommodate pain.
 
 "Cousin." He embraced me, and I felt how thin he had become. "Come in. Sit. I've been hoping you would visit."
 
@@ -38,9 +38,7 @@ He was quiet for a long moment. Then he closed the portfolio without reading fur
 
 "And Mike?" He placed his hand on the portfolio. "Thank you for writing this. Whatever happens with publication, thank you for doing the work of witness."
 
-
-
-Four days passed. I worked the irrigation ditches and helped repair a neighbor's fence and tried not to think about Carlos reading my manuscript. But Chehata saw through me.
+Four days passed. I worked the irrigation ditches, helped repair a neighbor's fence, and tried not to think about Carlos reading my manuscript. But Chehata saw through me.
 
 "You're worried," she said on the third night.
 
@@ -108,7 +106,7 @@ The name hung in the air between us. I hadn't heard it spoken aloud in decades. 
 
 "I can't," I whispered.
 
-"You can." Carlos guided me back to the chair and sat beside me. "Listen to me, cousin. Your children, they need to know where they come from. Not just 'Mike Burns the Army scout.' The family you lost. The child you were."
+"You can." Carlos guided me back to the chair and sat beside me. "Listen to me, cousin. Your children need to know where they come from. Not just 'Mike Burns the Army scout.' The family you lost. The child you were."
 
 "They don't need that darkness."
 
@@ -116,7 +114,7 @@ The name hung in the air between us. I hadn't heard it spoken aloud in decades. 
 
 I stared at the marked pages. "Even if I could write it, no publisher would want it. You read the rejection letters I showed you."
 
-"Maybe. Maybe not." Carlos set the manuscript down. "But that's not the only reason to write it. Think about this: a hundred years from now, what will remain? Paper records. Your words written down. If you don't tell the whole story, your grandchildren's grandchildren will never know. They'll have this—" he tapped the manuscript "—which is valuable. But they won't have the rest. The before. The boy. The loss."
+"Maybe. Maybe not." Carlos set the manuscript down. "But that's not the only reason to write it. Think about this: a hundred years from now, what will remain? Paper records. Your words written down. If you don't tell the whole story, your grandchildren's grandchildren will never know. They'll have this," he tapped the manuscript, " which is valuable. But they won't have the rest. The before. The boy. The loss."
 
 "I don't know if I can go back there."
 
@@ -144,7 +142,7 @@ I wiped my eyes with the back of my hand. "I don't know if I have the strength."
 
 "You have it. You've survived this long. You've carried that boy inside you for fifty years without letting him speak." Carlos's voice was gentle now. "Let him speak, cousin. Let him tell what happened. Not for the publishers. Not even for your children, though they need it. Let him speak because he deserves to be remembered."
 
-We sat in silence. Outside, the afternoon light was fading. Somewhere children were playing, their voices carrying through the desert air.
+We sat in silence. Outside, the afternoon light was fading. Somewhere, children were playing, their voices carrying through the desert air.
 
 "I wouldn't know how to start," I finally said.
 
@@ -161,8 +159,6 @@ He stood slowly, and I rose with him.
 "Think about it," he said. "You don't have to decide now. But think about it. For him. Because he deserves to be more than the ghost you've been trying to forget."
 
 He rested his hand on the table between us for a long, quiet moment, then nodded for me to go.
-
-
 
 I walked home as the sun set, the manuscript under my arm and Carlos's words echoing in my mind. Chehata was cooking when I arrived. She looked up and saw my face.
 
@@ -194,31 +190,29 @@ I looked at the manuscript on the table. Three hundred pages of careful witness 
 
 "Then think." Chehata kissed my forehead and returned to the stove. "But don't think too long. Carlos won't be here forever. And neither will you."
 
-
-
-That night I lay awake listening to Chehata breathe beside me. I thought about the boy I had been, the child who had climbed mesquite trees and learned to track deer and listened to his grandmother's stories. I thought about how completely I had buried him, how thoroughly I had tried to forget he existed.
+That night, I lay awake listening to Chehata breathe beside me. I thought about the boy I had been, the child who had climbed mesquite trees and learned to track deer and listened to his grandmother's stories. I thought about how completely I had buried him, how thoroughly I had tried to forget he existed.
 
 And I thought about Carlos's question: "Is he dead? Or did you just bury him because it was the only way to survive?"
 
 The truth was, I didn't know anymore. I had spent so many years being Mike Burns—the student, the scout, the citizen, the witness—that I had almost convinced myself that boy was someone else. Someone who had died while I survived by becoming somebody new.
 
-But Carlos had seen through it. He had read my manuscript and seen the missing piece. The boy at the center who I had tried to write out of the story even as I documented everything that happened around him.
+But Carlos had seen through it. He had read my manuscript and seen the missing piece. The boy at the center, whom I had tried to write out of the story, even as I documented everything that happened around him.
 
 "Let him speak," Carlos had said.
 
-I turned the words over in my mind. Could I? Could I go back to that childhood and write it down? Could I let myself remember the mother, the grandmother, the uncle, the father? Could I write about mesquite harvests and hunting lessons and the happiness of a child who didn't know yet that everything would be destroyed?
+I turned the words over in my mind. Could I? Could I go back to that childhood and write it down? Could I let myself remember the mother, the grandmother, the uncle, the father? Could I write about mesquite harvests, hunting lessons, and the happiness of a child who didn't yet know that everything would be destroyed?
 
 Could I write about what happened?
 
-The question stopped me. Everything else—the childhood, the family, the lessons—that I might be able to write. But the rest... that was the darkness Carlos had named. The thing I had spent fifty years refusing to touch.
+The question stopped me. Everything else, the childhood, the family, the lessons that I might be able to write. But the rest... that was the darkness Carlos had named. The thing I had spent fifty years refusing to touch.
 
 "You're the only one living who can tell it," he had said.
 
-And he was right. Everyone else who had been there was dead. The soldiers had told their version—victory, decisive action, successful campaign. But no one had told it from the other side. No one had written what it was like to be that child.
+And he was right. Everyone else who had been there was dead. The soldiers had told their version: victory, decisive action, and a successful campaign. But no one had told it from the other side. No one had written what it was like to be that child.
 
 No one but me.
 
-I rose quietly and went to the table. The manuscript lay where I had left it. I opened it and found a blank page at the back. In the dim moonlight I picked up my pencil and wrote the title.
+I rose quietly and went to the table. The manuscript lay where I had left it. I opened it and found a blank page at the back. In the dim moonlight, I picked up my pencil and wrote the title.
 
 Then I set the pencil down and stared at what I had written. Just a name I hadn't spoken in fifty years. But it felt like opening a door that had been sealed shut.
 
@@ -238,9 +232,7 @@ I wasn't sure she was right. But I had to try. Because Carlos had given me somet
 
 I would write his story. Not as Mike Burns looking back. But as him, that child who had loved and lost and witnessed and somehow survived to become me.
 
-
-
-The next morning I returned to Carlos's house. He was sitting in the sun outside his door, wrapped in a blanket despite the warming day.
+The next morning, I returned to Carlos's house. He was sitting in the sun outside his door, wrapped in a blanket despite the warming day.
 
 "Cousin." He smiled when he saw me. "That was fast."
 
@@ -264,7 +256,7 @@ I sat. "I'm going to start at the beginning. Before the soldiers came. I'm going
 
 "You'll do more than try." He released my arm. "You'll succeed. Because he's depending on you after fifty years of silence."
 
-We sat together in the morning sun, two old men who had survived what should have killed us. Carlos had chosen to fight publicly. I had chosen to fight quietly, to document and witness and preserve.
+We sat together in the morning sun, two old men who had survived what should have killed us. Carlos had chosen to fight publicly. I had chosen to fight quietly, to document, witness, and preserve.
 
 Different paths. Same mission.
 
