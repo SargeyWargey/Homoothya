@@ -1,14 +1,15 @@
-# CHAPTER 1: MICKEY
+# CHAPTER 1: CIVILIZED
+
 
 ## 1873-1874
 
-The uniform scratched. Mrs. Burns had sewn it herself from blue wool cloth, copying the soldiers' uniforms but making it small enough to fit a boy. She said I looked handsome in it. She said I looked like a proper young man. She did not say I looked like myself, because I no longer looked like myself at all.
+The uniform scratched. Mrs. Burns had sewn it herself from blue wool cloth, copying the soldiers' uniforms but making it small enough to fit an eight year old boy. She said I looked handsome in it. She said I looked like a proper young man. She did not say I looked like myself, because I no longer looked like myself at all.
 
 I stood in the parlor of the quarters at Fort Whipple, trying not to scratch where the wool rubbed against my neck. Captain Burns sat at his desk reviewing papers. His daughter Katie played with a doll on the floor. Mrs. Burns, who insisted I call her Annie, was teaching me to set the table for supper.
 
 "Fork on the left, Mickie," she said gently. "Knife and spoon on the right."
 
-Mickie. That was what they called me now. Lieutenant Thomas had written Mike Burns in the ledger and then given me that nickname. "Mickie would be at least one Irish Indian in the land that would become Arizona!" he'd said, and the soldiers had laughed, and that was what they shouted across parade grounds and kitchens. Before that I had another name, but I kept it locked away.
+Mickie. That was what they called me now. Lieutenant Thomas had written Mike Burns in the ledger and then given me that nickname. "Mickie would be at least one Irish Indian in the Arizona Territory!" he'd said, and the soldiers had laughed, and that was what they shouted across parade grounds and kitchens. Before that I had another name, but I kept it locked away.
 
 I placed the fork on the left side of the plate. I focused on each lesson as if precision could anchor me. Here, what mattered was forks on the left and standing straight when the Captain entered the room and speaking English.
 

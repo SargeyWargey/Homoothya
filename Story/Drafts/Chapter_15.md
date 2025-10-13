@@ -32,7 +32,19 @@ I understood the anger even if I didn't understand death. The soldiers had taken
 
 After many moons, my father took a new wife. A woman from another family whose husband had died the winter before. She was kind to me, gentle, and in time I learned to call her mother too. She gave my father two daughters, Nashta first, then the baby. She did the work my first mother had done: grinding meal, gathering plants, making our clothes. She cared for me when I was sick. She smiled when I climbed too high in the mesquite trees.
 
-But she wasn't the same. Couldn't be. And father never lost that hardness, that readiness for violence that had settled into him the day the soldiers killed my first mother.
+One evening she called me to the fire and pressed something into my palm. The tiny shell bead my first mother had given me, moon-pale and smooth, its ridged face polished soft by my small fingers. I'd kept it wrapped in a scrap of hide, afraid to lose it.
+
+"You should wear it," she said quietly. Her hands moved quick and sure, braiding a thin strip of rawhide. "So it stays close."
+
+She tied the cord around my wrist, the shell settling warm against my pulse. Her fingers were gentle, the knot tight enough to hold but loose enough to grow with me.
+
+"She would want you to carry her with you," she said, not looking at my face.
+
+I touched the shell with one finger. It was warm from her hands. "Thank you"
+
+She nodded once, then went back to her work. But I saw the way her mouth softened. The way she didn't correct me when I called her mother.
+
+But she wasn't the same as my first mother. Couldn't be. And father never lost that hardness, that readiness for violence that had settled into him the day the soldiers killed my first mother.
 
 Now, watching him return to camp with that same terrible look on his face, I felt my stomach clench. The soldiers were close again. And father remembered, just as I did, what they had already taken from us.
 
@@ -234,7 +246,7 @@ Everyone knew which cave he meant. The one in Salt River Canyon, high on the nor
 
 "Better than being caught in the open."
 
-Even with the decision made, the adults argued in tight, anxious knots, rehearsing every risk. But the paths were chosen now: one north into the twisting stone, one south toward the tomb, dark cave.
+Even with the decision made, the adults argued in tight, anxious knots, rehearsing every risk. But the paths were chosen now: one north into the twisting stone, one south toward the cave.
 
 I looked at Nashta. Her eyes were wide, scared. I reached over and took her hand again, the way she'd taken mine that first night when we listened to the adults talking about running.
 
@@ -314,7 +326,7 @@ My uncle came to stand beside my father. Together they looked south, toward the 
 
 My uncle nodded.
 
-I caught Wassaja before the groups split. I untied the tiny moon-pale shell bead my first mother had given me from my wrist, its ridged face polished smooth by years against my pulse. It's rawhide band my second mother braided so it would stay on my wrist. I pressed it into his palm. "For remembering," I whispered. He closed his fingers around it, gave a sharp nod, and slipped back to the line bound north, his dark braid bouncing against his back.
+I caught Wassaja before the groups split. I untied the tiny moon-pale shell bead from my wrist, the shell my first mother had given me, its ridged face polished smooth by years against my pulse, the rawhide cord my second mother had braided so it would stay close. I pressed it into his palm. "For remembering," I whispered. He closed his fingers around it, gave a sharp nod, and slipped back to the line bound north, his dark braid bouncing against his back.
 
 We started walking. Our line dropped over the southern lip of the ridge, feet silent on the sand. Behind us, I watched the northern group peel away, single file, their footprints swallowed by the cottonwood's shade before the wind could erase them.
 

@@ -24,7 +24,7 @@ Smoke still seeped from the cave mouth far below. The cliff around it was streak
 
 My legs trembled. I might have fallen again if not for the scout's grip.
 
-Hoofbeats came from the west, steady and measured. The soldiers straightened instinctively. Another column approached along the mesa trail, the sun catching the brass on their bridles. At their front rode a white horse, taller than any animal I'd ever seen. Its coat glowed in the weak light. The same horse I had seen a week before.
+Hoofbeats came from the west, steady and measured. The soldiers straightened instinctively. Another column approached along the mesa trail, the sun catching the brass on their bridles. At their front rode a white horse, taller than any animal I'd ever seen. Its coat glowed in the weak light. The same horse I had seen a day before on the rim.
 
 The officer on its back wore a dark coat with gold bars on his shoulders. More bars than Captain Brown. More gold everywhere: buttons, braid, sword hilt catching the light.
 
@@ -60,7 +60,7 @@ Captain Burns reached back and settled my hands against his belt. "Hold," he sai
 
 He gave a command. The white horse obeyed, stepping forward, weaving through the disassembled camp. The troops fell in behind us. Captain Brown saluted as we passed, his face unreadable.
 
-We rode past the piles of spent cartridges, past the place where the soldiers had stacked their blankets, past the blood-darkened ground where they'd laid out the bodies they'd dragged from the cave. I clamped my eyes shut as we neared the rim, but the smell still hit: burnt flesh, wet ash, the sour tang of death. I swallowed bile and forced my gaze toward the horizon instead.
+We rode past the piles of spent cartridges, past the place where the soldiers had stacked their blankets. I clamped my eyes shut as we neared the rim, but the smell still hit: burnt flesh, wet ash, the sour tang of death. I swallowed bile and forced my gaze toward the horizon instead.
 
 As we left the mesa, I looked back one last time. A raven circled above it, riding the currents.
 

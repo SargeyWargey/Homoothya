@@ -76,13 +76,13 @@ My foot slipped.
 
 For a terrible instant I swung out from the wall, one hand the only thing keeping me from falling. Pebbles scattered, clicking against stone as they tumbled into emptiness. I heard my mother gasp above me.
 
-Then my uncle's hand closed around my ankle, steadying me. "I've got you. Find your footing."
+Then my uncle's hand closed around my ankle, steadying me. "I've got you. Always three."
 
 My toes scrabbled against rock. Found purchase. My weight came back onto the wall.
 
 "Good. Keep coming."
 
-I kept coming.
+I kept coming. Hand, hand, foot.
 
 When I finally reached the ledge where my uncle waited, my legs were shaking so hard I could barely stand. He pulled me close, his hand on the back of my head.
 

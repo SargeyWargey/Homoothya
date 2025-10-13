@@ -82,7 +82,7 @@ I had several hours to fill before returning. I walked toward the Verde River to
 
 I could not stay still. Memories stirred and pushed me along the water's edge. Each step carried me deeper into recollection. I thought of the day in 1872 when Carlos and I were separated, of the way his mother had thrown herself over him. I thought of the scout who dragged me away from the cave. I thought of the nights in Prescott when I stared at the ceiling and wondered if anyone from our camp still breathed. With the manuscript now in Carlos's house those questions had new shape. We had lived. We had two names. We had two paths that brought us back to one point.
 
-Around noon the sun blazed high. I sought shade beneath a cottonwood and ate the tortillas and dried apples Chehata had packed in my pocket without my noticing. She thought of everything. When the mission bell near the school rang three times I brushed crumbs from my coat and started back toward Carlos's lane.
+Around noon the sun blazed high. I sought shade beneath a cottonwood and ate the tortillas and dried apples Chehata had packed for me. She thought of everything. When the mission bell near the school rang three times I brushed crumbs from my coat and started back toward Carlos's lane.
 
 The front door stood ajar when I arrived, propped with a chair to invite the breeze through the hallway. Carlos called from inside for me to come in. His voice sounded thick.
 
@@ -120,11 +120,11 @@ The idea had hovered in the corners of my mind ever since I began the manuscript
 
 "I will write the agent," Carlos said. "He will listen. He owes me for the time I treated his son without pay."
 
-I will speak with Chehata tonight. If she agrees we can leave once the heat breaks in October."
+I will speak with Chehata tonight. If she agrees we can leave once the heat breaks this winter."
 
 Carlos's smile widened. "She will see the necessity before either of us. She always has."
 
-We sat with the plan between us like a small fire. Each detail we named fed it more fuel. By the time Carlos cleared his throat to remind himself to take his tonic we had sketched a rough route: depart Fort McDowell with dawn, follow the Apache Trail to rest his lungs, then cross into the canyon lands where our people had sheltered. Just the two of us would travel; no one else needed to bear the weight of what we meant to do. We would stand at the rim above Skeleton Cave and speak the names of our dead into the afternoon wind. We would carry tobacco and cloth to tie in the branches above the river. We would bring the bones of our people back so they could rest in the soil that still knew their names. We would place our hands on the rock to feel the resonance of fifty years of silence and break it.
+We sat with the plan between us like a small fire. Each detail we named fed it more fuel. By the time Carlos cleared his throat to remind himself to take his tonic we had sketched a rough route: depart Fort McDowell with dawn, follow the Apache Trail to rest his lungs, then cross into the canyon lands where our people had sheltered. Just the two of us would travel; no one else needed to bear the weight of what we meant to do. We would stand at the rim above the Cave and speak the names of our dead into the afternoon wind. We would carry tobacco and cloth to tie in the branches above the river. We would bring the bones of our people back so they could rest in the soil that still knew their names. We would place our hands on the rock to feel the resonance of fifty years of silence and break it.
 
 When Carlos rose his knees cracked. Age had crept into our joints, yet purpose straightened his back. He clasped my shoulders. "Do not doubt the power of what you wrote," he said. "It will carry us as surely as any horse."
 
