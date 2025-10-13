@@ -1,5 +1,7 @@
-# Chapter 13: The Mesquite Harvest
+# 13  |  MESQUITE HARVEST
 
+### c. 1870-1871
+### Salt River region
 The earliest morning I remember best, I was small enough to climb.
 
 My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."

@@ -1,7 +1,7 @@
-# CHAPTER 5: SCOUT SERVICE
+# 5  |  SCOUT
 
-## 1885-1888
-
+### 1885-1888
+### Arizona Territory
 The second dawn after I enlisted found me standing in a line of wool coats while the bugle scattered swallows from the barracks roof. Keane strode in front of us with a ledger tucked beneath his arm and the self assurance of a man who had never wondered which name to answer to. The quartermaster said our pay matched the cavalry, twelve dollars a month if we kept our boots mended and our rifles clean. His eyes slid over us as if he expected one of us to bolt before muster ended. Equal wages did not buy equal trust.
 
 We came from everywhere the Army had planted flags. White Mountain men who knew the Mogollon Rim like their own blood. San Carlos Apaches who had traded the ration line for a uniform that still smelled of the storeroom. Yavapai from the Verde, Mohave from the river, a Pima scout who could read weather better than any officer. I stood among them with my collar button choking the words I wanted to say about what this coat had already cost me. Soldiers leaned against the railing and watched us, trading jokes about whether we would vanish into the hills at the first rifle report. One corporal muttered about Cibicue and how you could never be certain which way an Indian would turn once the fighting started. His companion reminded him that the Army called us its eyes and ears. No one said who owned the rest of the body.

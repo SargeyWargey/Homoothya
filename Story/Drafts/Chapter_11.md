@@ -1,7 +1,7 @@
-# CHAPTER 11: THE MANUSCRIPT
+# 11  |  MANUSCRIPT
 
-## Early 1922
-
+### Early 1922
+### Fort McDowell Region
 The manuscript sat in its leather portfolio on the table, pages yellowed at the edges from years of handling. I had completed it three weeks ago, the final sentence written in lamplight while Chehata slept and the house creaked in the winter cold. Now it waited like a living thing, patient and accusing.
 
 "Read it to me again," Chehata said. She sat across the table with mending in her lap, but her hands were still. "The part about the March."
@@ -30,7 +30,7 @@ I closed the portfolio. "They don't want to hear it."
 
 I had tried. God knows I had tried.
 
----
+
 
 The first letter went to Sharlot Hall in January 1910, twelve years ago. I had met her once at a gathering of territorial historians. She had listened when I spoke about Yavapai history, had taken notes in a leather journal, had looked at me like my words mattered. So I wrote to her.
 
@@ -62,7 +62,7 @@ I understood what she was telling me. The story I had written was not the story 
 
 But I kept trying.
 
----
+
 
 Over the next decade I sent queries to publishers in New York, Boston, Chicago. Each letter was carefully composed, explaining my unique position as witness and my education that allowed me to write for white audiences. Each letter emphasized the historical importance of a Native account of events that had only been told from the Army perspective.
 
@@ -104,7 +104,7 @@ And no one would publish it.
 
 I wanted to believe her. But the weight of those rejection letters pressed against my chest like stone.
 
----
+
 
 That night I couldn't sleep. I lay beside Chehata listening to her breathing and thinking about the manuscript. All those hours of writing by lamplight, stealing time from paid work we needed. All those interviews with elders, asking them to relive painful memories so I could record their testimony. All those drafts, revising until my hand cramped and my eyes burned.
 
@@ -150,7 +150,7 @@ Maybe he would know what to do with a manuscript the white world didn't want.
 
 Or maybe he would confirm what I already suspected: that I had spent twelve years writing a truth no one was ready to hear.
 
----
+
 
 Three weeks later, word reached Fort McDowell that Carlos was back in Arizona. He had settled into a small house on the reservation, just as he had promised. He was home.
 

@@ -1,5 +1,7 @@
-# Chapter 17: The Cave
+# 17  |  THE CAVE
 
+### Late December 1872
+### Salt River Canyon, Arizona Territory
 I woke to gray light filtering into the cave and voices whispering urgently near the entrance.
 
 For a moment I didn't remember where I was. The stone ceiling above me was wrong, too close and too dark. The air smelled of dust and cold rock instead of sage and juniper smoke. Then it came back, the climb, the cave, the first night sleeping on hard stone with all my people breathing in the darkness around me.

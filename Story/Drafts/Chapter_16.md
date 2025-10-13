@@ -1,5 +1,7 @@
-# Chapter 16: The Climb
+# 16  |  CLIMB
 
+### Mid-December 1872
+### Salt River Area, Arizona Territory
 We walked for two days before I understood what fear really meant.
 
 The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.
@@ -34,7 +36,7 @@ I lay between my parents, listening to the darkness. Strange sounds carried in t
 
 I closed my eyes but didn't sleep. None of us really slept that night.
 
----
+
 
 The third day we reached the rim of Salt River Canyon.
 
@@ -142,7 +144,7 @@ If. The word was supposed to be reassuring. But I heard what lay beneath it.
 
 When.
 
----
+
 
 We started the final climb as the sun began its descent toward the western rim. The slope was steep, the footing treacherous. Loose rock skittered away under our feet, tumbling down the incline and clattering against the lava bed below.
 

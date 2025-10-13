@@ -1,5 +1,7 @@
-# Chapter 20: The Guide
+# 20  |  THE GUIDE
 
+### December 27, 1872
+### Salt River Mesa
 The column formed up in the gray dawn light. Officers, soldiers, the Pima scouts. More men arrived as I waited, the main force, converging from different directions.
 
 The scout pulled me to the front. "Walk," he said in Yavapai. "Show the way."

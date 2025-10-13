@@ -1,7 +1,7 @@
-# CHAPTER 3: HIGHLAND
+# 3  |  HIGHLAND
 
-## 1885-1886
-
+### 1885-1886
+### Highland University, Kansas
 The train that carried me away from Carlisle rolled across states I had only memorized from schoolroom maps. I watched the names stitched onto the depot signs slide past the windows: Pittsburgh, Columbus, Indianapolis. Each whistle stop smelled different. In Ohio it was lake wind and coal. In Illinois it was damp soil and the sweet scent of fermenting corn. By the time the cars clattered into Kansas the horizon had opened like a book laid flat. The sky stretched so wide that it felt as if an ocean had been turned upside down and nailed above the prairie.
 
 Highland was a hilltop town that rose from the tall grass with a steeple and a handful of brick buildings. The university sat at the crest, its white columns facing fields that rolled toward the Missouri line. A Presbyterian minister met me at the station in Troy with a buggy. He wore a collar and a winter coat frayed at the cuffs. He studied the recommendation letter that Pratt had sealed with the school's crest and nodded as if he could already picture me seated in their chapel choir. The road from Troy to Highland cut through bare orchards and farmsteads where smoke curled steadily from chimneys. The air carried the metallic bite of frost and the faint aroma of wood ash. It reminded me of dawn at Carlisle, except there were no barracks, no bugles, no long lines of boys marching with their hands at their sides. Horses, not bells, set the rhythm here.

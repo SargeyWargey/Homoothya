@@ -1,5 +1,7 @@
-# Chapter 15: The Whispers
+# 15  |  WHISPERS
 
+### Early December 1872
+### East of the the Superstition Mountains
 The men came back wrong.
 
 My father and uncle returned to camp when the sun sat low, but they didn't carry deer or rabbits or even stories about what they'd seen. They came back quiet, their faces hard in a way that made my stomach tighten.
@@ -108,7 +110,7 @@ I heard my father move, probably standing. "Tomorrow we'll send scouts south, to
 
 Somewhere they can't follow. The words settled in my chest like stones.
 
----
+
 
 Three days later, my father left before dawn with two other men. They didn't say where they were going, but I knew. Down toward the white settlements. To watch. To see what was coming.
 
@@ -182,7 +184,7 @@ I didn't understand everything she meant. I was too young. But I felt the weight
 
 "Good. Don't forget."
 
----
+
 
 My father came back on the fifth day.
 
@@ -256,7 +258,7 @@ I wanted to believe her. Wanted to feel safe in the certainty of her voice. But 
 
 Nothing was going to be all right.
 
----
+
 
 We started packing before dawn.
 

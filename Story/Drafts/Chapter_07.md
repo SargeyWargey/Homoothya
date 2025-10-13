@@ -1,7 +1,7 @@
-# CHAPTER 7: FAMILY AND WITNESS
+# 7  |  FAMILY
 
-## 1889-1905
-
+### 1889-1905
+### Arizona reservations
 Chehata told me at the start of the planting season that a new life had taken root inside the home we were still learning to share. We were turning earth for melons near the river when she paused, pressed her palm against her belly, and smiled with a certainty that stopped my breath. I had survived years by reading faint signs on the ground, but I had never read a sign that spoke of hope the way her smile did. The river breeze carried the scent of cottonwood buds, and for the first time since I left the Army I let myself believe the coming year might give more than it took.
 
 When the pains came that autumn, Hashduba sent for a midwife respected by every family along the river. The night was cold enough to fog the walls of our brush house, yet the room burned with cedar smoke and whispered prayers. I could not keep still. My hands remembered only how to pack a saddle or oil a rifle, not how to steady the woman I loved while she labored to bring our child into the world. Chehata gripped my fingers and told me to breathe with her. The midwife murmured in Yavapai, guiding her through wave after wave. Just before dawn a cry split the darkness, thin at first, then fierce. The sound cut through the years of silence I had carried from the canyon to the parade grounds. The midwife laid a squalling boy on Chehata's chest, his skin slick with birth, his hair black and tightly curled. Tears stung my eyes in a way no wound ever had.

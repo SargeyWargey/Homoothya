@@ -1,8 +1,7 @@
-# CHAPTER 1: CIVILIZED
+# 1  |  CIVILIZED
 
-
-## 1873-1874
-
+### 1873-1874
+### Fort Whipple, Arizona Territory
 The uniform scratched. Mrs. Burns had sewn it herself from blue wool cloth, copying the soldiers' uniforms but making it small enough to fit an eight year old boy. She said I looked handsome in it. She said I looked like a proper young man. She did not say I looked like myself, because I no longer looked like myself at all.
 
 I stood in the parlor of the quarters at Fort Whipple, trying not to scratch where the wool rubbed against my neck. Captain Burns sat at his desk reviewing papers. His daughter Katie played with a doll on the floor. Mrs. Burns, who insisted I call her Annie, was teaching me to set the table for supper.
@@ -85,7 +84,7 @@ Mrs. Burns held my hand. "You'll be all right," she said, though her eyes were r
 
 Two weeks later, I was given to Lieutenant Bishop.
 
----
+
 
 Hall S. Bishop was a different kind of man than Captain Burns. Younger, louder, quicker to laugh. He looked at me and said, "So you're the boy Captain Burns was so fond of. Can you ride?"
 

@@ -1,5 +1,7 @@
-# Chapter 26: The Burial
+# 26  |  THE BURIAL
 
+### February 1923
+### Fort McDowell Reservation
 By the time the first light colored the eastern ridge, hoofbeats already echoed along the agency road. Chehata and I had sat through the night beside Carlos, the lamp turned low so shadows could rest against the adobe walls. When the knock came at the door, it carried the urgency of a drum. I opened it to find Solomon wrapped in a gray blanket, breath steaming in the cold. He had ridden from the irrigated fields before dawn to take the news to every ranch and work camp.
 
 "I told the Verde ranch hands," he said, voice raw. "The irrigation crew will ride in with their families. I sent a boy toward the rail spur too." He paused, hand pressed to his chest. "Everyone is coming."

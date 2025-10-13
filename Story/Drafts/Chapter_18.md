@@ -1,5 +1,7 @@
-# Chapter 18: The Hunt
+# 18  |  HUNT
 
+### December 22-26, 1872
+### Salt River Mesa
 The soldiers didn't leave.
 
 For three days we knew they were somewhere on the mesa above us. We couldn't see them from the cave, but we knew they were there, searching. We lived in whispers. Moved like shadows. The fires stayed cold.

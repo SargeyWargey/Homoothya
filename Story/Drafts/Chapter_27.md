@@ -1,12 +1,8 @@
-# CHAPTER 27: HISTORICAL WITNESS (Author's Note)
+# 27  |  HISTORICAL WITNESS
 
-## PART I: CARLOS MONTEZUMA'S FINAL JOURNEY AND DEATH (January 1923)
+### 1923 to Present Day
 
-Less than a month later, Carlos Montezuma died at Fort McDowell. January 31, 1923. He was approximately 57 years old.
-
-He was buried in the Fort McDowell cemetery, in the same earth where Yavapai people had begun to rebuild what the Army had tried to destroy.
-
-## PART II: THE SKELETON CAVE REMAINS (1923-1985)
+### THE SKELETON CAVE REMAINS (1923-1985)
 
 The bones Carlos, Mike, and the others retrieved were not the last to be recovered from Skeleton Cave.
 
@@ -20,7 +16,7 @@ On Memorial Day 1985, the Fort McDowell Yavapai Nation held a service and dedica
 
 Even in death, even after a century, the fight for accurate witness continued.
 
-## PART III: MIKE BURNS'S FINAL YEARS AND DEATH (1923-1934)
+### MIKE BURNS'S FINAL YEARS AND DEATH (1923-1934)
 
 After Carlos died, Mike continued writing.
 
@@ -44,7 +40,7 @@ Mike was buried in the Ba Dah Mod Jo Cemetery at Fort McDowell, in the same grou
 
 The manuscript he had spent decades writing, revising, and trying to publish went into the archives of the Sharlot Hall Museum in Prescott.
 
-## PART IV: CARLOS AND MIKE'S SHARED LEGACY
+### CARLOS AND MIKE'S SHARED LEGACY
 
 Carlos Montezuma and Mike Burns represented two paths toward the same goal: Indigenous survival, sovereignty, and witness.
 
@@ -62,7 +58,7 @@ Their homeland stolen, their families murdered, their children taken to boarding
 
 It was a victory. It was also a wound that would never fully heal.
 
-## PART V: THE MANUSCRIPT'S SILENCE (1934-2000s)
+### THE MANUSCRIPT'S SILENCE (1934-2000s)
 
 After Mike's death in 1934, his manuscript was preserved in the archives of the Sharlot Hall Museum in Prescott, Arizona.
 
@@ -88,7 +84,7 @@ From 1905 to 1911, during Roosevelt Dam construction, the cave was desecrated. A
 
 The site was not protected as a sacred place or massacre location until much later. This desecration continued for decades, another layer of violence against the Yavapai dead.
 
-## PART VI: PUBLICATION (2010-2012)
+### PUBLICATION (2010-2012)
 
 Around the turn of the twenty-first century, scholars working in the Sharlot Hall Museum archives recognized the extraordinary significance of Mike Burns's manuscript.
 
@@ -104,7 +100,7 @@ Mike's children did not live to see his work published. They died without knowin
 
 His manuscript had waited a hundred years to be heard.
 
-## PART VII: CHANGING THE RECORD
+### CHANGING THE RECORD
 
 Mike Burns had written in 1913: "I am the only one living to tell what happened to my people."
 
@@ -124,7 +120,7 @@ This change matters. Language shapes memory. Memory shapes how we understand our
 
 One witness changed the record.
 
-## PART VIII: THE ONGOING STRUGGLE
+### THE ONGOING STRUGGLE
 
 The Fort McDowell Yavapai Nation continues on the reservation established in 1903. The current size is approximately 24,000 acres, roughly 40 square miles, with around 950 community members.
 
@@ -144,7 +140,7 @@ Just as Mike Burns bore witness to the atrocities of his time, contemporary Yava
 
 New generations of Yavapai advocates, writers, and activists carry forward the work Mike began with his manuscript. They refuse to let their history be erased. They insist on being heard.
 
-## PART IX: FULL CIRCLE
+### FULL CIRCLE
 
 Carlos Montezuma and Mike Burns achieved remarkable things.
 

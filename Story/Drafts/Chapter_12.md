@@ -1,7 +1,7 @@
-# CHAPTER 12: THE COUSIN
+# 12  |  THE PAST
 
-## February 1922
-
+### February 1922
+### Fort McDowell, Arizona
 Carlos Montezuma looked older than I had expected. We were nearly the same age—he was fifty-seven, I was fifty-six—but the years had carved deeper into him. His face was lined and his hair had gone completely gray, but his eyes were alert, missing nothing. He stood when I approached his door, moving with the careful precision of a man learning to accommodate pain.
 
 "Cousin." He embraced me, and I felt how thin he had become. "Come in. Sit. I've been hoping you would visit."
@@ -38,7 +38,7 @@ He was quiet for a long moment. Then he closed the portfolio without reading fur
 
 "And Mike?" He placed his hand on the portfolio. "Thank you for writing this. Whatever happens with publication, thank you for doing the work of witness."
 
----
+
 
 Four days passed. I worked the irrigation ditches and helped repair a neighbor's fence and tried not to think about Carlos reading my manuscript. But Chehata saw through me.
 
@@ -162,7 +162,7 @@ He stood slowly, and I rose with him.
 
 He rested his hand on the table between us for a long, quiet moment, then nodded for me to go.
 
----
+
 
 I walked home as the sun set, the manuscript under my arm and Carlos's words echoing in my mind. Chehata was cooking when I arrived. She looked up and saw my face.
 
@@ -194,7 +194,7 @@ I looked at the manuscript on the table. Three hundred pages of careful witness 
 
 "Then think." Chehata kissed my forehead and returned to the stove. "But don't think too long. Carlos won't be here forever. And neither will you."
 
----
+
 
 That night I lay awake listening to Chehata breathe beside me. I thought about the boy I had been, the child who had climbed mesquite trees and learned to track deer and listened to his grandmother's stories. I thought about how completely I had buried him, how thoroughly I had tried to forget he existed.
 
@@ -238,7 +238,7 @@ I wasn't sure she was right. But I had to try. Because Carlos had given me somet
 
 I would write his story. Not as Mike Burns looking back. But as him, that child who had loved and lost and witnessed and somehow survived to become me.
 
----
+
 
 The next morning I returned to Carlos's house. He was sitting in the sun outside his door, wrapped in a blanket despite the warming day.
 

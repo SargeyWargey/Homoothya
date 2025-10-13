@@ -1,5 +1,7 @@
-# Chapter 19: Taken
+# 19  |  TAKEN
 
+### Evening of December 26, 1872
+### Salt River Mesa
 The scout who held me said something to the others. They laughed. One of them kicked my uncle's body to make sure he was dead.
 
 Then a white officer stepped into the firelight. Tall, with markings on his shoulders that meant he commanded. He looked down at my uncle's body, then at me. Studied me. Made a decision.

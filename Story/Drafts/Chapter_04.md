@@ -1,7 +1,7 @@
-# CHAPTER 4: THE CHOICE
+# 4  |  CHOICE
 
-## July 1885
-
+### July 1885
+### Highland University, Kansas
 The last missionary I heard at Highland traced Arizona Territory on a map hung behind the pulpit. He smudged chalk across the Salt River and called it a land of empty mesas waiting for Christian plows. I sat in the back pew and kept my hands folded. I knew the names of the mesas he called empty.
 
 Two mornings later President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained I would need to pay my own board. If I could not, I was to report back to the agency in the Territory before the end of July. The words were clipped, the ink already fading along the fold.

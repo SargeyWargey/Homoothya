@@ -1,9 +1,7 @@
-# CHAPTER 9: BROKEN PROMISES - A WITNESS ACCOUNT
+# 9  |  PROMISES
 
-## 1905-1909
-
----
-
+### 1905-1909
+### Fort McDowell, Arizona Territory
 The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
 
 Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our grandparents' generation. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
@@ -26,7 +24,7 @@ I took a breath and began.
 
 "I set this down so the world may know. The White People have heard only one side."
 
----
+
 
 "The first time General Crook spoke the words, I carried a pitcher of water taller than my forearm." I paused, remembering the weight of the ceramic, the way it sloshed against my chest. "The general stood in the parade ground at Camp Verde with officers clustered around him and Yavapai leaders gathered across the packed earth."
 
@@ -60,7 +58,7 @@ I picked up my pencil and wrote the name in the margin. Kamala. Another name for
 
 I turned the page.
 
----
+
 
 "'As long as they lived' became two years."
 
@@ -116,7 +114,7 @@ Silence filled the space between us. Outside, someone laughed at a neighboring f
 
 "You came back," Chehata said finally. Her eyes were wet. "We came back. That's our victory."
 
----
+
 
 I read the final section, the testimonies I had gathered from survivors who had told me what I couldn't see as a child. The years at San Carlos. The starvation. The diseases. The families torn apart. The dead buried far from their homeland.
 

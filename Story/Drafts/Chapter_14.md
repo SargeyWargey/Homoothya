@@ -1,5 +1,7 @@
-# Chapter 14: The Lessons
+# 14  |  THE LESSONS
 
+### c. 1870-1871
+### Superstition Mountains, Arizona Territory
 My uncle came for me before the sun cleared the eastern peaks.
 
 "Come, Hoomothya," he said, standing at the edge of our ramada. "Today you learn to see."

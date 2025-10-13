@@ -1,5 +1,7 @@
-# Chapter 24: Pilgrimage
+# 24  |  PILGRIMAGE
 
+### January 1923
+### Fort McDowell & Salt River Canyon
 January cold woke me before the lamp. Frost silvered the corrals at Fort McDowell, and the boards of our porch creaked like brittle reeds when I stepped outside. Chehata had been up longer than I had. She moved like breath in the lamplight, wrapping fry bread in cotton cloth and tucking smoked venison into a saddlebag.
 
 She pressed a jar of juniper salve into my palm. "Keep him warm," she said. The smell of cedar smoke clung to her braids. She tied two wool blankets with rawhide strips, the knots neat and strong, then laid them over the rail beside the bridles. "For the ones you bring home," she added softly.

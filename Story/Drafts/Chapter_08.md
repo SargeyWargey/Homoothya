@@ -1,7 +1,7 @@
-# CHAPTER 8: THE LAND
+# 8  |  LAND
 
-## 1903-1905
-
+### 1903-1905
+### Fort McDowell, Arizona Territory
 The letter arrived in winter, carried by a Phoenix trader who knew I read English. The envelope bore my name in bold script. Inside, Carlos Montezuma's handwriting ran neat and urgent across the page.
 
 *Cousin,*
@@ -39,7 +39,7 @@ I had never heard such steel in her voice. It steadied something inside me that 
 
 "I will."
 
----
+
 
 The agency superintendent arrived three weeks later with maps rolled beneath his arm and a smile that never reached his eyes. He spread the maps across the table at the community center while families gathered to hear what he called a "generous opportunity."
 
@@ -95,7 +95,7 @@ That night I wrote to Carlos by lamplight while my family slept. I detailed ever
 
 I sealed the letter and gave it to the Phoenix trader with coins earned from wood chopping. He promised delivery within the week.
 
----
+
 
 Carlos's response arrived faster than I expected, accompanied by a bundle of newspapers. The *Chicago Tribune* carried an editorial about Indian affairs that quoted "Dr. Carlos Montezuma, a noted Yavapai physician." The *Arizona Republican* reprinted portions. Carlos had already begun making noise.
 
@@ -107,7 +107,7 @@ His letter was longer than mine, filled with legal arguments and political strat
 
 I read that question three times. Could I?
 
----
+
 
 The next Sunday I walked from home to home, carrying copies of Carlos's letter and the newspaper articles. I read them aloud. I translated the legal arguments into plain language about water rights and federal obligations. I reminded them what Salt River Reservation meant: living among the Pima who had scouted against us, leaving the river our ancestors knew, abandoning graves we had only recently been able to tend again.
 
@@ -125,7 +125,7 @@ I looked at the pages scattered across our table. Petitions. Letters. Lists of f
 
 "I think it has to." She squeezed my hand. "Because there is nowhere left to go. This is our last stand."
 
----
+
 
 By spring the superintendent had visited three more times, each visit more insistent than the last. He brought maps showing Salt River's fertile fields and promises of new houses. He brought threats about withdrawing rations and closing the school. He brought individual offers to families he thought might break from the group.
 
@@ -145,7 +145,7 @@ The analogy sent a chill through me. The canyon had been a siege that ended in a
 
 "Then we hold," I said.
 
----
+
 
 Summer brought federal inspectors. They measured our fields and counted our livestock. They interviewed families about water usage and crop yields. They took notes in leather-bound books and asked questions designed to prove we were struggling.
 
@@ -161,7 +161,7 @@ One inspector, younger than the others, seemed genuinely curious. He asked how w
 
 He wrote that down. I don't know if it made any difference.
 
----
+
 
 In the fall Carlos wrote that he was planning a trip to Washington to testify before Congress. He wanted Fort McDowell representatives to come with him.
 
@@ -177,7 +177,7 @@ I had never been to Washington. The city was larger than I imagined, full of mar
 
 "Then let's make them listen."
 
----
+
 
 The hearing room was smaller than I expected but more intimidating. Congressmen sat in raised chairs behind a long desk. Their faces were stern, skeptical. I recognized the expression. It was the same one agency superintendents wore when they looked at Indians.
 
@@ -215,7 +215,7 @@ Silence filled the room. The chairman cleared his throat.
 
 It wasn't a promise. But it wasn't a dismissal either.
 
----
+
 
 Back at Fort McDowell, I reported everything to the community. The hearing, the congressmen's reactions, Carlos's fierce advocacy. People listened with a mixture of hope and caution. They had heard government promises before.
 
@@ -233,7 +233,7 @@ She leaned against me, and we stood together watching the water that had been th
 
 But while we lived, we would fight to stay beside it.
 
----
+
 
 The answer came in early 1904, not with fanfare but with quiet bureaucratic retreat. The superintendent stopped visiting. The relocation maps disappeared from agency meetings. Rumors reached us through traders: Carlos's congressional testimony had embarrassed the Indian Bureau. The newspapers had picked up the story. Phoenix water interests were still circling, but the immediate threat had passed.
 

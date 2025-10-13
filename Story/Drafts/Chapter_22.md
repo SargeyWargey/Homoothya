@@ -1,5 +1,7 @@
-# Chapter 22: Only One
+# 22  |  THE ONLY ONE
 
+### December 29, 1872
+### March North
 I woke to the rattle of harness buckles and the scrape of metal against metal.
 
 For a moment I didn't know where I was. I expected to hear Grandmother stirring the morning fire, Nashta whispering songs to her doll. Instead I heard soldiers cursing softly as they rolled their blankets, horses blowing steam into the cold air, the huff of the Pima scout who had guarded me through the night.

@@ -1,5 +1,7 @@
-# Chapter 25: Return from Pilgrimage
+# 25  |  RETURN FROM PILGRIMAGE
 
+### Early 1923
+### Fort McDowell
 We reached Fort McDowell while the sky still held the last stain of sunset. The horses stumbled with weariness, and the pack mare swayed beneath the weight of the bundle wrapped in wool. Chehata waited near the gate with a lantern cupped in her palm. The light threw a gold circle across the hard-packed yard. When she saw the cloth in my arms she lifted her face toward the stars for a heartbeat, then crossed the distance between us.
 
 She steadied Carlos first. His boots slipped when he dismounted, and the cough that shook him forced him to lean against the saddle. Chehata slid beneath his arm and helped him stand. The smell of cedar clung to her shawl. She pressed her forehead briefly to his chest before turning to me. I did not speak. She did not ask. Her fingers touched the blanket and felt the careful knots that held the bones we had promised to carry home.

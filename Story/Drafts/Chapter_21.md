@@ -1,5 +1,7 @@
-# Chapter 21: December 28, 1872
+# 21  |  DECEMBER 28, 1872
 
+### December 28, 1872
+### Salt River Canyon Rim
 The first shot cracked across the morning like thunder.
 
 From my position on the rise, I saw the sentry at the cave entrance drop. Just... drop. One moment standing, looking out at the peaceful dawn. The next moment gone.

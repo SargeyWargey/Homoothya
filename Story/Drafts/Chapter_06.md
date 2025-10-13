@@ -1,7 +1,7 @@
-# CHAPTER 6: CHEHATA
+# 6  |  CHEHATA
 
-## 1887-1888
-
+### 1887-1888
+### San Carlos Reservation
 When my second enlistment ended they counted the cartridges left in my cartridge box, signed me out in the ledger, and told me the Army had no further use for my eyes. The wool blouse I turned in was more threadbare than the one they issued when I signed on, yet it still held the smell of wet sage and camp smoke. I folded it over my arm and imagined all the tracks I had followed while wearing it—families slipping away before dawn, men prowling the ridges with rifles, the thin line between survival and surrender. Keane slapped my shoulder and said I had done my duty. I nodded because he expected it, but the word duty felt like grit between my teeth. The Army could close my file, but it could not close the ache I carried for every campfire I had extinguished on their orders.
 
 San Carlos had not changed in the years I wore the uniform. The agency buildings still hunched low against the wind. The parade ground was a bowl of hardpan traced by wagon wheels and surviving footprints. Wooden gallows that the superintendent used for punishments stood empty now, but the shadow they cast lingered across the packed earth. I traded my last Army ration tickets for flour and coffee, then took whatever work the agency clerk offered. Some mornings I hauled logs for the sawmill until my shoulders burned. Other days I chopped mesquite for families who traded me tortillas and gossip. At night I slept in a canvas tent staked just outside the agency boundary, close enough to the river to taste its dampness, far enough from the barracks that the bugle could not wake me with another set of orders.
