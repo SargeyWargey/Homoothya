@@ -1,7 +1,7 @@
 # 16  |  CLIMB
 
 ### Mid-December 1872
-### Salt River Area, Arizona Territory
+### Salt River, Arizona Territory
 We walked for two days before I understood what fear really meant.
 
 The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks were stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.

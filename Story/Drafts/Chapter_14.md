@@ -54,7 +54,7 @@ We followed the tracks deeper into the canyon. My uncle showed me where she'd sc
 
 "What if I can't see it?"
 
-"Then you learn. Every day you look. Every day you see more." He glanced at me. "When I was your age, I saw nothing. My uncle had to point to tracks three times before I understood what I was looking at. Now I see them without thinking. Your eyes will learn."
+"Then you learn. Every day you look. Every day you see more." He glanced at me. "When I was your age, I saw nothing. My uncle had to point to tracks three times before I understood. Now I see them without thinking. Your eyes will learn."
 
 The canyon narrowed. We moved through dappled shade where cottonwoods grew near a seep in the rock. Water trickled, barely more than a whisper, into a shallow pool. My uncle knelt again.
 
@@ -173,8 +173,6 @@ I fell asleep that night thinking about tracks in the dust, about the arrow flyi
 I was learning to be Yavapai.
 
 And I didn't know that everything I was learning would soon be something I could only remember. I didn't know that the tracks I learned to follow would become tracks in memory, the stories my uncle told would become stories I told myself in the dark, alone.
-
-I didn't know the soldiers were coming.
 
 For now, I was just a boy who'd gone hunting with his uncle. Who'd carried the bow back to camp. Whose belly was full of deer meat and whose heart was full of pride.
 

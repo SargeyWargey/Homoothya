@@ -64,11 +64,29 @@ No one answered. The soldiers' faces were gray. But no one gave the order to cea
 
 Maybe they couldn't. Maybe this thing they'd started had to run its course. Had to burn itself out like wildfire, consuming everything before it died.
 
+Then I saw movement. A figure crawling from the cave entrance on his stomach, moving between the rocks and the bodies. Moving with purpose even in that position of submission.
+
+He made it past the killing zone. Past where the bullets had found everyone else.
+
+And then he stood.
+
+A warrior, I thought. He climbed onto a large boulder that overlooked the canyon. Stood tall on top of it, fully exposed.
+
+He raised his rifle toward the soldiers' positions.
+
+And he screamed.
+
+Not a scream of pain or fear. A war cry. Defiant. Raging. The sound of a man who refused to die on the ground. Who chose to die standing.
+
+He fired toward the soldiers above.
+
+The crack of a single rifle answered him.
+
+Saw him fall from the boulder, disappearing behind the rocks.
+
 The gunfire began to slow. Not because the soldiers were stopping, but because there were no more targets. No more movement at the cave entrance. No more people trying to escape.
 
 Just silence punctuated by occasional shots. Soldiers making sure.
-
-And then even those stopped.
 
 The silence that followed was worse than the noise had been.
 
