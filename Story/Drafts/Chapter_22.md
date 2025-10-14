@@ -1,4 +1,4 @@
-# 22  |  THE ONLY ONE
+# 22  |  ONLY ONE
 
 ### December 29, 1872
 ### March North

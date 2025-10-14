@@ -4,7 +4,7 @@
 ### Fort McDowell, Arizona Territory
 The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway, I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
 
-Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our grandparents' generation. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
+Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our family for nearly a decade. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
 
 I reached for the bundle of pages I had kept wrapped in oilcloth beneath our bedroll. The papers rustled as I unfolded them, edges worn from handling. They were the pages born from the ledger entries I'd begun after Carlos's last letter, testimonies gathered beside cook fires and irrigated fields. Each sheet pressed proof against my palm that the confidence I'd found before the committee had not faded. Chehata's needle paused mid-stitch.
 
@@ -16,7 +16,7 @@ She set the mending aside and straightened, giving me her full attention. The la
 
 "Read it to me," she said.
 
-I smoothed the first page against the table. My hands shook slightly. These were not just words. They were the testimony of elders who had trusted me with their memories, the accounting of promises broken and lives lost. If I had failed to honor them, I didn't know how I would face her.
+I smoothed the first page against the table. My hands shook slightly. These were not just words. They were the testimony, the accounting of promises broken and lives lost. If I had failed to honor them, I didn't know how I would face her.
 
 "Mike." Chehata's voice was gentle. "Read."
 
@@ -48,7 +48,7 @@ I read the names: Grandma Dashkoda, Uncle Wahya, Mary Johnson, and John Williams
 
 "Close to half the people at Rio Verde were gone," I read. "Disease had done what bullets had not."
 
-Chehata's hand tightened on mine. I could feel the calluses on her palm, earned from years of grinding corn and hauling water. "My grandmother's sister died in that sickness," she said. "Her name was Kamala. She was fourteen."
+Chehata's hand tightened on mine. I could feel the calluses on her palm, earned from years of grinding corn and hauling water. "My grandmother's sister died in that sickness," she said. "Her name was Kamala."
 
 I picked up my pencil and wrote the name in the margin. Kamala. Another name for the accounting the government would never make.
 

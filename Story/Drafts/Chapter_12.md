@@ -190,82 +190,48 @@ I looked at the manuscript on the table. Three hundred pages of careful witness 
 
 "Then think." Chehata kissed my forehead and returned to the stove. "But don't think too long. Carlos won't be here forever. And neither will you."
 
-That night, I lay awake listening to Chehata breathe beside me. I thought about the boy I had been, the child who had climbed mesquite trees and learned to track deer and listened to his grandmother's stories. I thought about how completely I had buried him, how thoroughly I had tried to forget he existed.
+That night, I lay awake listening to Chehata breathe beside me. Carlos's question kept returning: "Is he dead? Or did you just bury him because it was the only way to survive?"
 
-And I thought about Carlos's question: "Is he dead? Or did you just bury him because it was the only way to survive?"
+I had spent so many years being Mike Burns—the student, the scout, the citizen, the witness—that I had almost convinced myself that boy was someone else. Someone who had died while I survived by becoming somebody new.
 
-The truth was, I didn't know anymore. I had spent so many years being Mike Burns—the student, the scout, the citizen, the witness—that I had almost convinced myself that boy was someone else. Someone who had died while I survived by becoming somebody new.
+But Carlos had seen through it. He had seen the boy at the center, the one I had tried to write out of the story.
 
-But Carlos had seen through it. He had read my manuscript and seen the missing piece. The boy at the center, whom I had tried to write out of the story, even as I documented everything that happened around him.
+I rose quietly and went to the table. The manuscript lay where I had left it. I opened it to a blank page at the back. In the dim moonlight, I picked up my pencil and wrote a name I hadn't spoken in fifty years.
 
-"Let him speak," Carlos had said.
+The door I had sealed shut for so long stood open.
 
-I turned the words over in my mind. Could I? Could I go back to that childhood and write it down? Could I let myself remember the mother, the grandmother, the uncle, the father? Could I write about mesquite harvests, hunting lessons, and the happiness of a child who didn't yet know that everything would be destroyed?
-
-Could I write about what happened?
-
-The question stopped me. Everything else, the childhood, the family, the lessons that I might be able to write. But the rest... that was the darkness Carlos had named. The thing I had spent fifty years refusing to touch.
-
-"You're the only one living who can tell it," he had said.
-
-And he was right. Everyone else who had been there was dead. The soldiers had told their version: victory, decisive action, and a successful campaign. But no one had told it from the other side. No one had written what it was like to be that child.
-
-No one but me.
-
-I rose quietly and went to the table. The manuscript lay where I had left it. I opened it and found a blank page at the back. In the dim moonlight, I picked up my pencil and wrote the title.
-
-Then I set the pencil down and stared at what I had written. Just a name I hadn't spoken in fifty years. But it felt like opening a door that had been sealed shut.
-
-I heard Chehata rise and felt her presence behind me.
+Chehata's hand found my shoulder in the darkness.
 
 "You're going to write it."
 
-"I think I have to." I touched the words on the page. "Carlos is right. If I don't, that boy's story dies with me. And he deserves better than that."
-
-She placed her hand on my shoulder.
+"I think I have to."
 
 "It's going to be hard."
 
-"Yes." She squeezed my shoulder. "But you're strong enough. You survived it once. You can survive remembering it."
+"Yes." But Carlos had given me something I didn't know I needed: permission to remember. Permission to grieve.
 
-I wasn't sure she was right. But I had to try. Because Carlos had given me something I didn't know I needed: permission to remember. Permission to grieve.
-
-I would write his story. Not as Mike Burns looking back. But as him, that child who had loved and lost and witnessed and somehow survived to become me.
+I would write his story. Not as Mike Burns looking back. But as him.
 
 The next morning, I returned to Carlos's house. He was sitting in the sun outside his door, wrapped in a blanket despite the warming day.
 
 "Cousin." He smiled when he saw me. "That was fast."
 
-"I'm going to write it," I said. "I don't know if I can finish it. I don't know if it will be any good. But I'm going to try."
+"I'm going to write it," I said. "I don't know if I can finish it. But I'm going to try."
 
-Carlos's smile widened. "Good. That's good." He gestured to the chair beside him. "Sit."
+Carlos's smile widened. "Good." He gestured to the chair beside him. "Sit."
 
-I sat. "I'm going to start at the beginning. Before the soldiers came. I'm going to write about the boy I was, the family I had, the life I lived. Let readers know him before I show them what came after."
+I sat. "I'll start at the beginning. Before the soldiers came. Let readers know him before I show them what came after."
 
-"Yes." Carlos nodded. "Make them care about him first."
+"Yes." Carlos nodded. "Make them care about him first." He reached over and gripped my arm.
 
-"And then..." I swallowed hard. "Then I'll write about the rest. About what I witnessed."
+We sat together in the morning sun, two old men who had survived what should have killed us. Different paths. Same mission.
 
-"It will be the hardest thing you've ever written."
+"Thank you," I said. "For seeing what was missing."
 
-"I know."
-
-"But it will also be the truest." He reached over and gripped my arm. "And Mike? When you write it, write it as him. Don't hide. Make readers live it with that boy."
-
-"I'll try."
-
-"You'll do more than try." He released my arm. "You'll succeed. Because he's depending on you after fifty years of silence."
-
-We sat together in the morning sun, two old men who had survived what should have killed us. Carlos had chosen to fight publicly. I had chosen to fight quietly, to document, witness, and preserve.
-
-Different paths. Same mission.
-
-"Thank you," I said. "For seeing what was missing. For pushing me to write what I was afraid to write."
-
-"That's what family does." He smiled. "We see each other's blind spots." He paused. "And Mike? When you finish this, I want to read it. Before I..." He didn't finish.
+"That's what family does." He paused. "And Mike? When you finish this, I want to read it. Before I..." He didn't finish.
 
 "You'll read it," I promised. "Every word."
 
 I walked home to begin the hardest work I had ever attempted: remembering the child I had spent a lifetime trying to forget, and letting him finally speak.
 
-I would tell the story of a boy, of a Yavapai, of Hoomothya.
+I would tell the story of Hoomothya.

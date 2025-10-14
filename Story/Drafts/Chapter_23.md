@@ -1,4 +1,4 @@
-# 23  |  THE BECOMING WHOLE
+# 23  |  BECOMING WHOLE
 
 ### Late April 1922
 ### Fort McDowell Reservation, Arizona
@@ -80,9 +80,9 @@ I set the manuscript gently on the polished wood. The desk bore the marks of yea
 
 Outside, the yard had warmed. I looked back once through the open window. Sunlight caught the white cloth around the pages. I felt exposed leaving them there, as if part of me remained on the desk. I walked away quickly before I changed my mind and scooped them back into my arms.
 
-I had several hours to fill before returning. I walked toward the Verde River to keep myself from pacing outside Carlos's door. The smell of damp earth rose from the fields irrigated by canals we had helped dig when we were boys. Farmers already bent over seedlings, their hats rising and falling like birds. In the distance, the Mazatzal ridges sat purple against the lightening sky. I stood at the edge of the riverbank and listened to the slow current slide past cottonwoods. The sound reminded me of Beaver Creek before the army came.
+I had several hours to fill before returning. I walked toward the Verde River to keep myself from pacing outside Carlos's door. The smell of damp earth rose from the fields irrigated by canals I had helped dig. Farmers already bent over seedlings, their hats rising and falling like birds. In the distance, the Mazatzal ridges sat purple against the lightening sky. I stood at the edge of the riverbank and listened to the slow current slide past cottonwoods. The sound reminded me of Beaver Creek before the army came.
 
-I could not stay still. Memories stirred and pushed me along the water's edge. Each step carried me deeper into recollection. I thought of the day in 1872 when Carlos and I were separated, of the way his mother had thrown herself over him. I thought of the scout who dragged me away from the cave. I thought of the nights in Prescott when I stared at the ceiling and wondered if anyone from our camp still breathed. With the manuscript now in Carlos's house, those questions had a new shape. We had lived. We had two names. We had two paths that brought us back to one point.
+I could not stay still. Memories stirred and pushed me along the water's edge. Each step carried me deeper into recollection. I thought of the day in 1872 when Carlos and I were separated. I thought of the scout who dragged me away from the cave. I thought of the nights in Prescott when I stared at the ceiling and wondered if anyone from our camp still breathed. With the manuscript now in Carlos's house, those questions had a new shape. We had lived. We had two names. We had two paths that brought us back to one point.
 
 Around noon, the sun blazed high. I sought shade beneath a cottonwood and ate the tortillas and dried apples Chehata had packed for me. She thought of everything. When the mission bell near the school rang three times, I brushed crumbs from my coat and started back toward Carlos's lane.
 
@@ -132,7 +132,7 @@ When Carlos rose, his knees cracked. Age had crept into our joints, yet purpose 
 
 I gathered the manuscript back into the cloth so the pages would remain clean. Carlos hesitated, then placed his hand atop mine on the bundle. "Leave it here tonight," he requested. "I want to read it once more before sleep and again when dawn comes."
 
-"Keep them," I said. "Guard them until I return with final edits from Chehata's notes."
+"Keep them," I said.
 
 "I will guard them as carefully as I ever guarded my patients," he promised.
 
@@ -158,6 +158,6 @@ After supper, the house settled into the quiet that still startled me. Chehata a
 
 Night settled softly around the house. A thin sliver of moon rose over the cottonwoods. I lay in bed beside her and listened to her breathing while the images of the day replayed in my mind: the signatures on white paper, her hand on my neck, the sound of Carlos's voice thick with tears, the resolve in his words when he spoke of returning to the land. I felt the boy I had been sit up within me, no longer locked away. He looked around my life with curious eyes. He recognized the woman who kept us alive. He recognized the cousin who had become a brother. He recognized the road leading back to the red cliffs. For the first time, he did not flinch.
 
-Before sleep took me, I whispered the names of the dead into the darkness. Each name left my mouth like a glowing coal. Each coal floated above us and filled the room with soft light. By the time I closed my eyes, the light had woven itself into a net sturdy enough to carry us eastward when autumn came.
+Before sleep took me, I whispered the names of the dead into the darkness. Each name left my mouth like a glowing coal. Each coal floated above us and filled the room with soft light. By the time I closed my eyes, the light had woven itself into a net sturdy enough to carry us eastward when winter came.
 
 The world beyond our door still turned with indifference. Trains would haul soldiers and supplies. Politicians would sign papers that said we were citizens now. Newspapers would debate whether Native words belonged in print. Yet inside our small house at Fort McDowell, truth settled into ink and cloth. It breathed through the lungs of survivors. It rested in the hands of a woman who believed in both of us. It pointed unerringly toward a canyon where we would speak it aloud. I held that knowledge close and let it lull me to sleep.

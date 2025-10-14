@@ -1,12 +1,12 @@
 # 4  |  CHOICE
 
 ### July 1885
-### Highland University, Kansas
-The last missionary I heard at Highland traced the Arizona Territory on a map hung behind the pulpit. He smudged chalk across the Salt River and called it a land of empty mesas waiting for Christian plows. I sat in the back pew and kept my hands folded. I knew the names of the mesas he called empty.
+### Kansas to Arizona Territory
+The answer arrived two weeks after commencement. President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained, I would need to pay my own board. If I could not, I was to report back to the agency in the Territory before the end of July. The words were clipped, the ink already fading along the fold.
 
-Two mornings later, President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained, I would need to pay my own board. If I could not, I was to report back to the agency in the Territory before the end of July. The words were clipped, the ink already fading along the fold.
+I had no savings beyond the few dollars I earned pruning trees. The decision I had been weighing for months suddenly carried a deadline. I sold my algebra text to a younger student, traded my winter coat to the farm foreman for a train voucher, and packed my trunk with the care one uses for a borrowed thing.
 
-I had no savings beyond the few dollars I earned pruning trees. I sold my algebra text to a younger student, traded my winter coat to the farm foreman for a train voucher, and packed my trunk with the care one uses for a borrowed thing. That night, I walked the crest of the hill and watched lightning split a bank of clouds far to the south. The air carried the smell of rain moving away from me.
+The morning I left Highland, the sky was the color of pewter. Thomas walked with me to the station in Troy. He pressed a small packet of tobacco into my hand and wished me safe travel. We clasped wrists, the grip firm enough to leave marks. I told him I understood what I was giving up. He said he thought I understood better than anyone. The train whistle sounded across the valley. As the cars pulled away, I watched the campus shrink until the chapel spire was no taller than my thumb. The prairie opened once more, a sheet of green and gold streaked by rivers. Highland had shown me what the nation's dream for me looked like. I carried my own dream west instead.
 
 The journey home reversed everything Highland had tried to teach me. Kansas slipped by in squares of wheat and corn. Colorado brought the taste of dust. In New Mexico, the stations were little more than telegraph poles and weary mules. Each time the train slowed, men in army coats boarded and asked if any passengers were headed for the reservations. I kept my answers short and told them I was visiting family. It was not entirely a lie.
 
