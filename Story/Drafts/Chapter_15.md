@@ -1,183 +1,91 @@
-# 15  |  MOTHER
+# 15  |  HARVEST
 
-### Early December 1872
-### East of the Superstition Mountains
-The men came back wrong.
+### c. 1870-1871
+### Salt River region
+The earliest morning I remember best, I was small enough to climb.
 
-My father and uncle returned to camp when the sun sat low, but they didn't carry deer or rabbits or even stories about what they'd seen. They came back quiet, their faces hard in a way that made my stomach tighten.
+My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."
 
-I'd seen my father look like that once before. The day he came back alone, without my first mother.
+Hoomothya means "Wet Nose" in our language. Grandmother named me that the day I was born,  I cried so hard my whole face shone. Sometimes I wished for a fiercer name, but when she called up to me from the roots of the mesquite, the word felt like warm hands on my back.
 
-I was smaller then. Maybe four winters, maybe five. Too young to understand what death meant, but old enough to know something terrible had happened.
+I stretched toward the golden clusters, my toes gripping bark worn smooth by summer heat. The mesquite tree swayed, and I swayed with it, the whole world tilting beneath me. Below, burden baskets waited like open mouths. My mother and aunts moved between the trees, their hands quick and sure, filling the baskets with the dry rustle of pods pulled from branches.
 
-She'd gone out that morning with the other women to gather agave hearts near Mormon Flat. I remembered watching her leave, the digging stick across her shoulder, her gathering basket empty and waiting to be filled. She'd touched my head as she passed. That was all. Just her hand on my hair, warm from the cooking fire.
+"Not too high," my grandmother called, but she was smiling. I could hear it in her voice.
 
-She never came back.
+I reached for a cluster just beyond my fingertips. The pods were fat and golden, darker than the others, and when I pulled them close, they smelled sweet enough to make my mouth water. The branch dipped under my weight. For a heartbeat, I hung there, suspended between earth and sky, the Salt River shining in the distance like a snake's skin catching light.
 
-Father found her in the afternoon. The other women came running into camp ahead of him, crying, and then Father appeared carrying her. Her body was limp. Her head rolled against his shoulder in a way that frightened me. I tried to go to her, but my aunt held me back.
+Then my fingers closed around the pods, and I dropped them down.
 
-"Soldiers," someone said. The word hissed through camp like wind through dry grass.
+"Good," grandmother said as they landed in her basket. "You see? The tree gives what we need."
 
-They'd found the women gathering. The white men had shouted things in their language, words my mother didn't understand. When she couldn't answer, when she reached for her digging stick, not knowing they thought it was a weapon, they shot her.
+The sun stood high now, turning the desert white. Heat rose in waves from the canyon floor, but up here in the branches the air moved, carrying the scent of creosote and dust and the river somewhere beyond the rocks. My cousins worked the trees nearby. I could hear Nashta laughing at something, then my aunt's voice hushing her, gentle.
 
-She'd been gathering food. That was all.
+I climbed down slow, the way my uncle had taught me. "Three points touching," he'd said, "always three." Hand, hand, foot. Hand, foot, foot. The bark warm against my palms.
 
-I didn't cry at first. I thought she was sleeping, thought Father would lay her down, and she would wake up. I kept waiting for her to move, to speak, to look at me with those eyes that had always been warm.
+When I dropped to the ground, my grandmother was watching me with eyes that saw everything. She reached out and brushed my hair back from my forehead, her fingers dry and light as milkweed silk.
 
-But she didn't move. Didn't speak. Didn't look.
+"You're growing," she said. "Soon you'll be too big to climb."
 
-They wrapped her in hides and took her away to the burial place. I wasn't allowed to go. Too young, they said. Stay with your aunt, they said.
+"Then who will get the high pods?"
 
-Father came back different. The softness gone from his face. His mouth a hard line. His hands always near his weapons. At night I heard him talking with the other men, his voice low and angry. "Bitter vengeance," my uncle called it later, when he thought I wasn't listening. "Your father has bitter vengeance for soldiers and all white people now. Because of what they did to your mother."
+"Maybe my cousin Wassaja can do it," I said. "His arms are already longer than mine."
 
-I understood the anger, even if I didn't understand death. The soldiers had taken her. Had hurt her for no reason. Had made father's face turn to stone.
+"Someone smaller." Her mouth curved. "The sky keeps turning, child. That's how we know we're alive."
 
-After many moons, my father took a new wife. A woman from another family whose husband had died the winter before. She was kind to me, gentle, and in time, I learned to call her mother too. She gave my father two daughters, Nashta first, then the baby. She did the work my first mother had done: grinding meal, gathering plants, making our clothes. She cared for me when I was sick. She smiled when I climbed too high in the mesquite trees.
+My mother held out the waterskin, and I drank. The water tasted like the clay pot it had come from, cool despite the heat. She took it back and drank herself, then poured a little over her hands and wiped her face.
 
-One evening, she called me to the fire and pressed something into my palm. The tiny shell bead my first mother had given me, moon-pale and smooth, its ridged face polished soft by my small fingers. I'd kept it wrapped in a scrap of hide, afraid to lose it.
+"Your father will be proud," she said. "Look how much we've gathered already."
 
-"You should wear it," she said quietly. Her hands moved quick and sure, braiding a thin strip of rawhide. "So it stays close."
+The baskets were half full, and the sun had barely begun its fall toward the western mountains. All morning we'd worked like this, the rhythm of it steady as breathing. Reach, pull, drop. The pods rattled into baskets. My hands sticky with mesquite sap, my legs scratched from bark, my heart full in a way I had no words for.
 
-She tied the cord around my wrist, the shell settling warm against my pulse. Her fingers were gentle, the knot tight enough to hold but loose enough to grow with me.
+Nashta ran up holding a pod that had split open. "Look, grandmother, it's already sweet inside."
 
-"She would want you to carry her with you," she said, not looking at my face.
+Grandmother took it and examined it like it was something precious. "The tree knows," she said. "It opens when it's ready."
 
-I touched the shell with one finger. It was warm from her hands. "Thank you"
+We worked until the sun sat lower, painting the canyon walls red and gold. My mother sang while she gathered, a song about the mesquite and how it had saved the people in the hungry time. My aunts joined in, their voices braiding together. I didn't know all the words yet, but I hummed along, the melody familiar as my own heartbeat.
 
-She nodded once, then went back to her work. But I saw the way her mouth softened. The way she didn't correct me when I called her mother.
+When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was the smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my aunt in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
 
-But she wasn't the same as my first mother. Couldn't be. And father never lost that hardness, that readiness for violence that had settled into him the day the soldiers killed my first mother.
+Ahead, smoke rose from the cooking fires. I could smell rabbit roasting, and my stomach woke up all at once, growling. Nashta giggled behind me.
 
-Now, watching him return to camp with that same terrible look on his face, I felt my stomach clench. The soldiers were close again. And father remembered, just as I did, what they had already taken from us.
+"Someone's hungry," my aunt said.
 
-The woman who had become mother to me stood from the grinding stone, my baby sister on her hip. "What is it?"
+"I could eat a whole deer," I said, and everyone laughed.
 
-My father looked at her for a long moment before speaking. "Tracks. Boot tracks. Three men, maybe four. Following the river upstream from the east."
+"First, you have to help bring one down," my uncle's voice came from the trail ahead. He stood there with my father, both of them empty-handed but smiling. No deer today, then. But they looked happy anyway, the kind of happiness that came from being out on the land, from moving quiet through the world and seeing what there was to see.
 
-"How close?"
+My father reached out and steadied my burden basket when I stumbled on a root.
 
-"Two valleys over. Half a day's walk."
+"Careful," he said. "You carry too much, your legs will remember it tomorrow."
 
-The other women had stopped their work. Everyone was listening now. My grandmother's hands went still on the basket she was weaving.
+"I'm strong enough."
 
-"Could be prospectors," one of the men said. "Looking for silver."
+"I know you are." His hand rested on my shoulder for a moment, warm and heavy. "But even the strong rest."
 
-"Or scouts," my uncle said. His jaw was tight. "Looking for us."
+At camp, we set the baskets down in the shade of the ramada. My back sang with relief. Other families were returning too, their own baskets full. Tonight or tomorrow, we would pound the pods into meal, the sound of stone on stone echoing through the canyon. We would press out the sweet juice and drink it, or make it into cakes that would keep when we moved to the higher country.
 
-My father set his bow down carefully, as if it might break. "We saw their camp. Old, maybe three days. They'd stayed there, built a fire, left marks on trees." He paused. "They're looking for something. And they're not trying to hide."
+The thought of moving made me both sad and excited. I loved this place, this camp by the river where the mesquite grew thick and the water ran even in the dry times. But the mountains were different, cool and green, and there would be walnuts to gather and new places to explore.
 
-That night, the adults talked in voices that rose and fell like the wind. I lay under my blanket with Nashta curled against me, pretending to sleep, but I heard everything.
+"Come, Hoomothya." Grandmother was already at the grinding stone. "I'll show you how to pound them fine."
 
-"We should move higher." That was my uncle. "Into the mountains. Make it harder for them to follow."
+I knelt beside her on the smooth rock. She took a handful of pods and placed them in the shallow bowl worn into the stone by generations of hands. Then she gave me a smaller pounding stone, smooth and heavy.
 
-"Winter is coming." An aunt's voice, worried. "The high country will be too cold. And we haven't finished gathering enough. We're already low on meat."
+"Not too hard," she said. "Listen to the sound. It will tell you when it's right."
 
-"How low?" My father's voice was sharp.
+I brought the stone down. The pods cracked and split. Again. The rhythm of it filled my hands, my arms, the air around us. Grandmother nodded.
 
-"Two days, maybe three if we're careful. We'll need to hunt soon."
+"Good. You're learning."
 
-"Can't hunt if we're running," someone said.
+Across the fire, my mother was skinning the rabbit my uncle had brought. Her knife flashed in the fading light. My father sat with the other men, talking in low voices, their hands moving as they spoke. One of them was shaping an arrow shaft, his fingers patient and sure.
 
-"Better cold and hungry than dead."
+Everything was as it should be. The mesquite pods splitting under stone. The fire crackling. The smell of food and smoke and the river. My people around me, their voices rising and falling like a song I'd known before I was born.
 
-My mother's voice cut through, sharp. "Don't say that in front of the children."
+I didn't know then that I would remember this day for the rest of my life.
 
-"They need to know what's happening."
+I didn't know that I would reach for it again and again in the years to come, like reaching for those golden pods in the high branches. I didn't know that the sound of my grandmother's voice and the weight of that burden basket and the taste of river water would become the things I carried when everything else was taken.
 
-"They're too young."
+I was just a boy, pounding mesquite, learning the work of my people.
 
-"They're old enough to run."
+I was Hoomothya.
 
-Silence then. Long and heavy. Nashta's breathing changed, and I knew she was awake, listening too. Her hand found mine under the blanket and squeezed.
-
-My father spoke next, quieter. "We don't know they're looking for us. Could be miners. Could be surveyors for the railroad they talk about."
-
-"You believe that?"
-
-Another pause. "No."
-
-Grandmother's voice came from the darkness. "There have been soldiers in the territory for two winters now. More every season. They build their forts. They bring their hunters and their guides. They say we raid their settlements."
-
-"We haven't raided anyone in months," someone said.
-
-"Doesn't matter what's true. Matters what they say is true."
-
-I heard my father move, probably standing. "Tomorrow we'll send scouts south, toward the settlements. See if there are more soldiers moving. If they're organizing."
-
-"And if they are?"
-
-"Then we move. Take what we can carry. Find somewhere they can't follow."
-
-Somewhere, they can't follow. The words settled in my chest like stones.
-
-Three days later, my father left before dawn with two other men. They didn't say where they were going, but I knew. Down toward the white settlements. To watch. To see what was coming.
-
-My uncle taught me to make arrows while they were gone. We sat in the shade of the ramada, and he showed me how to split the shaft, how to fit the stone point, how to bind it with sinew soaked in water that would shrink tight as it dried.
-
-"You have to make the binding perfect," he said. "If it comes loose, you lose the point. Lose the point, you lose the shot. Lose the shot, you go hungry."
-
-My fingers were clumsy. The sinew kept slipping.
-
-"Try again."
-
-I tried. Failed. Tried again.
-
-"Good," he said finally, examining my work. "Better. The binding will hold."
-
-"When will father come back?"
-
-My uncle didn't answer right away. He turned the arrow shaft in his hands, checking the straightness. "When he knows what he needs to know."
-
-"What if the soldiers find him?"
-
-"He's careful. He knows how to move without being seen."
-
-"But what if they do?"
-
-My uncle looked at me then, really looked at me. "Then we'll know they're close. And we'll run."
-
-"Where would we go?"
-
-"There are places. Caves in the high country. Canyons where the soldiers' horses can't follow. We know this land. They don't. That's our strength."
-
-I thought about that. About running. About leaving this camp where I'd climbed mesquite trees and learned to pound meal and watched my uncle's arrow fly true. The thought of leaving made my throat tight, but I didn't cry. I just kept working the sinew around the arrow shaft, making the binding tight.
-
-Nashta came running up, breathless. "Grandmother wants you."
-
-We followed her to where grandmother sat with the other elders near the cooking fire. They were talking in low voices, but they stopped when we approached.
-
-"Hoomothya." Grandmother gestured me closer. "Sit."
-
-I sat.
-
-She studied my face for a moment, then said, "Your mother tells me you've been asking questions. About the soldiers. About what might happen."
-
-I nodded.
-
-"Good. A boy who asks questions learns to see what's coming." She paused. "I'm going to tell you something, and I want you to remember it. Can you do that?"
-
-"Yes, grandmother."
-
-"The white men who come to our land, they don't see it the way we do. To them, it's empty. They think because we move with the seasons, because we don't build stone houses and cut the earth with plows, that we don't belong here. That the land belongs to no one."
-
-She picked up a handful of dirt and let it sift through her fingers.
-
-"But we've been here since the beginning. Since the First People emerged from the underworld. This desert, these mountains, these rivers—they know our names. The mesquite recognizes our hands. The deer know our prayers. We belong to this land the way the saguaro belongs to it. We're rooted here."
-
-She looked at me hard. "The soldiers don't understand that. They can't. So they see us as something in the way. Something to be moved."
-
-"But we won't move," I said. "Will we?"
-
-Grandmother's face softened. "We'll do what we must to survive. Sometimes that means staying. Sometimes it means running. Sometimes it means fighting. But no matter what happens, you remember: you are Yavapai. You are Kwevkepaya. This land is your blood. Even if they force us away, even if they try to make us forget, you carry it inside you. They can't take that."
-
-I didn't understand everything she meant. I was too young. But I felt the weight of it, the importance. So I nodded.
-
-"Say it," she said. "Tell me who you are."
-
-"I'm Hoomothya. I'm Yavapai."
-
-"Again."
-
-"I'm Hoomothya. I'm Yavapai. I'm Kwevkepaya."
-
-"Good. Don't forget."
+And I was home.

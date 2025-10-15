@@ -1,241 +1,112 @@
-# 10  |  CITIZEN
+# 10  |  EAST
 
-### July 14-15, 1908
-### Prescott, Arizona Territory
-The Prescott courthouse smelled of furniture oil and old tobacco. I stood at the registration desk with morning light slanting through windows tall enough to make a man feel small. The clerk looked up from his ledger and waited for me to state my business.
+### 1905
+### Washington, DC
+The hearing room was smaller than I expected but more intimidating. Congressmen sat in raised chairs behind a long desk. Their faces were stern, skeptical. I recognized the expression. It was the same one agency superintendents wore when they looked at Indians.
 
-"I've come to register," I said.
+Carlos testified first. He spoke with a precision that made me understand why he was respected in Chicago. He cited laws and precedents. He explained how the Kent Decree had violated the *Winters* decision. He detailed the government's pattern of denying infrastructure funding while blaming Fort McDowell for failing to thrive.
 
-He glanced at my clothes, noting the clean shirt and hat in hand, then at my face. His pen hovered above the page while he calculated something behind his eyes.
+"You have systematically starved this reservation," he said, his voice rising with controlled anger. "Not with bullets this time, but with broken promises and bureaucratic neglect. And now you want to claim the land is better used for Phoenix's growth? This is theft dressed in administrative language."
 
-"Under the Burke Act?"
+Some congressmen shifted uncomfortably. Others made notes.
 
-"Yes."
+Then George testified. He spoke in careful English about walking the trail to San Carlos as a young man, about burying relatives along the way, about returning decades later to find settlers on Yavapai land.
 
-He pulled a fresh form from the stack. The paper crackled as he smoothed it flat. "Name?"
+"Fort McDowell is all we have left," he said. "You gave us Roosevelt's promise that we could stay. Now you want to break another promise? How many times will you move us before you're satisfied we've disappeared?"
 
-"Mike Burns."
+When my turn came, my mouth was dry. I had written testimony on the train, rehearsed it in the hotel. But sitting in that room, facing those powerful men who held our future in their hands, the words felt inadequate.
 
-He wrote it without hesitation. I watched the letters form, black and permanent.
+I spoke anyway.
 
-"Age?"
+"My name is Mike Burns. I was born among the Yavapai. I was present when General Crook promised the Yavapai they could live at Rio Verde as long as they lived. Two years later, they were marched to San Carlos in winter. I was there for that march too."
 
-"Forty-three."
+I paused, letting the weight of those facts settle.
 
-"Occupation?"
+"I learned to read and write in your schools. I served as a scout in your Army. I did everything I was told would make me civilized. And now I am telling you: Fort McDowell is our home. We have rebuilt our lives there. We have planted crops and raised families and relearned how to be Yavapai after decades of being told we should disappear."
 
-I paused. The honest answers were too many and too complicated. Laborer. Interpreter. Witness. "I work where I'm needed."
+My voice steadied as I continued.
 
-He frowned but wrote "laborer" in a cramped hand.
+"You want the Verde River water for Phoenix. I understand that. Cities need water. But so do people. We are not asking for much. Just the small piece of land President Roosevelt set aside. Just enough water to sustain our fields. Just the chance to live where our ancestors lived before any of this happened."
 
-"Place of birth?"
+I met the eyes of the committee chairman.
 
-"Arizona Territory."
+"If you move us to Salt River Reservation, some will go because they have no choice. But others will refuse. They will die on Fort McDowell land rather than walk another trail of tears. Is that what you want? More Yavapai graves to justify taking what remains?"
 
-"Tribe?"
+Silence filled the room. The chairman cleared his throat.
 
-The word sat in the air between us. I could feel it pulling at the careful distance I had spent years building. "Yavapai."
+"Thank you for your testimony, Mr. Burns. We will take your concerns under advisement."
 
-He blinked. His pen dipped again into the inkwell. "You'll need to provide evidence you've severed tribal relations. Can you do that?"
+It wasn't a promise. But it wasn't a dismissal either.
 
-I nodded. The words I carried inside, *I severed nothing. They severed me*, stayed behind my teeth.
 
-"And you've been deemed competent by the Department of the Interior?"
 
-"I have the certificate."
+Back at Fort McDowell, I reported everything to the community. The hearing, the congressmen's reactions, Carlos's fierce advocacy. People listened with a mixture of hope and caution. They had heard government promises before.
 
-I unfolded the paper from my pocket and laid it on the desk. The clerk read it twice, his lips moving slightly. When he looked up his expression had shifted from skepticism to something harder to name. Curiosity, perhaps. Or the discomfort of a man realizing he was witnessing history and did not know what to do with it.
+I read from the notes I'd drafted for the hearing, the phrases I'd rehearsed beside the cook fire until the syllables sat steady on my tongue. Speaking them again, with neighbors gathered close, I could feel how words carried weight when people bore witness. Afterward I copied those notes into my ledger, adding the questions the congressmen had asked and the answers I wished I'd given. I wanted a record of the language that made men in suits pause.
 
-"You'll be the first," he said.
+"What do you think will happen?" Chehata asked later, when the crowd had dispersed.
 
-"The first what?"
+"I don't know." I stared at the Verde River, watching the current push steadily toward the Salt. "But I think they heard us. Maybe that's enough to make them pause."
 
-"The first Indian to register in the Territory." He said it like he was offering congratulations, but his voice lacked conviction. "The Burke Act's been law for two years. No one else has done it."
+"And if they don't pause?"
 
-I did not tell him that most Native men I knew had no desire to beg for rights that should have been theirs by birth. I did not tell him the Act demanded we prove ourselves "civilized" by abandoning the very people the government had spent decades trying to destroy. I nodded again and waited for him to finish.
+"Then we keep fighting."
 
-He copied information from the certificate onto the registration form. His handwriting grew tighter as the lines progressed. When he reached the final question, he hesitated.
+She leaned against me, and we stood together watching the water that had been the heart of this conflict. It flowed regardless of laws and hearings and broken promises. It had flowed before the Spanish came, before the Americans came, before any of this became necessary. It would flow after all of us were gone.
 
-"Political affiliation?"
+But while we lived, we would fight to stay beside it.
 
-"Republican."
 
-He wrote it down. Then he turned the ledger toward me and offered the pen. "Sign here."
 
-The nib felt light in my fingers. I had signed government papers before: enlistment forms, discharge documents, land agreements that dissolved like smoke the moment they became inconvenient. This signature felt different. It was not permission to serve or permission to survive. It was a claim. A line drawn in ink that said I existed, I counted, my voice would be heard.
+The answer came in early 1904, not with fanfare but with quiet bureaucratic retreat. The superintendent stopped visiting. The relocation maps disappeared from agency meetings. Rumors reached us through traders: Carlos's congressional testimony had embarrassed the Indian Bureau. The newspapers had picked up the story. Phoenix water interests were still circling, but the immediate threat had passed.
 
-I signed my name.
+We had won. Not permanently, but for now.
 
-The clerk blotted the signature and closed the ledger. "You can vote in the next election. Judge Wells is running for Governor. He's a friend to the Indians, they say."
+News of the decision traveled the same paths as our letters. Traders repeated the newspaper headlines that echoed Carlos's testimony and my own. Families who had doubted whether words could matter listened as I translated the articles into Yavapai, the ink from far-off presses confirming what our voices had forced. For the first time I believed that spoken promises and written testimony could shake the walls built against us.
 
-"I know him," I said. It was not quite true. I had met him once at a land hearing where he had listened more than he spoke. That was enough to call him a friend in a territory where most men did not bother listening at all.
+At the community gathering to celebrate, George Dickens raised his cup of coffee in a toast. "To Carlos Montezuma, fighting for us in Washington. And to Mike Burns, fighting for us here."
 
-The clerk handed me a registration card. My name, my age, my occupation, all reduced to a few lines of type. Proof that Mike Burns, former scout, former student, former prisoner, was now a citizen with the right to cast a ballot.
+I felt embarrassed by the recognition, but Chehata squeezed my hand. "Let them thank you," she whispered.
 
-I folded the card into my pocket beside the certificate and walked out into the Prescott morning.
+Carlos's next letter arrived shortly after. It was brief, written in the tight script of a busy man with little time.
 
+*We stopped them, cousin. But stay vigilant. Phoenix's thirst won't diminish, and the government has a long memory. Document everything. Keep the community united. They will try again.*
 
+*For now, celebrate. You earned it.*
 
-The street was busy with wagons and men conducting business they believed mattered. I stood on the courthouse steps and let the sun warm my face. Somewhere inside I expected to feel different. Transformed. Vindicated. Instead I felt the same weight I had carried into the building, only now it had a new name attached.
+*I am proud to fight beside you.*
 
-*Citizen.*
+At the bottom, he had added a postscript:
 
-The word tasted strange. It implied belonging, yet I had spent my life learning that belonging was always conditional. At Carlisle they told us we could belong if we abandoned our languages. In the Army they told us we could belong if we hunted our own people. Now the government told me I could belong if I severed the ties that made me who I was.
+*Now write your story. Our people need the truth told. You have a voice. Use it.*
 
-I had done all of it. And still I did not belong.
+I folded the letter and placed it in my ledger with all the others. The ledger had grown thick with petitions, testimonies, correspondence. It was a history of resistance written one page at a time.
+Each page reminded me that ink could do what bullets had failed to do: keep us rooted.
 
-A man passed me on the steps, tipping his hat without meeting my eyes. Another crossed the street rather than walk near me. I understood. The Burke Act might grant me the right to vote, but it could not legislate away the instinct men carried to keep their distance from anything they did not understand.
+Chehata saw me staring at it. "What are you thinking?"
 
-I thought of Chehata waiting at home. She would ask how it went, and I would tell her I was registered. She would nod and say it was good, that our children would remember their father was the first. She would not ask what it cost to be first, because she already knew.
+"That Carlos is right. Someone needs to tell this story. All of it. Not just the victory, but everything that led to it. The broken promises. The march. The canyon."
 
-The cost was written into every requirement of the Burke Act. To gain citizenship I had to prove I was competent, as if surviving the siege that took my family, Carlisle, and two enlistments was not proof enough. I had to prove I lived apart from the tribe, as if the losses forced on me had been my choice. I had to prove I had adopted "the habits of civilized life," as if the Yavapai way of life I had known as a boy was something barbaric that needed replacing.
+I paused, feeling the weight of that last word.
 
-I had proven all of it. And in proving it, I had given the government exactly what it wanted: my silence.
+"The canyon," I said again, quieter.
 
-Except I would not stay silent.
+"Can you write about that?"
 
-I descended the courthouse steps and walked toward the newspaper office. The *Prescott Weekly-Journal Miner* occupied a narrow building that smelled of ink and paper dust. A young man with rolled sleeves looked up from a typesetting table.
+I didn't know. The memories lived behind a wall I had built deliberately. To write them down meant tearing that wall apart stone by stone.
 
-"Help you?"
+"Maybe not yet," I admitted. "But someday."
 
-"I registered to vote this morning," I said. "I'm told I'm the first Indian in the Territory to do so."
+She nodded, understanding what I couldn't say. "When you're ready, you'll know. And when you write it, I'll make sure the children listen. They need to understand what their father fought for. What all of us fought for."
 
-His eyebrows lifted. "That right?"
+In the days that followed, I did what Carlos urged. Each evening after chores I carried the ledger from fire to fire, asking elders to lend me their memories. I wrote as they spoke, stopping often to read the sentences back, wanting to be sure English carried the truth they trusted me with. When my hand cramped, I remembered the committee room in Phoenix and how the right phrasing had cut through polished indifference. These new pages felt like the same fight, only now the battlefield was paper.
 
-"It is."
+Sometimes, after the children slept, I read the freshest lines aloud to Chehata. Speaking them let me test their strength; hearing them reminded me that our story deserved more than whispers. With every retelling my voice steadied. The ledger that once held petitions began to fill with testimony. When the binding grew too tight, I wrapped the loose sheets in oilcloth and tucked them beside our bed. They were not finished, but they were beginning.
 
-He wiped his hands on a rag and pulled a notepad from his pocket. "What's your name?"
+Outside, the Verde River continued its patient journey toward the confluence with the Salt. Families moved through their evening routines, cooking dinner, tending animals, gathering children for bed. The normalcy of it felt precious and fragile.
 
-"Mike Burns."
+We had kept the land. For now, that was enough.
 
-"And your tribe?"
+But Carlos's warning echoed in my mind. They will try again.
 
-"Yavapai."
-
-He scribbled notes. "Where'd you learn English?"
-
-"Carlisle Indian School. Pennsylvania."
-
-"Ah." He nodded as if that explained everything. "So you're educated. That's why you qualified under the Burke Act."
-
-"That's why."
-
-"And you severed tribal relations?"
-
-The question landed like a stone in still water. I could answer truthfully and tell him my relations were severed when soldiers trapped them and ended their lives. Or I could answer carefully and give him the story he expected.
-
-I chose carefully.
-
-"I live apart from the tribe," I said. "I've adopted civilized habits."
-
-He wrote it down without questioning what those words meant or what they cost. "You plan to vote in November?"
-
-"I do. For Judge Wells."
-
-"Friend of yours?"
-
-"He's a fair man."
-
-The reporter nodded and closed his notepad. "This'll run in tomorrow's edition. First Indian voter in Arizona Territory. People will want to know about this."
-
-I thanked him and left before he could ask more questions. Outside, the sun had climbed higher. The street noise pressed against me: wagon wheels, voices, the clang of a blacksmith's hammer. I walked through it all feeling like a man caught between two truths.
-
-The first truth: I was now a citizen with the right to vote.
-
-The second truth: I had gained that right by denying the very people whose story I intended to tell.
-
-
-
-On the road out of Prescott I passed the weathered sign that pointed toward Fort Whipple. Seeing the name tightened something behind my ribs. I kept my horse aimed toward home. Some memories must wait until a man can lift them without breaking.
-
-The ride home took most of the afternoon. I followed familiar roads through high desert that had witnessed more broken promises than I could count. By the time I reached the house, shadows stretched long across the yard.
-
-Chehata stood at the stove, stirring something that smelled of onions and salt pork. She glanced over her shoulder when I entered.
-
-"Well?"
-
-"I'm registered."
-
-She set the spoon down and turned to face me. Her eyes searched mine for what the news meant beyond the fact itself. "How do you feel?"
-
-I removed my hat and placed it on the table. "I don't know."
-
-She crossed the room and took my hands. Her fingers were warm from the stove. "Tell me."
-
-"I'm a citizen now. I can vote. They'll print it in the newspaper tomorrow. First Indian in the Territory." The words came out flat, drained of the pride they were supposed to carry. "But to get here, I had to tell them I severed tribal relations. I had to prove I was civilized enough to deserve rights other men are born with."
-
-"You didn't sever anything," she said quietly. "They did that for you a long time ago."
-
-"I know. But I still had to say the words."
-
-She squeezed my hands. "And now you'll use the rights those words bought you. You'll vote for men who listen. You'll write letters they have to answer because you're a citizen. You'll speak for the people who can't speak for themselves yet."
-
-I looked at her and saw the same fierce certainty that had drawn me to her years ago. She had never doubted that I could live in both worlds without losing myself in either. She believed I could be Mike Burns the citizen and still honor the boy who had to disappear so Mike could survive.
-
-"What if it's not enough?" I asked.
-
-"Then we keep trying." She released my hands and returned to the stove. "But first you eat. You've been traveling since dawn."
-
-I sat at the table and watched her move through the kitchen with practiced efficiency. The house smelled of woodsmoke and cooking food and the faint sweetness of wild tobacco drying in bundles near the window. It was home. Not the home I had known as a child, not the home the government tried to force on me at Carlisle, but the home Chehata and I had built together from the wreckage of everything that came before.
-
-This was the truth the Burke Act could not touch: I belonged here. Not because the government said I was competent, not because I had severed anything, but because Chehata and I had chosen each other and built a life that honored both who I had been and who I was becoming.
-
-
-
-The next morning a neighbor rode by with a copy of the *Prescott Weekly-Journal Miner*. The story ran on the second page under a headline that read: **FIRST INDIAN REGISTERS TO VOTE IN ARIZONA TERRITORY**.
-
-I read it aloud to Chehata while she mended one of the children's shirts.
-
-*"Mike Burns, an Apache Mohave Indian, became the first Indian in the Territory to take advantage of the Act of Congress of 1906, entitling educated Indians who have severed tribal relations to the full rights of citizenship. Mr. Burns, who attended Carlisle Indian School and served as an Army scout, registered at the Yavapai County Courthouse yesterday and intends to vote for Judge Ed. W. Wells in the upcoming gubernatorial election. Mr. Burns is the first of his race to achieve this milestone in Arizona."*
-
-Chehata looked up from her mending. "Apache Mohave?"
-
-"They got it wrong."
-
-"They always do."
-
-I folded the newspaper and set it aside. The reporter had recorded the facts but missed the truth. I was not Apache Mohave. I was Yavapai. My people had been trapped and slaughtered while the government called it a victory. My family had been erased while officers wrote reports praising their own efficiency. And now a newspaper celebrated my citizenship by erasing my identity one more time.
-
-But I had the registration card. I had the right to vote. And I had the determination to use that right in service of the people the newspaper could not be bothered to name correctly.
-
-"Save it," Chehata said, nodding toward the paper. "Someday our grandchildren will want to know their grandfather was first at something that mattered."
-
-I picked up the paper again and smoothed the creases. She was right. This was not the end of anything. It was a beginning.
-
-I had spent my childhood under a name I no longer spoke, learning to track deer and gather mesquite and listen to the stories elders told by firelight. I had spent my youth as Mike Burns, learning English and mathematics and how to survive in a world that wanted to remake me in its own image. I had spent my adulthood trying to reconcile the two, trying to be both Yavapai and citizen, both witness and participant.
-
-Now I had the legal right to speak. The question was whether anyone would listen.
-
----
-
-In November, I rode back to Prescott to cast my ballot. The courthouse was busier this time, crowded with men who took their citizenship for granted. I waited in line like everyone else. When my turn came, the clerk glanced at my registration card and handed me a ballot without comment.
-
-I marked my choice for Governor, Judge Ed. W. Wells, a man who had listened when others turned away, and folded the paper carefully. The ballot box was plain wood with a slot cut in the top. I slid the ballot through and heard it land softly on top of the others.
-
-One vote among hundreds. One voice in a chorus that rarely made room for voices like mine.
-
-But it was a start.
-
-Outside, the autumn air smelled of wood smoke and distant rain. I stood on the courthouse steps and looked out over Prescott's streets. Somewhere in this territory, Yavapai families were rebuilding lives on reservation land the government had promised them temporarily and would try to take away permanently. Somewhere, children were learning English in boarding schools designed to kill the Indian and save the man. Somewhere, elders were dying with stories no one had bothered to record.
-
-I could not save them all. I could not undo what had been done or bring back the dead or restore what had been stolen. But I could vote. I could write. I could witness.
-
-I could be the first.
-
-And if I was the first, others would follow. Slowly, painfully, against the current of a government that preferred us silent and invisible. But they would follow.
-
-I descended the steps and mounted my horse, the November sun warm across my shoulders. Beyond the edge of town the sign for Fort Whipple rose beside the road. In July, I had ridden past and let the ache settle deeper. Today, the lift in my chest from casting a ballot steadied me. I turned the reins toward the post.
-
-The road curved through granite outcroppings until the fort came into view with its whitewashed hospital and orderly rows of quarters. I left the horse near the parade ground and walked alone to the house where the Burnses had lived. The porch rail still bore the grooves of a boyhood spent learning how to stand straight, how to polish brass, how to live inside someone else's family. The windows stared back empty. I stayed on the path, close enough to feel the past rise but far enough to honor the distance time had put between us.
-
-Memories gathered like monsoon clouds. Annie correcting my place settings. Katie's doll abandoned on the steps. Captain Burns fastening my collar before inspection, his pride and my confusion braided together. Every kindness he had shown me was soldered to the violence that had made me his ward. Standing in that yard years later, I felt both at once, the love that kept me alive and the loss that shadowed it.
-
-I touched the porch post with my fingertips. "I made it this far, Captain," I whispered. I told him about the ledger, about the ballot slipped into the box, about the citizenship he had once promised would mean something. Ireland remained a dream neither of us reached, but I had kept moving, as he told me to.
-
-When the air grew cool, I returned to the horse and steered back toward the main road. The fort shrank behind me until it was only memory again.
-
-The ride home would take hours, but Chehata would be waiting. She always was. And tonight, when the children asked what I had done, I would tell them I voted.
-
-I would tell them their father was a citizen.
-
-And someday, when they were old enough to understand, I would tell them what that citizenship cost, and why it mattered.
+And when they did, we would be ready with shovels for the ditches, with voices for the hearings, and with pages of truth no one could ignore.

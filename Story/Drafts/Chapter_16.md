@@ -1,197 +1,179 @@
-# 16  |  CLIMB
+# 16  |  LESSONS
 
-### Mid-December 1872
-### Salt River, Arizona Territory
-We walked for two days before I understood what fear really meant.
+### c. 1870-1871
+### Superstition Mountains, Arizona Territory
+My uncle came for me before the sun cleared the eastern peaks.
 
-The first day was almost ordinary. We followed deer trails north through country I knew, passing landmarks I'd seen a hundred times. The twisted juniper that looked like an old man bending. The red rocks were stacked like a giant's cairn. The spring where we always stopped to fill waterskins when we traveled this direction.
+"Come, Hoomothya," he said, standing at the edge of our ramada. "Today you learn to see."
 
-My legs ached from keeping pace, and the small bundle grandmother had given me grew heavier with each mile, but I didn't complain. No one complained. The adults set a steady rhythm and we followed it, children and elders alike, our feet finding the path by instinct.
+I was awake before he spoke, had been waiting since first light turned the sky grey. I scrambled out from under the blanket, careful not to wake Nashta curled beside me. My mother looked up from the fire.
 
-We stopped once when the sun stood high, resting in the shade of a rock outcrop. My mother gave me dried meat and water. I chewed slowly, watching my father and uncle scan the horizon behind us, their eyes never still.
+"He's too young," she said, but quietly, the way she said things she knew wouldn't change.
 
-"Do you see them?" I whispered to my mother.
+"I was younger," my uncle said. "And his father agrees."
 
-"Hush. Eat."
+She studied my face for a moment, then reached out and touched my cheek. "Then go. Listen well."
 
-But I saw the tightness around her mouth, the way her hand kept touching the knife at her belt. She saw something. Or feared she would.
+My uncle carried his bow, the wood dark with use, the string taut. A quiver hung across his back. I had nothing but myself, small and quick, eager to follow.
 
-We moved again before I'd finished the meat.
+We walked north from camp as the sun rose, painting the canyon walls copper and gold. My uncle moved like water, his feet finding the quiet places between stones, his passing barely disturbing the dust. I tried to copy him, to place my feet where his had been, but I was clumsy. Twigs snapped under my weight. Gravel shifted and clicked.
 
-The second day was harder.
+He didn't tell me to be quiet. He just kept walking, smooth and certain, and I kept trying to match him.
 
-The land changed as we climbed. The low desert gave way to rougher country, scattered juniper and scrub oak replacing the saguaro and mesquite. The air cooled. The wind picked up, carrying the smell of pine from somewhere higher, somewhere we weren't going.
+The land rose as we climbed away from the river. Saguaros stood tall on the slopes, their arms reaching up like people frozen in prayer. A jackrabbit burst from behind a creosote bush, and my uncle's hand touched my shoulder, holding me still until the animal disappeared over a rise in four great leaps.
 
-We turned west into a canyon system I didn't know. The trails here were faint, barely visible, and sometimes my father stopped to study the ground before choosing which way to go. We were leaving the known paths. Going where travelers didn't go. Where pursuit would be hard.
+"Too fast," he said. "Too thin. We want deer."
 
-That's when I started to feel it. Real fear. Not the worried kind that came from hearing adults talk in the dark. But the kind that lived in your belly and made your breath come short. The kind that came from understanding, finally, that we were prey.
+We walked for a long time. The sun climbed, and the heat built, and my legs began to ache. But my uncle showed no sign of stopping, so I didn't either. Pride kept my feet moving when tiredness pulled at them.
 
-Nashta felt it too. I could tell by the way she stayed close to Mother, one hand always gripping fabric. She didn't run or play or even talk much. Just walked, her eyes too big in her thin face.
+Finally, where a small canyon opened between red rock walls, he stopped. His hand rose, fingers spread. I froze.
 
-When we stopped that night, there was no fire. Too dangerous, my father said. The smoke could be seen from miles away. So we huddled in our blankets, ate cold food, and shivered as the temperature dropped.
+He knelt and pointed to the ground.
 
-I lay between my parents, listening to the darkness. Strange sounds carried in the cold air. The yip of coyotes. The hoot of an owl. Something larger moving through brush somewhere down-canyon, its passage marked by the crack of breaking branches.
+"Come. Quiet."
 
-"Sleep, Hoomothya," my mother whispered.
+I crept forward and knelt beside him. At first, I saw nothing but dirt and scattered pebbles. Then his finger traced a shape in the dust, and I saw it: a split heart pressed into the earth, the mark of something that had passed this way.
 
-I closed my eyes but didn't sleep. None of us really slept that night.
+"Deer," my uncle said. "A doe. See how the toes spread? She's heavy. Maybe carrying a fawn."
 
-The third day, we reached the rim of Salt River Canyon.
+I leaned closer. The print was beautiful, clear as a drawing. Two crescents joined at the point, the edges sharp where her weight had pressed down.
 
-I'd never been here before. Never seen anything like it. The land just dropped away, the earth opening like a wound, revealing layered cliffs that fell hundreds of feet to the river below. The walls were gold, red, and grey, ancient stone that made me feel small and temporary.
+"How do you know it's a doe?"
 
-"There," my father said, pointing north along the canyon wall. "The cave is there. Two hours' walk, maybe three with everyone together."
+"Size. A buck's track is bigger, deeper. His hooves strike harder." My uncle's finger moved to another print, this one smudged and partial. "This is from yesterday. See how the edges crumble? Fresh tracks hold their shape."
 
-I couldn't see any cave. Just cliff face and empty sky and the distant thread of the river far below.
+He stood and moved ahead, following something I couldn't see. Then he stopped and pointed again. A pile of dark pellets scattered near a mesquite tree.
 
-We followed the rim north, moving slower now. The terrain was treacherous, loose rock and sudden drops hidden by brush. My grandmother needed help over the rough spots, and the smallest children had to be carried.
+"She stopped here. Ate the low pods, see?" He showed me where branches had been stripped clean while others, higher up, still hung heavy with fruit. "Deer don't climb trees."
 
-Finally, we stopped. My father and uncle moved to the edge and looked down. When they came back, my father's face was grim.
+I smiled despite myself.
 
-"We have to descend here. The trail is steep. Everyone needs to be careful."
+We followed the tracks deeper into the canyon. My uncle showed me where she'd scraped against a palo verde, where she'd paused to drink from a rocky depression still holding yesterday's rain. The land became a story written in dust and bent grass and stones turned over to show their darker undersides.
 
-Trail was a generous word for what we found. It was barely more than a series of ledges and handholds carved into the cliff face, dropping from the rim into a tilted landscape of broken rock and scattered vegetation. Below that, I could see what might have been a lava bed, dark stone jumbled and sharp. And beyond that, set into the canyon wall, maybe a third of the way down from the rim, a dark opening in the rock.
+"You have to see the small things," my uncle said. "The world talks to those who listen. A broken spider web. A bird that goes quiet. These things tell you what passed before you arrived."
 
-The cave.
+"What if I can't see it?"
 
-My uncle went first, testing each step. Then my father. Then they called up the first group: three adults, strong and steady. They descended slowly, their bodies pressed close to the rock, hands gripping anything solid.
+"Then you learn. Every day you look. Every day you see more." He glanced at me. "When I was your age, I saw nothing. My uncle had to point to tracks three times before I understood. Now I see them without thinking. Your eyes will learn."
 
-I watched them get smaller and smaller until they reached a wider ledge about halfway down. They waved. All clear.
+The canyon narrowed. We moved through dappled shade where cottonwoods grew near a seep in the rock. Water trickled, barely more than a whisper, into a shallow pool. My uncle knelt again.
 
-My mother adjusted her burden basket, redistributing weight. "You're next," she told me. "Stay close to the wall. Don't look down. If you need to stop, stop. No shame in being careful."
+Fresh tracks everywhere, pressed into mud. Deer had come here this morning, maybe just before dawn.
 
-My throat was too dry to answer. I just nodded.
+"She's close," my uncle said, his voice barely a breath. "Maybe bedded in shade. The sun is high. She'll be resting."
 
-When my turn came, I put my hands on the rock and started down.
+He tested the air, wet his finger, and held it up. "Wind is good. Coming toward us. She won't smell us if we're careful."
 
-The first few steps were the worst. The cliff face dropped away beneath me, and for a heartbeat I couldn't move, couldn't breathe. The world tilted. My fingers dug into stone.
+We moved like shadows then, slower than I'd ever moved. Each step took forever. My uncle's eyes swept the canyon ahead, reading the landscape the way my grandmother read the sky before rain. I tried to see what he saw: the dark spaces under overhanging rock, the thick brush where something might hide, the shimmer of heat on stone.
 
-"Keep going, Hoomothya." My uncle's voice floated up from below. "Just like climbing down from a mesquite tree. One step at a time."
+Then his hand touched my shoulder and squeezed. I looked where he was looking.
 
-I made my feet move. Found a crack for my toes. Shifted my weight. Moved my hand to a new grip. The rock was cold under my fingers, rough and solid. I focused on that. On the texture of stone. On the next handhold.
+At first, nothing. Just rock and scrub and the hard bright air. Then I saw her.
 
-Don't look down. Don't think about the empty air behind you. Don't think about falling.
+A deer, the color of the canyon itself, lying in shade beneath a jutting shelf of stone. Her head was up, ears turned forward, listening. She hadn't seen us. Hadn't smelled us. But she knew something was different. Some animal sense was warning her.
 
-My foot slipped.
+My uncle's bow came up in one smooth motion. He drew the string back, the movement so slow it seemed like growing instead of pulling. The deer's muscles bunched. She was going to run.
 
-For a terrible instant, I swung out from the wall, one hand the only thing keeping me from falling. Pebbles scattered, clicking against stone as they tumbled into emptiness. I heard my mother gasp above me.
+The arrow flew.
 
-Then my uncle's hand closed around my ankle, steadying me. "I've got you. Always three."
+It happened faster than I could follow. One moment, my uncle's bow was drawn, the next the arrow was gone, and the deer was on her feet, leaping. I saw the shaft buried behind her shoulder, saw her take three great bounds, then stumble. Then fall.
 
-My toes scrabbled against rock. Found purchase. My weight came back onto the wall.
+Then stillness.
 
-"Good. Keep coming."
+My uncle lowered his bow. He stood for a long moment without moving, his eyes on the place where the deer had fallen. Then he walked forward, and I followed, my heart hammering in my chest.
 
-I kept coming. Hand, hand, foot.
+She lay on her side, the arrow deep, her eyes already glazing. She was beautiful. Her coat was smooth, the color of sunset on canyon walls. Her hooves were small and perfect. Blood darkened the earth beneath her.
 
-When I finally reached the ledge where my uncle waited, my legs were shaking so hard I could barely stand. He pulled me close, his hand on the back of my head.
+My uncle knelt beside her and placed his hand on her neck. He spoke in Yavapai, words I knew were important even though I'd never heard them before. He thanked her for her life. He asked her spirit to forgive him for taking it. He promised nothing would be wasted.
 
-"You did well. Brave."
+Then he looked at me.
 
-I didn't feel brave. I felt like crying. But I swallowed it down and nodded.
+"She died so we can live. Remember that. Every part of her is a gift."
 
-One by one, the others descended. Some sure-footed, some terrified but determined. The women came down with burden baskets still on their backs, their balance perfect despite the weight. Grandmother came last among the elders, moving slowly but steadily, her old hands finding holds I couldn't see.
+I nodded, my throat tight. I wanted to look away from the blood but couldn't. This was life and death together, wrapped up in one moment. Food and grief. Necessity and gratitude.
 
-When everyone was on the ledge, we started across the lava bed.
+"Touch her," my uncle said. "Know what you're eating. Know what it costs."
 
-The dark stone was razor-sharp in places, broken and jumbled like some ancient violence had shattered the earth and left the pieces where they fell. We picked our way through, trying not to cut our feet on the edges, trying not to turn an ankle in the gaps between rocks.
+I reached out and laid my hand on her side. Still warm. Still soft. I could feel where her breathing had stopped, where the life had run out of her like water from a broken pot.
 
-I heard one of the babies crying, the sound thin and lost in the vast space of the canyon. A mother hushed it, but the crying didn't stop. Just got softer, more resigned.
+"Good," my uncle said. "Now help me."
 
-From the far side of the lava bed, we could finally see the cave clearly. It sat in the cliff face about a hundred and seventy feet above where we stood, a dark semicircle carved into pale stone. To reach it, we'd have to climb again, up a steep slope of loose rock and dirt, then scramble up the last section to the cave's opening.
+He showed me how to work. How to pull the arrow free, careful not to break the shaft. How to begin the field dressing, opening her belly with his stone knife, removing the organs we wouldn't eat. He did most of it, his hands quick and sure, but I helped where I could. Holding, steadying, watching.
 
-My father studied the approach, then looked back at all of us. Tired people. Scared people. Women, children, and elders who'd already climbed more today than they should have to.
+The work was hard, bloody, and necessary. This was how we survived. Not from stores or markets, but from the land itself, from animals who gave their lives so we could eat.
 
-"Rest here," he said. "Drink. Eat something. Then we make the last climb."
+When the deer was field-dressed, my uncle tied her legs together and hoisted her across his shoulders. She was heavy. I could see the weight in the way he shifted, finding balance.
 
-I found a flat rock and sat, my legs grateful for stillness. My mother sat beside me and handed me the waterskin. The water was warm, but I drank it anyway, feeling it ease my dry throat.
+"Can you carry the bow?" he asked.
 
-Around us, people settled into small groups. Quiet conversations, low-voiced. Someone was redistributing weight in the burden baskets, leaving the heaviest items here at the base to be carried up in stages. The men checked weapons, tested bowstrings, and inspected arrows. My uncle unwrapped one of the three rifles our band had acquired through trade, precious things, kept for defense, never wasted on hunting when arrows worked just as well. He checked the ammunition and counted what little we had.
+Pride swelled in my chest. I took the bow, felt its weight, the smoothness of the wood. My uncle's weapon, trusted to me.
 
-Preparing for siege.
+We walked back toward camp. The sun was past its height now, beginning its long fall toward the western mountains. My uncle moved steadily despite the deer's weight. He didn't complain. Didn't stop to rest. This was what men did. They hunted. They carried. They provided.
 
-Because that's what this was, I realized. We weren't just hiding. We were preparing to be trapped. To wait out whatever was coming.
+"Did you see the shot?" he asked after a while.
 
-I looked up at the cave mouth, dark against the pale cliff. From here, it looked like safety. Like refuge. A place the soldiers' horses couldn't reach. A place we could defend. But even from this distance, I could see the lie; it wasn't a cave so much as the mountain's cupped palm, a wide mouth with barely enough throat to swallow us. Shelter by name only, open to the sky, yet still the only ledge beyond the reach of horses.
+"Yes."
 
-But something about it made my skin prickle. Something about the way it gaped open, like a mouth waiting to swallow us.
+"Where did the arrow go?"
 
-"Hoomothya." My father crouched beside me. "When we get to the cave, you stay near your mother. Stay quiet. If I tell you to do something, you do it immediately. Understand?"
+I thought back, trying to picture it. "Behind the shoulder."
 
-"Yes, father."
+"Why there?"
 
-He studied my face. "You're doing well. Being strong. I'm proud of you."
+"I don't know."
 
-The words made my chest tight. I wanted to be strong. Wanted to make him proud. But I was also terrified, and the effort of hiding it was exhausting.
+"The heart and lungs. Quick death. If you shoot too far back, the animal suffers. Too far forward, you might only wound it. Behind the shoulder, angled toward the far shoulder, that's the kill shot. Remember."
 
-"I'm scared," I said quietly.
+"I will."
 
-"Good. Fear keeps you alert. Just don't let it make you freeze."
+"Someday you'll make this shot. Someday you'll carry deer to feed your family. But first you learn to see. Learn to track. Learn to move quiet. The shooting is last."
 
-"How do you not freeze?"
+"When can I practice with the bow?"
 
-He was quiet for a moment. Then he said, "You remember what you're protecting. You think about the people you love. And you decide their lives matter more than your fear."
+He smiled. "Soon. Your father is making you a small one. But first, the tracks. Can't shoot what you can't find."
 
-I looked over at my mother, at grandmother, at Nashta sitting nearby with her mother. All of them trusting my father, trusting the men, trusting that this cave would keep them safe.
+We walked in silence for a time. Then he said, "You did well today. Kept quiet. Paid attention. Your grandmother will be pleased."
 
-"Will the soldiers find us here?" I asked.
+"Will there be enough for everyone?"
 
-My father's jaw tightened. "I don't know. Maybe. But if they do, they'll have to come down that same cliff we just climbed. They'll have to cross that lava bed. They'll have to climb to the cave entrance while we're above them." He paused. "If they come, we have the advantage."
+"For tonight, yes. And some to dry for later. The whole camp will eat."
 
-If. The word was supposed to be reassuring. But I heard what lay beneath it.
+I thought about that. One deer, shared among all the families. Everyone would have a little. The hunter gained prestige, but the meat belonged to the community. That was the way. That was how we survived together.
 
-When.
+When we came down into the canyon where our camp lay, people saw us coming. Children ran to meet us, Nashta among them, her eyes wide at the deer across my uncle's shoulders. The men came next, helping him lower the deer to the ground near the butchering area. The women gathered, already planning how to cook it, what parts to dry, what to eat fresh.
 
-We started the final climb as the sun began its descent toward the western rim. The slope was steep, the footing treacherous. Loose rock skittered away under our feet, tumbling down the incline and clattering against the lava bed below.
+My grandmother stood near the fire, watching. When I came to her, she touched my head.
 
-I climbed on my hands and knees in places, grabbing at scrub brush for handholds, digging my toes into the soft dirt. My breath came hard. The bundle grandmother had given me kept slipping, and I had to stop twice to retie it.
+"You went with your uncle."
 
-Above me, I could see people disappearing into the dark mouth of the cave. Their silhouettes vanished into shadow, swallowed by the stone.
+"Yes."
 
-When I finally pulled myself over the lip and into the cave, I had to stop and let my eyes adjust. After the bright canyon, the interior was almost black. Gradually, shapes emerged. People moving in the dimness. The curve of the cave ceiling, lower than I'd expected. The rough floor, uneven and dusty.
+"What did you learn?"
 
-The space was bigger than it had looked from below—maybe sixty or seventy paces wide, but not deep. Forty feet at most from the entrance to the back wall. An alcove, really. A shelter, not a true cave.
+"How to see tracks. How to follow. How to..." I paused, trying to find words for the feeling of my hand on the deer's warm side. "How to be grateful."
 
-But it would hold us all. That was something.
+She nodded slowly. "Then it was a good day."
 
-People were already organizing the space. The back wall for the elders and youngest children, the warmest spot, farthest from the wind. The sides for families. The front, near the entrance, for the men who would keep watch.
+My father appeared, carrying the bow he'd been working on. It was smaller than my uncle's, the wood still pale and new. Not finished yet, but taking shape.
 
-My mother found a spot for us along the right wall. She set down her burden basket and immediately started arranging our belongings, creating a small territory in the larger space. My grandmother settled nearby, her back against the stone, her breathing labored from the climb.
+"Soon," he said, seeing me look at it. "A few more days and you can practice."
 
-I stood at the cave entrance and looked out.
+My uncle was surrounded by the other men now, telling the story of the hunt. I heard him describe the tracking, the careful stalk, the shot. He didn't mention me by name, but when he said, "The boy did well," my father's hand touched my shoulder.
 
-The view was enormous. The canyon spread below, all red and gold stone layered like time itself. The river was a dark line far below, barely visible in the late afternoon shadows. The opposite rim caught the last sunlight, glowing like embers.
+That night we ate deer meat roasted over the fire. The smell filled the canyon, rich and savory. My uncle got the heart, as was proper. The hunter who made the kill got first choice, though he could share it if he wished. He cut it into pieces and gave some to my father, some to the elders, some to me.
 
-It was beautiful.
+"Eat," he said. "It will make you strong. Make you brave."
 
-I could see the whole approach from here, the lava bed we'd crossed, the ledge where we'd rested, even part of the rim trail we'd descended. Anyone coming would be visible long before they arrived. We'd see them from miles away.
+The meat was dense and dark, iron-tasting, warm from the fire. I chewed slowly, feeling the strength of it, the life passing from the deer into me. Around the fire, people talked and laughed. Grandmother was singing, her voice carrying the story of a hunter from the old days. The children chased each other between the wickiups, their bellies full.
 
-But they would see the cave too. A dark mark on the cliff face. Obvious, if you knew to look.
+This was what the deer had given us. Not just food, but this: togetherness, story, life continuing.
 
-"Come away from the edge," my mother called. "Help me with this."
+I fell asleep that night thinking about tracks in the dust, about the arrow flying true, about my hand on the deer's warm side. In my dreams, I walked the canyon with my uncle, following signs only I could see. The land spoke and I understood its language. I was learning to see.
 
-I turned back to the interior gloom and went to help her spread our blankets. Behind me, the canyon darkened as the sun fell. By the time full dark came, we'd made the space as livable as we could.
+I was learning to be Yavapai.
 
-No fire tonight either. Too visible. So we sat in the cold and the dark and ate dried food and tried not to think about how exposed we were. How visible. How easy to find if someone was looking.
+And I didn't know that everything I was learning would soon be something I could only remember. I didn't know that the tracks I learned to follow would become tracks in memory, the stories my uncle told would become stories I told myself in the dark, alone.
 
-Around me, I could hear the sounds of seventy-six people trying to settle into stone. Babies fussing. Adults murmuring. The shuffle of bodies finding comfortable positions on hard ground. Someone coughing, the sound echoing off the cave walls.
+For now, I was just a boy who'd gone hunting with his uncle. Who'd carried the bow back to camp. Whose belly was full of deer meat and whose heart was full of pride.
 
-I lay between my parents, wrapped in my blanket, and stared at the cave ceiling just barely visible above me. The stone was pale where the rock had flaked away, darker where smoke from old fires had stained it.
-
-Other people had used this cave before us. Other Yavapai families, fleeing other dangers. I wondered if they'd felt this same fear. This same sense of being hunted.
-
-"Sleep," my mother whispered, the same word she'd said every night of this journey.
-
-I closed my eyes.
-
-Outside, the canyon was filled with darkness and silence. The kind of silence that feels like waiting. Like the whole world holding its breath before something terrible happens.
-
-I slept fitfully, waking often to the sound of nothing. To the weight of stone above me. To the knowledge that we'd run as far as we could run, climbed as high as we could climb.
-
-There was nowhere left to go.
-
-This cave was our last refuge.
-
-And in the darkness, I dreamed of soldiers climbing toward us, their boot prints clear in the soft earth, their rifles gleaming in the dawn light.
-
-I dreamed of being found.
+For now, that was enough.

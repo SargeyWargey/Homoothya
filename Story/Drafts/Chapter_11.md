@@ -1,185 +1,169 @@
-# 11  |  MANUSCRIPT
+# 11  |  PROMISES
 
-### Early 1922
-### Fort McDowell Region
-The manuscript sat in its leather portfolio on the table, pages yellowed at the edges from years of handling. I had completed it three weeks ago, the final sentence written in lamplight while Chehata slept and the house creaked in the winter cold. Now it waited like a living thing, patient and accusing.
+### 1905-1909
+### Fort McDowell, Arizona Territory
+The evening settled over Fort McDowell with the kind of quiet that follows hard work. The children had scattered to neighboring fires, drawn by the promise of stories and roasted corn. Through the open doorway, I could hear Solomon's laugh mixing with his cousins' voices, the sound drifting across camp like smoke. It was the same calm that had followed the hearing in Phoenix, when voices and ink held the agents at bay. Sitting in that quiet now, I felt how our stories could guard the land as surely as any rifle.
 
-"Read it to me again," Chehata said. She sat across the table with mending in her lap, but her hands were still. "The part about the March."
+Chehata sat across from me, her hands busy with mending. The lamplight caught the silver threading through her hair. We had spent the day clearing silt from the irrigation ditches, our backs bent to the same labor that had sustained our family for nearly a decade. My shoulders ached in the familiar way that meant honest work, the kind that left you tired but whole.
 
-I opened the portfolio and found the pages. My handwriting covered them in neat rows, the product of Carlisle training and decades of practice. The words looked harmless on paper. Black ink. White paper. A simple record of events that had shattered lives.
+I reached for the bundle of pages I had kept wrapped in oilcloth beneath our bedroll. The papers rustled as I unfolded them, edges worn from handling. They were the pages born from the ledger entries I'd begun after Carlos's last letter, testimonies gathered beside cook fires and irrigated fields. Each sheet pressed proof against my palm that the confidence I'd found before the committee had not faded. Chehata's needle paused mid-stitch.
 
-I read aloud.
+"Is that what you've been writing?" she asked.
 
-*"In February 1875, General Crook broke his promise. The Yavapai and Tonto people who had settled at Rio Verde Reservation were ordered to leave their homes and march to San Carlos. They had been promised they could stay 'as long as they lived.' The promise lasted two years.*
+I nodded. My throat felt tight. "I need you to tell me if I captured it right." The words came out rougher than I intended. Power had come when I faced congressmen, but this felt more fragile; these pages held the memories of those who trusted me. "You know these stories. Your family lived through San Carlos. Your grandmother walked the March. Did I tell it true?"
 
-*I was with the Army escort. I was ten years old, traveling with Lieutenant Bishop who had taken responsibility for me after Captain Burns died. I watched the people walk, nearly two thousand of them, while I rode beside the soldiers. I was fed while they went hungry. I was warm while they suffered cold. I witnessed everything, and I could do nothing.*
+She set the mending aside and straightened, giving me her full attention. The lamplight made shadows of the lines around her eyes, lines earned from raising six children, from years of drought and struggle, from carrying the weight of what our people had endured.
 
-*On the East Verde River, violence erupted between the Tontos and the Apache Yumas. Thirty-five people died. Al Sieber, the chief of scouts, was shot and crippled. I saw it all from my position with the Army.*
+"Read it to me," she said.
 
-*When we reached San Carlos, the people were left among strangers, their homeland abandoned. I heard a child singing: 'Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land.'*
+I smoothed the first page against the table. My hands shook slightly. These were not just words. They were the testimony, the accounting of promises broken and lives lost. If I had failed to honor them, I didn't know how I would face her.
 
-*I came back. I am writing this so my people's suffering will not be forgotten."*
+"Mike." Chehata's voice was gentle. "Read."
 
-Chehata's eyes were wet when I looked up. She wiped them quickly with the back of her hand.
+I took a breath and began.
 
-"It's good," she said. "It's true. The White People need to hear this from you."
+"I set this down so the world may know. The White People have heard only one side."
 
-I closed the portfolio. "They don't want to hear it."
+"The first time General Crook spoke the words, I carried a pitcher of water taller than my forearm." I paused, remembering the weight of the ceramic, the way it sloshed against my chest. "The general stood in the parade ground at Camp Verde with officers clustered around him and Yavapai leaders gathered across the packed earth."
 
-"Then make them listen."
+Chehata leaned forward slightly.
 
-I had tried. God knows I had tried.
+"He lifted his hands and told them they could live at Rio Verde as long as they lived." I looked up from the page. "I was just a boy. I was standing near the doorway of Captain Burns's office. But I heard him say it."
 
+"My grandmother told me about that promise," Chehata said quietly. "She said everyone believed it. They thought, finally, they could rest." Her jaw tightened. "They were wrong."
 
+I continued reading. The words described the months that followed: the wagons arriving with flour and coffee, the fields planted, the reports of wheat and barley harvested. I read about Captain Burns's ledgers, the careful accounting of every pound issued, the officers praising the farming success.
 
-The first letter went to Sharlot Hall in January 1910, twelve years ago. I had met her once at a gathering of territorial historians. She had listened when I spoke about Yavapai history, had taken notes in a leather journal, had looked at me like my words mattered. So I wrote to her.
+"I wrote here: 'They proved they could do everything asked. It didn't matter.'" I stopped, uncertain. "Did I say that too harshly?"
 
-*Dear Miss Hall,*
+Chehata's eyes flashed. "Not harsh enough. Say it again, louder. They did everything the Army asked. They surrendered. They farmed. They raised crops to feed themselves, so the government wouldn't have to. And still..." She stopped, pressing her lips together. "Keep reading."
 
-*I am writing to ask your help in finding a publisher for my manuscript about the Yavapai people. I was present at Rio Verde Reservation and the March to San Carlos in 1875. I witnessed many events that the official records do not tell correctly. The White People have heard only one side of what happened to my people. I believe this story should be published so the truth can be known.*
+I read about the sickness. About the epidemic that swept through Rio Verde in those first two years, killing nearly half the people gathered there. My voice caught when I reached the part about Dr. Williams.
 
-*I have documented everything I witnessed: the promises made, the promises broken, the suffering of my people during removal and afterward. I served in the U.S. Army and attended Carlisle School, so I can write in English that your readers will understand. But I am writing from the Yavapai perspective.*
+"The people said Dr. Williams had poisoned them." I looked at the page, at my own handwriting documenting the accusation. "I heard the whispers in the officers' quarters. I was a child. I could not help my people. I could only watch them die from a distance."
 
-*I enclose the first section of my manuscript for your review. I would be grateful for any assistance you can provide.*
+"You were a child," Chehata said. Her hand reached across the table and covered mine. "But now you're writing it down. That's how you help. Keep reading."
 
-*Respectfully,*
-*Mike Burns*
+I read the names: Grandma Dashkoda, Uncle Wahya, Mary Johnson, and John Williams. The survivors who had told me their stories by firelight, their voices threaded with grief even decades later. They had described the smell of orange blossoms before the sickness came, the taste of wheat they had grown themselves, the sound of children burning with fever through the night.
 
-Her reply came two months later. She was kind, her words carefully chosen.
+"Close to half the people at Rio Verde were gone," I read. "Disease had done what bullets had not."
 
-*Dear Mr. Burns,*
+Chehata's hand tightened on mine. I could feel the calluses on her palm, earned from years of grinding corn and hauling water. "My grandmother's sister died in that sickness," she said. "Her name was Kamala."
 
-*Thank you for sharing your manuscript. Your account is valuable and important. The perspectives of Native witnesses to these events must be preserved.*
+I picked up my pencil and wrote the name in the margin. Kamala. Another name for the accounting the government would never make.
 
-*However, I must be honest with you about the challenges you will face. Publishers in the East are not interested in Native perspectives on Indian wars, especially accounts that contradict official Army records. They prefer stories of "successful" assimilation, not testimony about government failures and broken promises.*
+"What came next?" Chehata asked, though we both knew. The promise broken. The march.
 
-*I will continue to inquire, but I wanted you to know the difficulty of what you are attempting. Do not stop writing. Even if publication proves impossible, your manuscript should be preserved. I would be honored to house it in my collection if you would permit it.*
+I turned the page.
 
-*With respect and admiration,*
-*Sharlot M. Hall*
+"'As long as they lived' became two years."
 
-I understood what she was telling me. The story I had written was not the story white publishers wanted to buy. They wanted Indians who praised their civilizers, not Indians who documented their own people's destruction.
+The words hung between us like smoke. Chehata's face hardened.
 
-But I kept trying.
+"The day the column formed, frost clung to the shaded side of the adobe wall," I read. "The people stood with bundles tied in blankets. Some carried clay pots, some carried tools, all carried the weight of disbelief."
 
+I described the officer's announcement: the new order to march to San Carlos, the second promise that if they behaved, they could return in five to seven years.
 
+"I knew, even at age ten, this was a lie."
 
-Over the next decade, I sent queries to publishers in New York, Boston, Chicago. Each letter was carefully composed, explaining my unique position as witness and my education that allowed me to write for white audiences. Each letter emphasized the historical importance of a Native account of events that had only been told from the Army perspective.
+I continued. The words described the morning the march began: the smell of cedar bundles and tanned hides, the soldiers reeking of oil and gunpowder. The wagons loaded with supplies but not carrying people. Everyone walked.
 
-The rejections arrived with predictable regularity.
+My voice roughened as I read the next part.
 
-*We do not publish accounts of Indian conflicts.*
+"I traveled with the soldiers who forced the march. I was fed while my people starved. I rode while they walked. I was warm while they suffered."
 
-*Our readers prefer forward-looking stories about Native progress, not dwelling on past grievances.*
+I had to stop. The words blurred on the page. Twenty days. Snowmelt turning the road to mud. The rations dwindling. Children collapsing. The father, who asked for wagon space for his dying son and was refused.
 
-*While your manuscript shows competence, we cannot find a market for such material.*
+"I could do nothing," I read, barely above a whisper. "I was ten years old, in the care of the men who were destroying my people's lives."
 
-*The events you describe are of limited interest to general audiences.*
+"But you remembered everything," Chehata finished for me. "You remembered, and now you're writing it down. Keep reading, Mike. This is important."
 
-One editor was more blunt: *Our readers are not interested in reading Native accusations against the U.S. Government. Such material is divisive and unsuitable for publication.*
+I read about crossing the Verde River in water cold enough to numb feet. About the girl who nearly drowned. About rations spoiling, flour spilling into the dust, people chewing parched corn while soldiers drank coffee every morning.
 
-I kept every letter. They accumulated in the portfolio with the manuscript, a paper trail of rejection. Chehata watched me read them and saw how each one carved a little deeper.
+Then I reached the East Verde.
 
-"Maybe you're writing for the wrong audience," she said one evening after I had read another refusal.
+"Tension had simmered for miles between Tonto families and the Apache Mojaves and Yumas," I read. "Old grievances rubbed raw under hunger and fatigue. As we halted to refill canteens, a shout cracked through the air."
 
-"Who should I write for, then?"
+I described the fight that erupted: the chaos, the violence, soldiers trying to force separation. Al Sieber riding into the fray and taking a bullet that crippled him for life. The thirty or more Tontos who lay dead on the rocks by the time officers regained control.
 
-"Our children. Our grandchildren. Your cousin Carlos." She set her sewing aside. "You're trying to convince the White People that they should care about what they did to us. But maybe that's not the point. Maybe the point is making sure our people remember, so they can tell their children."
+"We marched again before the earth could cool," I read.
 
-"Carlos said I should publish it. He said our story needs to reach beyond our own people."
+Chehata had gone very still. "My uncle was there," she said finally. "He saw that fight. He said the blood ran into the river, and the water turned red downstream. He said they didn't even have time to bury the bodies properly."
 
-"Carlos fights in newspapers and courts. You fight with witness." She reached across the table and covered my hand with hers. "Both matter. But maybe yours matters most to those who come after us, whether it's published or not."
+I added another note to the margin. Her uncle's testimony. Another witness to add to the accounting.
 
-I looked at the manuscript. Three hundred pages of careful documentation. Names, dates, places. My testimony and the testimony of elders who had survived what I had witnessed from my protected position with the Army. It was the most complete account of Yavapai suffering in the 1870s that existed.
+The pages described the rest of the journey: sleet that stung skin raw, children learning to walk in step with soldiers or risk a rifle butt to the shoulders, elders wrapped in every scrap of cloth they owned. The prayers whispered for mountains and rivers and ancestors.
 
-And no one would publish it.
+"The people walked across the boundary in silence," I read. "An official from the Indian Bureau stood waiting with a ledger. He counted heads as if the march had been an inventory exercise."
 
-"I'm tired," I admitted. "I spent years writing this. I thought if I could just get it down on paper, get it into print, then it would matter. Then the truth would be recorded where it couldn't be erased."
+Chehata made a sound low in her throat, anger and grief mixed together.
 
-"It's already recorded," Chehata said. "You wrote it. I've heard you read it. Our children have heard pieces. The elders you talked to, they know you documented their words. That's not nothing."
+I reached the end of the march section, the words I had written from memory, from the ache that had lived under my ribs for thirty years.
 
-"But if it just sits in a drawer, what good is it?"
+"Good-bye, my homeland, and water, and trees, and rocks. There is no chance that I shall live long enough to come back to this land."
 
-"Then it sits in a drawer until someone is ready to hear it." Her voice was firm. "You did your part. You witnessed, and you wrote it down. That's what Carlos asked you to do. That's what you owed to your people."
+My voice broke on the last words. I had whispered them as a child standing on the dry ground of San Carlos, certain I would never see the Verde again.
 
-I wanted to believe her. But the weight of those rejection letters pressed against my chest like stone.
+"But I was wrong," I read through the tightness in my throat. "I did come back. And I am writing this so my people's suffering will not be forgotten."
 
+Silence filled the space between us. Outside, someone laughed at a neighboring fire. The ordinary sounds of life continuing felt strange against the weight of what I had just read.
 
+"You came back," Chehata said finally. Her eyes were wet. "We came back. That's our victory."
 
-That night I couldn't sleep. I lay beside Chehata listening to her breathing and thinking about the manuscript. All those hours of writing by lamplight, stealing time from paid work we needed. All those interviews with elders, asking them to relive painful memories so I could record their testimony. All those drafts, revising until my hand cramped and my eyes burned.
+I read the final section, the testimonies I had gathered from survivors who had told me what I couldn't see as a child. The years at San Carlos. The starvation. The diseases. The families are torn apart. The dead buried far from their homeland.
 
-For what?
+"I set down every name they gave me," I read. "Every person who died because of broken promises. This is the accounting the government will never make, so I make it."
 
-For a stack of paper that publishers found "unsuitable."
+"My grandmother's sister," Chehata said again. "Kamala. She died at San Carlos in 1876. Add her name."
 
-I rose quietly and went to the table. The manuscript sat where I had left it. I opened the portfolio and read the first page by moonlight.
+I wrote it carefully below the others. The list grew longer with each conversation, each story shared, each memory entrusted to my keeping.
 
-*This is my testimony. I am Mike Burns. I was born among the Yavapai. I was present when General Crook made his promises. I was present when those promises were broken. I was present during the March of Tears from Rio Verde to San Carlos. I witnessed the suffering of my people, and I am writing this so their story will not be forgotten.*
+"I witnessed the promises made," I read. "I witnessed the promises broken. I witnessed my people's exile. Now I witness their return to the Verde River. I am writing this because I am the only one living who was present at Rio Verde, present on the March, and present now at Fort McDowell."
 
-The words still felt true. But they also felt futile.
+I paused before reading the final line.
 
-I heard Chehata rise and felt her hand on my shoulder.
+"This is my testimony. Let the White People read it and know what was done."
 
-"Come back to bed."
+I set the pages down. My hands were shaking again. The lamplight flickered, making shadows dance across Chehata's face.
 
-"I keep thinking about what you said. About Carlos."
+"Did I tell it true?" I asked.
 
-She pulled a chair close and sat beside me. "What about him?"
+For a long moment, she didn't answer. She stared at the pages spread across the table, testimony written in English letters she couldn't read but knew in her bones. Every word represented someone she had lost, something taken, some promise broken. Finally, she looked up and met my eyes.
 
-"He's coming back to Arizona next month. Moving to Fort McDowell like he always said he would." I touched the manuscript. "Maybe I should talk to him about this. He knows how to get Native voices heard. He's been publishing *Wassaja* for years, fighting the Indian Bureau, making noise in ways I never could."
+"You told it true," she said. "This is what happened. This is what they did to us."
 
-"He's your cousin. He'll help if he can."
+Relief flooded through me so strongly I had to close my eyes. "I wanted to honor what they suffered. What we all suffered."
 
-"He'll tell me the same thing everyone else has. That white publishers don't want Indian testimony about atrocities."
+"You did." Her voice was firm. "You witnessed it from a strange place, with the Army but not of them. Your heart with your people, but your body with the enemy. That makes your testimony powerful. You saw both sides. You can tell the White People what they did because you stood beside them when they did it."
 
-"Maybe." She squeezed my shoulder. "Or maybe he'll see something you're missing. He's been fighting this battle longer than you have. He knows how the system works."
+I hadn't thought of it that way. The shame of my position during the march and the guilt of being fed while my people starved were burdens I carried. But Chehata was right. My strange position gave my testimony weight. I could document what I witnessed from inside the Army's ranks, things the people being marched couldn't have seen or known.
 
-I closed the portfolio. "He's also dying. His letter said he's coming home to be with the people. That's what you do when you know time is running out."
+"Without you and your family teaching me what I'd lost," I said, "I couldn't have written this. I wouldn't have known enough to tell it right. The language, the stories, the names: your grandmother gave me those. Your mother, your aunts. They filled in what the Army took from me."
 
-"Then talk to him while you can." Her voice was gentle. "Show him what you've written. Ask his advice. Maybe he can help. Maybe he can't. But at least you'll have tried everything."
+"And now you're giving it back," Chehata said. She gathered the pages carefully, stacking them as if they were sacred objects. "This needs to be published, Mike. The White People need to read what they did to us. What they took from us. What we survived despite them."
 
-I looked at her. Even in the dim moonlight I could see the determination in her face. She had supported this work for years, had managed the household while I wrote instead of taking paying jobs, had believed the witness mattered even when publishers didn't.
+"I'll find a way," I said. "I have to. Carlos is shouting at Congress through his journal. We're proving ourselves here on this land. But someone needs to tell them what it cost us to get back here. What we lost. Who we lost."
 
-"What if he reads it and tells me to give up?"
+"Write it all down," she said. "Every name. Every broken promise. Every mile of that march. And then make them publish it."
 
-"He won't. He's spent his whole life fighting to get Native voices heard. He won't tell you to stop now." She stood and pulled me to my feet. "But you need to sleep. Carlos won't be here for a month. Come to bed."
+"I will." The determination settled into my chest, solid and sure. "I'll make them hear."
 
-I let her lead me back to our room. But I lay awake long after she had fallen asleep, thinking about my cousin who had chosen the platform while I had chosen the community, who had fought in newspapers while I had fought in letters and testimony, who had made his voice impossible to ignore while mine had been rejected by every publisher who heard it.
+She rose and moved around the table, setting the pages carefully aside before resting her hand on my shoulder. "You're not just writing for the White People," she said quietly. "You're writing for our children. For Solomon and Carlos and Katie and Charlotte and Lula and Josie. So they'll know where they come from. What their grandparents survived. Why we fight so hard to stay here."
 
-Maybe he would know what to do with a manuscript the white world didn't want.
+I covered her hand with mine. She was right. This testimony wasn't just about the past. It was about the future, about making sure our children and their children would know the truth. That they would understand why this land, this river, this home mattered enough to fight for.
 
-Or maybe he would confirm what I already suspected: that I had spent twelve years writing a truth no one was ready to hear.
+Through the doorway, I could see the cook fires burning across Fort McDowell. Families gathered in the same spots where their grandparents had camped before the Army forced them away. The irrigation ditches we had cleared ran with water again, feeding fields of corn and wheat. The river that had called us home for generations still flowed through the desert, waiting for us to return to it.
 
+We had come back. Despite the broken promises, despite the disease and death and exile, despite everything the government had done to erase us, we had come back.
 
+And I would write it all down so no one could ever say it didn't happen.
 
-Three weeks later, word reached Fort McDowell that Carlos was back in Arizona. He had settled into a small house on the reservation, just as he had promised. He was home.
+"Come," Chehata said, pulling me to my feet. "The children will be home soon. Tomorrow, you can add the names I gave you. Tonight, just rest."
 
-I found Chehata grinding corn in the morning light. She looked up when I entered.
+But I knew I wouldn't rest. Not completely. The testimony sat on the table between us like a living thing, demanding to be finished, to be shared, to be heard.
 
-"You're going to see him."
+I would rest when it was done. When every name was recorded, every broken promise documented, every mile of suffering accounted for.
 
-"How did you know?"
+I would rest when the White People could no longer pretend they didn't know what they had done.
 
-"You've been staring at that manuscript for three weeks. You're either going to burn it or show it to Carlos. I'm hoping it's the second one."
-
-I picked up the portfolio from its place on the shelf. It felt heavier than it should, weighted with years of work and rejection.
-
-"What if he can't help?"
-
-"Then at least he'll have read it. At least he'll know what you witnessed and what you wrote." She set the grinding stone aside and wiped her hands on her apron. "Go. Talk to your cousin. Find out what he thinks."
-
-I tucked the portfolio under my arm and headed for the door. Then I stopped.
-
-"Thank you."
-
-"For what?"
-
-"For believing this mattered. For supporting me when I should have been working instead of writing. For listening to me read it a hundred times. For suggesting I talk to Carlos." I met her eyes. "For everything."
-
-She smiled, and for a moment I saw the young woman I had married thirty-four years ago, fierce and certain and unafraid.
-
-"Go," she said. "Before you talk yourself out of it."
-
-I walked out into the February morning carrying twelve years of work and hope I didn't quite believe in anymore. The path to Carlos's house was well-worn already, neighbors visiting the famous doctor who had finally come home. I followed it through mesquite and rocks, the portfolio tucked tight against my chest.
-
-My cousin was waiting. And maybe, just maybe, he would see what I couldn't: a way to make this witness matter beyond the walls of my own disappointment.
+Not before.

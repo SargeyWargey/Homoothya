@@ -1,6 +1,6 @@
 # Author's Note
 
-This story was born from my years in Arizona, and from a relationship that pulled me deeper into the landscape. Most weekends and evenings I'd find myself hiking through the Bradshaw Mountains and across mesas, looking for the traces people left behind: petroglyphs carved into stone, rocks stacked to mark old paths and dwellings. Standing in front of these remnants, I would think about the hands that made them and the lives that moved through these same places. That curiosity drove me to read their stories, and to research who they were.
+This story was born from my years in Arizona, and from a relationship that connected me deeper into the landscape. Most weekends and evenings I'd find myself hiking through the Bradshaw Mountains and across mesas, looking for the traces people left behind: petroglyphs carved into stone, rocks stacked to mark old paths and dwellings. Standing in front of these remnants, I would think about the hands that made them and the lives that moved through these same places. That curiosity drove me to read their stories, and to research who they were.
 
 During that research, I came across the manuscript of a Native American man named Mike Burns. His story immediately grabbed hold of me. I read everything I could about this man, his cousin Carlos, and the Yavapai people. I came away with a conviction: his is a story that deserves to be told to a wider audience.
 

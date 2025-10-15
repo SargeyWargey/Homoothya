@@ -4,7 +4,7 @@
 ### Fort McDowell Indian Reservation, Arizona
 The blank pages stare at me like the past waiting to swallow me whole.
 
-I sit at my table as the afternoon light slants through the window, turning the dust in the air to gold. My hands rest on either side of the paper: weathered hands, scarred knuckles, fingers that know the weight of a rifle and the shape of mesquite beans. Hands that have written letters for my people to the Indian agents, that have signed my name at the polling place, that have held graphite a hundred times trying to find the first word.
+I sit at my table as the afternoon light slants through the window, turning the dust in the air to gold. My hands rest on either side of the paper: weathered hands, scarred knuckles, fingers that know the weight of a rifle and the shape of mesquite beans. Hands that have written letters for my people, that have signed my name at the polling place, that have held graphite a hundred times trying to find the first word.
 
 Today I will write it.
 

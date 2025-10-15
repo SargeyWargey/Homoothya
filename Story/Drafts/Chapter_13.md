@@ -1,91 +1,185 @@
-# 13  |  MESQUITE HARVEST
+# 13  |  MANUSCRIPT
 
-### c. 1870-1871
-### Salt River region
-The earliest morning I remember best, I was small enough to climb.
+### Early 1922
+### Fort McDowell Region
+The manuscript sat in its leather portfolio on the table, pages yellowed at the edges from years of handling. I had completed it three weeks ago, the final sentence written in lamplight while Chehata slept and the house creaked in the winter cold. Now it waited like a living thing, patient and accusing.
 
-My grandmother's voice rose from below, patient as the sun. "Higher, Hoomothya. The sweetest pods grow where the branches are thin."
+"Read it to me again," Chehata said. She sat across the table with mending in her lap, but her hands were still. "The part about the March."
 
-Hoomothya means "Wet Nose" in our language. Grandmother named me that the day I was born,  I cried so hard my whole face shone. Sometimes I wished for a fiercer name, but when she called up to me from the roots of the mesquite, the word felt like warm hands on my back.
+I opened the portfolio and found the pages. My handwriting covered them in neat rows, the product of Carlisle training and decades of practice. The words looked harmless on paper. Black ink. White paper. A simple record of events that had shattered lives.
 
-I stretched toward the golden clusters, my toes gripping bark worn smooth by summer heat. The mesquite tree swayed, and I swayed with it, the whole world tilting beneath me. Below, burden baskets waited like open mouths. My mother and aunts moved between the trees, their hands quick and sure, filling the baskets with the dry rustle of pods pulled from branches.
+I read aloud.
 
-"Not too high," my grandmother called, but she was smiling. I could hear it in her voice.
+*"In February 1875, General Crook broke his promise. The Yavapai and Tonto people who had settled at Rio Verde Reservation were ordered to leave their homes and march to San Carlos. They had been promised they could stay 'as long as they lived.' The promise lasted two years.*
 
-I reached for a cluster just beyond my fingertips. The pods were fat and golden, darker than the others, and when I pulled them close, they smelled sweet enough to make my mouth water. The branch dipped under my weight. For a heartbeat, I hung there, suspended between earth and sky, the Salt River shining in the distance like a snake's skin catching light.
+*I was with the Army escort. I was ten years old, traveling with Lieutenant Bishop who had taken responsibility for me after Captain Burns died. I watched the people walk, nearly two thousand of them, while I rode beside the soldiers. I was fed while they went hungry. I was warm while they suffered cold. I witnessed everything, and I could do nothing.*
 
-Then my fingers closed around the pods, and I dropped them down.
+*On the East Verde River, violence erupted between the Tontos and the Apache Yumas. Thirty-five people died. Al Sieber, the chief of scouts, was shot and crippled. I saw it all from my position with the Army.*
 
-"Good," grandmother said as they landed in her basket. "You see? The tree gives what we need."
+*When we reached San Carlos, the people were left among strangers, their homeland abandoned. I heard a child singing: 'Good-bye my homeland, and water, and trees and rocks. There is no chance that I shall live long enough to come back to this land.'*
 
-The sun stood high now, turning the desert white. Heat rose in waves from the canyon floor, but up here in the branches the air moved, carrying the scent of creosote and dust and the river somewhere beyond the rocks. My cousins worked the trees nearby. I could hear Nashta laughing at something, then my aunt's voice hushing her, gentle.
+*I came back. I am writing this so my people's suffering will not be forgotten."*
 
-I climbed down slow, the way my uncle had taught me. "Three points touching," he'd said, "always three." Hand, hand, foot. Hand, foot, foot. The bark warm against my palms.
+Chehata's eyes were wet when I looked up. She wiped them quickly with the back of her hand.
 
-When I dropped to the ground, my grandmother was watching me with eyes that saw everything. She reached out and brushed my hair back from my forehead, her fingers dry and light as milkweed silk.
+"It's good," she said. "It's true. The White People need to hear this from you."
 
-"You're growing," she said. "Soon you'll be too big to climb."
+I closed the portfolio. "They don't want to hear it."
 
-"Then who will get the high pods?"
+"Then make them listen."
 
-"Maybe my cousin Wassaja can do it," I said. "His arms are already longer than mine."
+I had tried. God knows I had tried.
 
-"Someone smaller." Her mouth curved. "The sky keeps turning, child. That's how we know we're alive."
 
-My mother held out the waterskin, and I drank. The water tasted like the clay pot it had come from, cool despite the heat. She took it back and drank herself, then poured a little over her hands and wiped her face.
 
-"Your father will be proud," she said. "Look how much we've gathered already."
+The first letter went to Sharlot Hall in January 1910, twelve years ago. I had met her once at a gathering of territorial historians. She had listened when I spoke about Yavapai history, had taken notes in a leather journal, had looked at me like my words mattered. So I wrote to her.
 
-The baskets were half full, and the sun had barely begun its fall toward the western mountains. All morning we'd worked like this, the rhythm of it steady as breathing. Reach, pull, drop. The pods rattled into baskets. My hands sticky with mesquite sap, my legs scratched from bark, my heart full in a way I had no words for.
+*Dear Miss Hall,*
 
-Nashta ran up holding a pod that had split open. "Look, grandmother, it's already sweet inside."
+*I am writing to ask your help in finding a publisher for my manuscript about the Yavapai people. I was present at Rio Verde Reservation and the March to San Carlos in 1875. I witnessed many events that the official records do not tell correctly. The White People have heard only one side of what happened to my people. I believe this story should be published so the truth can be known.*
 
-Grandmother took it and examined it like it was something precious. "The tree knows," she said. "It opens when it's ready."
+*I have documented everything I witnessed: the promises made, the promises broken, the suffering of my people during removal and afterward. I served in the U.S. Army and attended Carlisle School, so I can write in English that your readers will understand. But I am writing from the Yavapai perspective.*
 
-We worked until the sun sat lower, painting the canyon walls red and gold. My mother sang while she gathered, a song about the mesquite and how it had saved the people in the hungry time. My aunts joined in, their voices braiding together. I didn't know all the words yet, but I hummed along, the melody familiar as my own heartbeat.
+*I enclose the first section of my manuscript for your review. I would be grateful for any assistance you can provide.*
 
-When grandmother said it was time to return to camp, we lifted the burden baskets. Mine was the smallest but still heavy, the carrying strap pressing against my forehead. We walked single file along the trail that followed the river, my aunt in front, grandmother behind me. The weight made me strong. I could feel it in my legs, in my back, in the way I had to lean forward to balance the load.
+*Respectfully,*
+*Mike Burns*
 
-Ahead, smoke rose from the cooking fires. I could smell rabbit roasting, and my stomach woke up all at once, growling. Nashta giggled behind me.
+Her reply came two months later. She was kind, her words carefully chosen.
 
-"Someone's hungry," my aunt said.
+*Dear Mr. Burns,*
 
-"I could eat a whole deer," I said, and everyone laughed.
+*Thank you for sharing your manuscript. Your account is valuable and important. The perspectives of Native witnesses to these events must be preserved.*
 
-"First, you have to help bring one down," my uncle's voice came from the trail ahead. He stood there with my father, both of them empty-handed but smiling. No deer today, then. But they looked happy anyway, the kind of happiness that came from being out on the land, from moving quiet through the world and seeing what there was to see.
+*However, I must be honest with you about the challenges you will face. Publishers in the East are not interested in Native perspectives on Indian wars, especially accounts that contradict official Army records. They prefer stories of "successful" assimilation, not testimony about government failures and broken promises.*
 
-My father reached out and steadied my burden basket when I stumbled on a root.
+*I will continue to inquire, but I wanted you to know the difficulty of what you are attempting. Do not stop writing. Even if publication proves impossible, your manuscript should be preserved. I would be honored to house it in my collection if you would permit it.*
 
-"Careful," he said. "You carry too much, your legs will remember it tomorrow."
+*With respect and admiration,*
+*Sharlot M. Hall*
 
-"I'm strong enough."
+I understood what she was telling me. The story I had written was not the story white publishers wanted to buy. They wanted Indians who praised their civilizers, not Indians who documented their own people's destruction.
 
-"I know you are." His hand rested on my shoulder for a moment, warm and heavy. "But even the strong rest."
+But I kept trying.
 
-At camp, we set the baskets down in the shade of the ramada. My back sang with relief. Other families were returning too, their own baskets full. Tonight or tomorrow, we would pound the pods into meal, the sound of stone on stone echoing through the canyon. We would press out the sweet juice and drink it, or make it into cakes that would keep when we moved to the higher country.
 
-The thought of moving made me both sad and excited. I loved this place, this camp by the river where the mesquite grew thick and the water ran even in the dry times. But the mountains were different, cool and green, and there would be walnuts to gather and new places to explore.
 
-"Come, Hoomothya." Grandmother was already at the grinding stone. "I'll show you how to pound them fine."
+Over the next decade, I sent queries to publishers in New York, Boston, Chicago. Each letter was carefully composed, explaining my unique position as witness and my education that allowed me to write for white audiences. Each letter emphasized the historical importance of a Native account of events that had only been told from the Army perspective.
 
-I knelt beside her on the smooth rock. She took a handful of pods and placed them in the shallow bowl worn into the stone by generations of hands. Then she gave me a smaller pounding stone, smooth and heavy.
+The rejections arrived with predictable regularity.
 
-"Not too hard," she said. "Listen to the sound. It will tell you when it's right."
+*We do not publish accounts of Indian conflicts.*
 
-I brought the stone down. The pods cracked and split. Again. The rhythm of it filled my hands, my arms, the air around us. Grandmother nodded.
+*Our readers prefer forward-looking stories about Native progress, not dwelling on past grievances.*
 
-"Good. You're learning."
+*While your manuscript shows competence, we cannot find a market for such material.*
 
-Across the fire, my mother was skinning the rabbit my uncle had brought. Her knife flashed in the fading light. My father sat with the other men, talking in low voices, their hands moving as they spoke. One of them was shaping an arrow shaft, his fingers patient and sure.
+*The events you describe are of limited interest to general audiences.*
 
-Everything was as it should be. The mesquite pods splitting under stone. The fire crackling. The smell of food and smoke and the river. My people around me, their voices rising and falling like a song I'd known before I was born.
+One editor was more blunt: *Our readers are not interested in reading Native accusations against the U.S. Government. Such material is divisive and unsuitable for publication.*
 
-I didn't know then that I would remember this day for the rest of my life.
+I kept every letter. They accumulated in the portfolio with the manuscript, a paper trail of rejection. Chehata watched me read them and saw how each one carved a little deeper.
 
-I didn't know that I would reach for it again and again in the years to come, like reaching for those golden pods in the high branches. I didn't know that the sound of my grandmother's voice and the weight of that burden basket and the taste of river water would become the things I carried when everything else was taken.
+"Maybe you're writing for the wrong audience," she said one evening after I had read another refusal.
 
-I was just a boy, pounding mesquite, learning the work of my people.
+"Who should I write for, then?"
 
-I was Hoomothya.
+"Our children. Our grandchildren. Your cousin Carlos." She set her sewing aside. "You're trying to convince the White People that they should care about what they did to us. But maybe that's not the point. Maybe the point is making sure our people remember, so they can tell their children."
 
-And I was home.
+"Carlos said I should publish it. He said our story needs to reach beyond our own people."
+
+"Carlos fights in newspapers and courts. You fight with witness." She reached across the table and covered my hand with hers. "Both matter. But maybe yours matters most to those who come after us, whether it's published or not."
+
+I looked at the manuscript. Three hundred pages of careful documentation. Names, dates, places. My testimony and the testimony of elders who had survived what I had witnessed from my protected position with the Army. It was the most complete account of Yavapai suffering in the 1870s that existed.
+
+And no one would publish it.
+
+"I'm tired," I admitted. "I spent years writing this. I thought if I could just get it down on paper, get it into print, then it would matter. Then the truth would be recorded where it couldn't be erased."
+
+"It's already recorded," Chehata said. "You wrote it. I've heard you read it. Our children have heard pieces. The elders you talked to, they know you documented their words. That's not nothing."
+
+"But if it just sits in a drawer, what good is it?"
+
+"Then it sits in a drawer until someone is ready to hear it." Her voice was firm. "You did your part. You witnessed, and you wrote it down. That's what Carlos asked you to do. That's what you owed to your people."
+
+I wanted to believe her. But the weight of those rejection letters pressed against my chest like stone.
+
+
+
+That night I couldn't sleep. I lay beside Chehata listening to her breathing and thinking about the manuscript. All those hours of writing by lamplight, stealing time from paid work we needed. All those interviews with elders, asking them to relive painful memories so I could record their testimony. All those drafts, revising until my hand cramped and my eyes burned.
+
+For what?
+
+For a stack of paper that publishers found "unsuitable."
+
+I rose quietly and went to the table. The manuscript sat where I had left it. I opened the portfolio and read the first page by moonlight.
+
+*This is my testimony. I am Mike Burns. I was born among the Yavapai. I was present when General Crook made his promises. I was present when those promises were broken. I was present during the March of Tears from Rio Verde to San Carlos. I witnessed the suffering of my people, and I am writing this so their story will not be forgotten.*
+
+The words still felt true. But they also felt futile.
+
+I heard Chehata rise and felt her hand on my shoulder.
+
+"Come back to bed."
+
+"I keep thinking about what you said. About Carlos."
+
+She pulled a chair close and sat beside me. "What about him?"
+
+"He's coming back to Arizona next month. Moving to Fort McDowell like he always said he would." I touched the manuscript. "Maybe I should talk to him about this. He knows how to get Native voices heard. He's been publishing *Wassaja* for years, fighting the Indian Bureau, making noise in ways I never could."
+
+"He's your cousin. He'll help if he can."
+
+"He'll tell me the same thing everyone else has. That white publishers don't want Indian testimony about atrocities."
+
+"Maybe." She squeezed my shoulder. "Or maybe he'll see something you're missing. He's been fighting this battle longer than you have. He knows how the system works."
+
+I closed the portfolio. "He's also dying. His letter said he's coming home to be with the people. That's what you do when you know time is running out."
+
+"Then talk to him while you can." Her voice was gentle. "Show him what you've written. Ask his advice. Maybe he can help. Maybe he can't. But at least you'll have tried everything."
+
+I looked at her. Even in the dim moonlight I could see the determination in her face. She had supported this work for years, had managed the household while I wrote instead of taking paying jobs, had believed the witness mattered even when publishers didn't.
+
+"What if he reads it and tells me to give up?"
+
+"He won't. He's spent his whole life fighting to get Native voices heard. He won't tell you to stop now." She stood and pulled me to my feet. "But you need to sleep. Carlos won't be here for a month. Come to bed."
+
+I let her lead me back to our room. But I lay awake long after she had fallen asleep, thinking about my cousin who had chosen the platform while I had chosen the community, who had fought in newspapers while I had fought in letters and testimony, who had made his voice impossible to ignore while mine had been rejected by every publisher who heard it.
+
+Maybe he would know what to do with a manuscript the white world didn't want.
+
+Or maybe he would confirm what I already suspected: that I had spent twelve years writing a truth no one was ready to hear.
+
+
+
+Three weeks later, word reached Fort McDowell that Carlos was back in Arizona. He had settled into a small house on the reservation, just as he had promised. He was home.
+
+I found Chehata grinding corn in the morning light. She looked up when I entered.
+
+"You're going to see him."
+
+"How did you know?"
+
+"You've been staring at that manuscript for three weeks. You're either going to burn it or show it to Carlos. I'm hoping it's the second one."
+
+I picked up the portfolio from its place on the shelf. It felt heavier than it should, weighted with years of work and rejection.
+
+"What if he can't help?"
+
+"Then at least he'll have read it. At least he'll know what you witnessed and what you wrote." She set the grinding stone aside and wiped her hands on her apron. "Go. Talk to your cousin. Find out what he thinks."
+
+I tucked the portfolio under my arm and headed for the door. Then I stopped.
+
+"Thank you."
+
+"For what?"
+
+"For believing this mattered. For supporting me when I should have been working instead of writing. For listening to me read it a hundred times. For suggesting I talk to Carlos." I met her eyes. "For everything."
+
+She smiled, and for a moment I saw the young woman I had married thirty-four years ago, fierce and certain and unafraid.
+
+"Go," she said. "Before you talk yourself out of it."
+
+I walked out into the February morning carrying twelve years of work and hope I didn't quite believe in anymore. The path to Carlos's house was well-worn already, neighbors visiting the famous doctor who had finally come home. I followed it through mesquite and rocks, the portfolio tucked tight against my chest.
+
+My cousin was waiting. And maybe, just maybe, he would see what I couldn't: a way to make this witness matter beyond the walls of my own disappointment.

@@ -1,161 +1,181 @@
-# 21  |  DECEMBER 28, 1872
+# 21  |  HUNT
 
-### December 28, 1872
-### Salt River Canyon Rim
-The first shot cracked across the morning like thunder.
+### December 22-26, 1872
+### Salt River Mesa
+The soldiers didn't leave.
 
-From my position on the rise, I saw the sentry at the cave entrance drop. Just... drop. One moment standing, looking out at the peaceful dawn. The next moment gone.
+For three days, we knew they were somewhere on the mesa above us. We couldn't see them from the cave, but we knew they were there, searching. We lived in whispers. Moved like shadows. The fires stayed cold.
 
-Then the world exploded.
+On the fourth day, scouts reported they had moved.
 
-Gunfire erupted from everywhere at once. From above the cave. From the slopes below. From positions I hadn't even known the soldiers occupied. The sound was overwhelming, echoing off the canyon walls, multiplying until it seemed like the whole earth was screaming.
+My father stood at the cave entrance with the other men as word came back from the watchers. The soldiers had ridden north across the mesa top. Gone, finally. Disappeared into the broken country beyond.
 
-I could see the cave entrance clearly from where I stood. Could see people stumbling out, confused, terrified. Could see them fall as bullets found them.
+"Gone," my uncle said. Relief in his voice. "Finally gone."
 
-I could see them trying to retreat back into the cave.
+But my father didn't relax. "Or they're circling. Coming back from another direction."
 
-Into the trap.
+"You think they know we're here?"
 
-Captain Brown beside me said something coldly in English. I didn't understand the words, but I understood the tone. Keep firing. Don't stop.
+"I think they're looking. And they're persistent."
 
-The gunfire continued. Relentless. The soldiers above the cave were firing straight down into the entrance. I could see the muzzle flashes. Could see people trying to run, trying to hide, trying to protect their children.
+Still, with the soldiers out of sight, life in the cave began to loosen. People spoke in normal voices again. Fires were lit for cooking. Children who'd been forced to stay quiet and still for days were finally allowed to move around, to play in the back of the cave where the darkness was deep and their laughter wouldn't carry.
 
-But it was too dark inside the cave to see faces. Too far to recognize individuals. Just shapes. Figures. People dying.
+I played with them for a while, a game of hiding and seeking among the rock formations at the cave's rear. But my heart wasn't in it. Every time I heard footsteps approaching the entrance, I froze, listening, waiting for the alarm.
 
-My people.
+It never came.
 
-A woman ran from the cave entrance, something bundled in her arms. A child. A baby, maybe.
+That evening, the meat ran out.
 
-She made it three steps before the bullets found her.
+My mother scraped the bottom of the storage basket, finding only a few dried strips. She made a thin stew with prickly pear pads and what little meat remained, cooking it in a basket by dropping hot stones into the water until it boiled. Everyone got a portion, but it was small. Not enough. My stomach was still hollow after I finished.
 
-She fell forward, her body curling around whatever she carried. Protecting it with her last breath.
+"We need to hunt," my uncle said to my father that night. They sat by our fire, voices low. "Tomorrow. While the soldiers are gone. We can't wait any longer."
 
-I couldn't see if it was my mother. Couldn't see if that was my sister.
+My father looked at the children, at the elders, at the mothers nursing babies. All of us getting thinner. "It's risky."
 
-But someone's mother had just died. Someone's sister.
+"It's riskier to starve."
 
-And I had led the soldiers here.
+A long pause. Then my father nodded. "At dusk tomorrow. You take the boy. I'll stay here, someone needs to organize the defense if the soldiers come back while you're gone."
 
-One of the soldiers near us said something. He sounded sick.
+My uncle opened my mouth to protest, but my father cut him off. "You're the better tracker anyway. And Hoomothya is old enough to help carry game. Two hunters, less time exposed. In and out quickly."
 
-But the shooting didn't stop. Couldn't stop. Had its own momentum now.
+My uncle finally nodded, though his face showed he didn't like splitting up. "Dusk, then. We'll go to the mesa above, find deer or rabbits. Be back before full dark."
 
-I sank to my knees, my hands over my ears, but I couldn't block out the sounds. The gunfire. The screams. The ricochets singing off the stone.
+I fell asleep that night with my stomach growling, dreaming of venison roasting over fire.
 
-And then a new sound. A deep grinding. Cracking.
+---
 
-Through eyes blurred with tears, I saw soldiers on the rim above the cave. They were prying at something. Pushing.
+The fifth day passed in hungry anticipation.
 
-A boulder.
+Everyone knew my uncle and I would hunt at dusk. The women prepared to process whatever game we brought back, even in the dark if necessary. The children were quieter, sensing the tension, the need for this hunt to succeed.
 
-It teetered at the edge. Then fell.
+I watched my father throughout the day. He organized the men, checked weapons, and discussed what to do if soldiers appeared while we were gone. He was staying to protect the family. To protect my mother and sisters.
 
-It didn't fall straight down. It bounced off the cliff face, shattering into fragments. The pieces rained down on the cave entrance like deadly hail. I heard the impacts. Heard screaming that might have been my imagination or might have been real.
+I watched the sun track across the sky, impatient for evening to come.
 
-More boulders followed. The soldiers above had found an efficient method. Why waste bullets when gravity would do the work?
+As the afternoon shadows lengthened, my father called me over. He looked at me for a long moment. I was young, maybe eight years old, but I'd been on hunts before. I knew how to move quietly. How to read tracks. How to stay downwind.
 
-The rocks fell. Bounced. Shattered. Crushed anything below.
+"You do exactly as your uncle says," he told me. "No noise. No running ahead. If he signals you to freeze, you freeze. Understood?"
 
-Anyone below.
+"Yes, father."
 
-"Make them stop," I begged in Yavapai. "Please. Make them stop. Please."
+He pulled me close then, held me in a way he didn't usually do. "Be careful. Come back safe."
 
-No one answered. The soldiers' faces were gray. But no one gave the order to cease fire.
+"I will."
 
-Maybe they couldn't. Maybe this thing they'd started had to run its course. Had to burn itself out like wildfire, consuming everything before it died.
+He touched the top of my head, then let me go.
 
-Then I saw movement. A figure crawling from the cave entrance on his stomach, moving between the rocks and the bodies. Moving with purpose even in that position of submission.
+As the sun touched the western canyon rim, my uncle and I prepared to leave. We each carried a bow and a quiver of arrows. My uncle gave me a small hunting bag to carry whatever small game we might find—rabbits, quail, anything.
 
-He made it past the killing zone. Past where the bullets had found everyone else.
+My mother pulled me close, her hands on my shoulders. My baby sister squirmed in her arms. Nashta held onto my mother's skirt, looking up at me with wide eyes.
 
-And then he stood.
+"Be careful," my mother whispered. "Stay with your uncle. Come back safe."
 
-A warrior, I thought. He climbed onto a large boulder that overlooked the canyon. Stood tall on top of it, fully exposed.
+"I will."
 
-He raised his rifle toward the soldiers' positions.
+She kissed my forehead, then let me go.
 
-And he screamed.
+My father stood with the other men near the cave entrance, watching us prepare to climb up to the mesa. He raised his hand once, a gesture that might have been goodbye, a blessing, or a warning.
 
-Not a scream of pain or fear. A war cry. Defiant. Raging. The sound of a man who refused to die on the ground. Who chose to die standing.
+I raised mine back.
 
-He fired toward the soldiers above.
+Then my uncle and I started climbing.
 
-The crack of a single rifle answered him.
+We climbed up from the cave to the mesa above, moving quietly through the growing dusk. The air was cooling rapidly, that sharp cold that comes to the desert when the sun drops. My breath made small clouds.
 
-Saw him fall from the boulder, disappearing behind the rocks.
+Up on the mesa, the land was unfamiliar. The juniper and pinyon were dark shapes against the dimming sky. My uncle led us east, away from the canyon rim, toward where he said deer often fed on the brush in the evening.
 
-The gunfire began to slow. Not because the soldiers were stopping, but because there were no more targets. No more movement at the cave entrance. No more people trying to escape.
+We moved in silence, communicating only with hand signals. My uncle pointed: fresh tracks in the dust. Multiple deer, heading toward the valley. I nodded and we followed.
 
-Just silence punctuated by occasional shots. Soldiers making sure.
+The light was fading fast now, that brief time between day and night when the world turns gray and soft. Perfect for hunting. The deer would be feeding, focused on finding food before full darkness came.
 
-The silence that followed was worse than the noise had been.
+We crested a low rise and there they were: five mule deer browsing on mountain mahogany in the valley below. Three does, a yearling, and a young buck.
 
-Smoke drifted across the canyon. From guns. From fires started inside the cave, I could see smoke coming from the entrance.
+My uncle and I moved into position. He placed me behind him where I'd be out of the way. He nocked an arrow. Waited for the right moment.
 
-Captain Brown stood watching, his face hard. Then he nodded.
+The buck lifted his head, testing the air.
 
-He said something in English. His voice was flat. Empty. Orders to send men in to count the dead. Secure the area.
+My uncle's bow creaked softly as he drew. The arrow flew.
 
-I watched soldiers scramble down to the cave. Watched them disappear into that dark entrance where my family had died.
+It took the buck in the chest, just behind the front leg. A good shot. Maybe perfect.
 
-Where my mother had died.
+But the deer didn't fall. It wheeled and ran, crashing through the brush, the other deer scattering in all directions.
 
-Where my father had tried to protect everyone.
+My uncle made a low sound in his throat. "Hit him solid. He won't go far."
 
-Where Grandmother had prayed.
+But as we watched, the deer disappeared over a rise, still running strong.
 
-Where everyone I'd ever loved had been slaughtered in a stone box with nowhere to run.
+My uncle looked at me in the fading light. "That arrow will kill him within the hour, maybe less. All we have to do is follow the blood trail. We can't let him die and let the coyotes have him. The group needs this meat."
 
-Because I'd led the soldiers here.
+He stood there in the growing darkness, weighing his choice. The need for caution. The equal need for food.
 
-The soldiers began emerging from the cave. Some looked shaken. One stumbled away and vomited. Another sat down hard, his head in his hands.
+Finally, he nodded, more to himself than to me. "We track him. Carefully. We find him, dress him, and head straight back. We won't go far."
 
-Captain Brown walked down toward the cave to inspect. When he returned, his uniform was dusty, but his face showed satisfaction. A job completed.
+We followed the blood trail as darkness fell completely. Dark drops on stone. A smear on the brush. The deer was bleeding, but not as heavily as my uncle had hoped. It was still moving.
 
-I heard him report to his other officers. Numbers. All women, children, and old men. A few were still alive when they went in. The scouts finished them.
+We tracked for an hour. Then another. The deer kept going, kept moving deeper into the broken country beyond the mesa, farther from the cave.
 
-Finished them. Crushed their skulls with rifle butts and rocks, I would later learn. Making sure.
+"He should have fallen by now," my uncle said quietly. His voice held worry.
 
-Making sure there were no survivors.
+But he kept tracking. And finally, the buck did fall.
 
-Except me.
+We found him in a small clearing, collapsed on his side, his breathing labored and shallow. My uncle's arrow had gone through the lungs, but hadn't hit the heart. The deer had run farther than any of us expected.
 
-I didn't remember falling. Didn't remember hitting the ground. But suddenly I was lying in the dirt, my face pressed against stone, and I couldn't breathe. Couldn't think. Couldn't do anything but feel the world ending.
+My uncle dispatched him quickly with a knife. We stood in the darkness around the fallen deer, and I felt relief wash through me. We had meat. The group would eat. Father would be proud.
 
-A soldier pulled me up. Not roughly, but not gently either. Just doing his job.
+But we'd gone much farther than planned. And it was fully dark now, the moon not yet risen. We'd have to dress the deer here and carry it back in the darkness.
 
-Through one of the scouts, Captain Brown said to take me back up to the mesa camp.
+My uncle worked quickly, field-dressing the carcass by feel as much as by sight. I held the hunting bag, ready to collect the liver and heart—precious organs we'd eat first.
 
-My hands weren't tied, but they might as well have been. I had nowhere to go. No one to go to.
+The work took longer in the dark. Everything took longer. By the time my uncle finished, we were both shivering. The temperature had dropped, that deep cold that comes to the desert on winter nights.
 
-Everyone was dead.
+"We need to move," my uncle said, his breath steaming. "Get back to the cave while we can still find the way."
 
-As they led me away from the canyon, back toward the mesa camp, I looked back once.
+But even as he said it, he was gathering deadwood. "We're too cold. If we try to carry this back now, we'll freeze before we make it. We need to warm up first. Build a small fire, warm ourselves, then go."
 
-Smoke still rose from the cave entrance.
+He looked into the darkness, toward where the cave lay hidden. Then back at me, shivering. At the deer, cold and heavy. He was weighing the risks.
 
-Seventy souls. Men, women, children, and elders.
+"A small fire," he said finally. "Just enough to warm us. Then we put it out and go."
 
-All were dead because an eight-year-old boy had whispered "cave" when a knife was at his throat.
+My uncle built the fire in a small depression, sheltered by rocks. He used juniper bark for tinder, dry twigs for kindling. The flames caught quickly, small and hungry, growing until we had a fire barely bigger than two hands.
 
-All dead because I'd chosen life over honor.
+But it was warm. Gloriously warm.
 
-As the sun set that day, December 28, 1872, painting the sky in colors Grandmother would have loved, I looked back toward the canyon one last time.
+We huddled around it, holding our hands to the heat, feeling life return to our frozen fingers. My uncle kept watch while I warmed myself, then he sat down too, absorbing the precious heat.
 
-The canyon was just a dark line on the horizon. You wouldn't know anything terrible had happened there. Wouldn't know the world had ended in stone and gunfire and falling rocks.
+"Just a few more minutes," he said. "Then we'll go."
 
-But I knew. Would always know.
+But the cold had settled deep into our bones. A few minutes became longer. The fire felt too good. The warmth was too precious to leave.
 
-The sight of people falling at the cave entrance.
+I don't remember falling asleep. One moment I was watching the flames dance, the next I was being shaken awake by rough hands.
 
-The sound of boulders crushing bone.
+Not my uncle's hands.
 
-The ricochets singing off stone deep in the cave, where it was too dark to see but not too dark to die.
+Strangers' hands.
 
-The silence that followed.
+I opened my eyes to see men standing around our fire. But they weren't white men in uniforms.
 
-And the knowledge that I had guided them there. Had brought death to my people. Had walked at the front of the column, showing soldiers the way.
+They were Natives. Like us, but different.
 
-I was Hoomothya. The only survivor.
+Pima, I realized. Or maybe Maricopa. Enemies. Working with the Army as scouts.
 
-Trying to carry the unbearable weight of being the only one living to tell.
+There were four of them, maybe five. They carried rifles, Army rifles. Wore cloth headbands and pieces of Army gear mixed with their own clothing. And behind them, emerging from the darkness, I saw white soldiers. A few of them.
+
+My uncle was already awake, already on his feet. His hand moved toward his knife.
+
+One of the scouts said something sharp in a language I didn't fully understand, some Pima mixed with Spanish. A warning.
+
+My uncle didn't stop.
+
+The gunshot was impossibly loud in the night.
+
+My uncle staggered backward, his hand going to his chest. Dark blood welled between his fingers, black in the firelight.
+
+"No!" I scrambled to my feet, but hands grabbed me. Native hands. One of the scouts held me back while my uncle fell to his knees.
+
+My uncle's eyes found mine across the firelight. Wide. Surprised. Already fading.
+
+He tried to speak. Then he went still.
+
+I couldn't breathe. Couldn't move. Couldn't do anything but stare at my uncle lying dead on the ground, the firelight flickering across his open eyes.
+
+The shot still echoed inside me, a ringing that drowned out everything else. The cold didn't matter. The scouts' voices blurred. The world had split with that sound, and nothing would ever fit back together.
