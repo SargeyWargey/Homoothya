@@ -1,6 +1,6 @@
 # 12  |  CITIZEN
 
-### July 14-15, 1908
+### July 1908
 ### Prescott, Arizona Territory
 The Prescott courthouse smelled of furniture oil and old tobacco. I stood at the registration desk with morning light slanting through windows tall enough to make a man feel small. The clerk looked up from his ledger and waited for me to state my business.
 

@@ -1,6 +1,6 @@
 # 4  |  CHOICE
 
-### July 1885
+### July 1886
 ### Kansas to Arizona Territory
 The answer arrived two weeks after commencement. President Craig asked me to bring my books to his office. He unfolded a letter bearing the blue stamp of the Indian Bureau and slid it across his desk. Captain Pratt wrote that federal funds would no longer cover students who wished to stay at Highland. If I remained, I would need to pay my own board. If I could not, I was to report back to the agency in the Territory before the end of July. The words were clipped, the ink already fading along the fold.
 

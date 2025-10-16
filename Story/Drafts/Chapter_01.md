@@ -1,6 +1,6 @@
 # 1  |  CIVILIZED
 
-### 1873-1874
+### 1873-1880
 ### Fort Whipple, Arizona Territory
 The uniform scratched. Mrs. Burns had sewn it herself from blue wool cloth, copying the soldiers' uniforms but making it small enough to fit an eight-year-old boy. She said I looked handsome in it. She said I looked like a proper young man. She did not say I looked like myself, because I no longer looked like myself at all.
 

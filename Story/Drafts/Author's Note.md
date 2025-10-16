@@ -1,10 +1,10 @@
 # Author's Note
 
-This story was born from my years in Arizona, and from a relationship that connected me deeper into the landscape. Most weekends and evenings I'd find myself hiking through the Bradshaw Mountains and across mesas, looking for the traces people left behind: petroglyphs carved into stone, rocks stacked to mark old paths and dwellings. Standing in front of these remnants, I would think about the hands that made them and the lives that moved through these same places. That curiosity drove me to read their stories, and to research who they were.
+This story was born from my years in Arizona and from a relationship that connected me more deeply to the landscape. Most weekends and evenings, I would find myself hiking through the Bradshaw Mountains and across mesas. I would be looking for the traces people left behind: petroglyphs carved into stone, rocks stacked to mark old paths and dwellings. Standing in front of these remnants, I would think about the hands that made them and the lives that moved through these same places. That curiosity drove me to read their stories and to research who they were.
 
-During that research, I came across the manuscript of a Native American man named Mike Burns. His story immediately grabbed hold of me. I read everything I could about this man, his cousin Carlos, and the Yavapai people. I came away with a conviction: his is a story that deserves to be told to a wider audience.
+During that research, I came across the manuscript of a Native American man named Mike Burns. His story immediately grabbed hold of me. I read everything I could about this man, his cousin Carlos, and the Yavapai people to which they belong. I came away with a conviction. This is a story that deserves to be told, one that should go beyond his manuscript and into who he was.
 
-I originally started working on this project in 2019 as an idea for a YouTube series, visiting these places, writing out scenes, and telling their stories. Over the years, it evolved into something more: from scenes, to stories, to this novel. It's something I've worked on, on and off, for five years. What you're reading now is the first draft of that journey.
+I first began this project in 2019, thinking it might become a YouTube series. I visited these places, wrote scenes, and tried to share their stories. Over time, the project grew from a few scenes into full stories, and eventually into this book. I've spent about five years working on it, sometimes stepping away and then returning. What you are reading now is the first draft of that journey.
 
 ## Historical Fiction
 
@@ -19,7 +19,7 @@ I also want to encourage you to be honest with your thoughts about this book:
 - Are there places where the story drags or becomes unclear?
 - Are there characters you wish you felt more emotionally connected to?
 - Is anything confusing?
-- Any grammar, spelling, or technical issues you notice?
+- Any grammar, spelling, or technical issues you notice? - Grammarly is worth every penny.
 - Any continuity issues? - Mike moves around a lot and keeping where he was located was a challenge.
 
 After living with this draft for so long, I need fresh eyes. Tell me where the pacing lags, where details obscure the story or where more are needed, where emotional beats don't land.

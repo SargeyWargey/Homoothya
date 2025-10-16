@@ -2,9 +2,9 @@
 
 ### Late April 1922
 ### Fort McDowell Reservation, Arizona
-The lamp burned low when I set my pencil down. Dawn had not yet touched the sill. The paper before me rippled from the sweat that had fallen from my wrist. My hand still shook. The final sentence glimmered with fresh graphite. I read it once more to be certain the words stayed on the page and did not slip back into the dark place where I had kept them hidden for half a century.
+The lamp burned low when I set my pencil down. Dawn had not yet touched the sill. The paper before me rippled from the sweat that had fallen from my wrist. My hand still shook. The final sentence glimmered with fresh graphite. I read it once more to be certain the words stayed on the page and did not slip back into the place where I had kept them hidden for half a century.
 
-I wrote my name first. Mike Burns. I wrote it the way the government clerk in Prescott had spelled it when he recorded Captain Burns's household. Then, below it, I spelled the name Grandmother whispered when she lifted me from my mother's body. Hoomothya. The letters looked strange beside each other, yet the longer I stared, the more they settled into one belonging. Both names belonged to the same hand. Both belonged to me.
+I wrote my name first. Mike Burns. Then, below it, I spelled the name Grandmother spoke when she lifted me from my mother's body. Hoomothya. The letters looked strange beside each other, yet the longer I stared, the more they settled into one belonging. Both names belonged to the same hand. Both belonged to me.
 
 My chest ached as if I had been running. I pressed my palm against the paper to feel the impression left in the fibers. The words had weight. They were proof that the boy in the cave had not been buried with the others. Proof that I had survived. Proof that I had finally stopped hiding from myself.
 
