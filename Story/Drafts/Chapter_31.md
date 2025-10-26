@@ -1,4 +1,5 @@
-## MIKE BURNS'S FINAL YEARS AND DEATH 
+# EPILOGUE
+## MIKE BURNS'S FINAL YEARS
 ### 1923-1934
 After Carlos died, Mike continued writing.
 
@@ -22,7 +23,7 @@ Mike was buried in the Ba Dah Mod Jo Cemetery at Fort McDowell, in the same grou
 
 The manuscript he had spent decades writing, revising, and trying to publish went into the archives of the Sharlot Hall Museum in Prescott.
 
-## THE SKELETON CAVE REMAINS 
+## THE SKELETON CAVE REMAINS
 ### 1923-1985
 The bones Carlos and Mike retrieved were not the last to be recovered from Skeleton Cave.
 
@@ -53,7 +54,7 @@ Their homeland stolen, their families murdered, their children taken to boarding
 
 It was a victory. It was also a wound that would never fully heal.
 
-## THE MANUSCRIPT'S SILENCE 
+## THE MANUSCRIPT'S SILENCE
 ### 1934-2000s
 After Mike's death in 1934, his manuscript was preserved in the archives of the Sharlot Hall Museum in Prescott, Arizona.
 
@@ -77,7 +78,7 @@ From 1905 to 1911, during Roosevelt Dam construction, the cave was desecrated. A
 
 The site was not protected as a sacred place or massacre location until much later. This desecration continued for decades, another layer of violence against the Yavapai dead.
 
-## PUBLICATION 
+## PUBLICATION
 ### 2010-2012
 Around the turn of the twenty-first century, scholars working in the Sharlot Hall Museum archives recognized the extraordinary significance of Mike Burns's manuscript.
 
@@ -142,17 +143,17 @@ Mike's witness reminds us that genocide is not a single past event but an ongoin
 
 At the Ba Dah Mod Jo Cemetery at Fort McDowell, three graves connect past and present:
 
-Carlos Montezuma, buried in 1923, the physician and activist who fought for his people until tuberculosis claimed him.
+Carlos Montezuma, the physician and activist who fought for his people until tuberculosis claimed him.
 
 The mass grave of Skeleton Cave victims, reinterred in 1933, contains approximately 80 Yavapai who died on December 28, 1872.
 
-Mike Burns, buried in 1934, the witness who spent his life making sure the world would know what happened.
+Mike Burns, the witness who spent his life making sure the world would know what happened.
 
 The cemetery connects the cousins in death as they were connected in life, linking them to the ancestors they fought to honor. Yavapai people continue to visit, to remember, to carry forward the work of witness.
 
 Mike's testimony is no longer silent. His words are published, studied, cited, and remembered.
 
-Mike Burns was the only one living to tell what happened to his people in 1872. But his witness has multiplied. Every person who reads his words, every historian who corrects the record, every student who learns the truth, every Yavapai person who carries forward his legacy becomes part of that witness.
+Mike Burns was the only one living to tell what happened to his people on that December day in 1872. But his witness has multiplied. Every person who reads his words, every historian who corrects the record, every student who learns the truth, every Yavapai who carries forward his legacy becomes part of that witness.
 
 The story does not end with publication. It continues in the ongoing struggle for justice, recognition, and the right to exist on their ancestral land.
 
